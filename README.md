@@ -8433,88 +8433,1132 @@ The path forward requires investment in these tools, development of workforce sk
 
 ---
 
-## CHAPTER FIFTEEN: IMPLEMENTATION STRATEGY
-
-### Phase I: Foundation (Years 1-3)
-- Assessment: Community Assets, Needs, Opportunities
-- Planning: Comprehensive Community and Regional Plans
-- Infrastructure: Priority Investments in Roads, Utilities, Broadband
-- Workforce Development: Training Programs
-- Business Development: Entrepreneur and Existing Business Support
-- Pilot Projects: Strategy Testing and Demonstration
-- Partnerships: Public-Private Collaboration
-
-### Phase II: Growth (Years 4-10)
-- Manufacturing Modernization: Expansion and Technology Adoption
-- Agriculture Development: Value-Added Processing, Technology, Markets
-- Technology Development: Businesses, Innovation Centers, Workforce
-- Tourism Development: Heritage, Recreation, Cultural Events
-- Music and Arts Development: Studios, Manufacturing, Performances
-- Housing Development: Workforce, Senior, Market-Rate Housing
-
-### Phase III: Transformation (Years 10-20)
-- Regional Innovation Districts: Integrated Business-Education-Research Areas
-- Export Industries: Businesses Serving External Markets
-- International Tourism: Global Visitor Attraction
-- Research Partnerships: University and Institution Connections
-- Advanced Industries: Manufacturing, Technology, Research
-- Sustainability: Economic Growth with Resource Protection
+# CHAPTER FIFTEEN: IMPLEMENTATION STRATEGY
 
 ---
 
-## CONCLUSION: A RENEWED REGION
+## Introduction
 
-- The Region's Assets and Opportunities
-- The Path Forward: Investment, Cooperation, Commitment
-- The Role of People: Families, Workers, Musicians, Entrepreneurs
-- Creating Opportunities for All
-- A Commitment to the Future
-- The Crooked Road as a Symbol of Renewal
-- The Future Being Written Today
-- Hope and Determination
-- Building an Economy That Honors the Past While Creating Future Opportunity
+The economic development vision for the Crooked Road and U.S. Route 23 corridor requires a structured, phased approach that builds momentum through early successes while laying the foundation for long-term transformation. This chapter presents a comprehensive implementation strategy organized into three phases: Foundation (Years 1-3), Growth (Years 4-10), and Transformation (Years 10-20). Each phase includes specific actions, milestones, and resource requirements that together create a roadmap for regional renewal.
+
+The implementation strategy recognizes that economic development is not a linear process but an iterative one that requires continuous learning, adaptation, and collaboration. The region's unique assets—its natural resources, cultural heritage, skilled workforce, and strategic location—provide the foundation for a diversified economy. The strategies outlined in this chapter build on these assets while addressing the challenges that have constrained growth.
 
 ---
 
-## APPENDICES
+## Phase I: Foundation (Years 1-3)
 
-### Appendix A: County-by-County Investment Recommendations
-- Scott County
-- Lee County
-- Wise County
-- Norton City
-- Russell County
-- Dickenson County
-- Washington County
+The first phase of implementation focuses on building the capacity, infrastructure, and partnerships needed for sustained economic development. During this period, communities will complete comprehensive assessments, develop strategic plans, make priority infrastructure investments, establish workforce development programs, support existing businesses, launch pilot projects, and formalize public-private partnerships. The goal of Phase I is to create the conditions for growth while demonstrating early progress that builds momentum and confidence.
 
-### Appendix B: Grant and Financing Program Directory
-- Federal Programs
-- State Programs
-- Private Foundation Opportunities
-- Regional Program Guide
+### Assessment: Community Assets, Needs, Opportunities
 
-### Appendix C: Workforce Development Resource Guide
-- Community Colleges
-- Career and Technical Education Centers
-- Apprenticeship Programs
-- Industry Certification Programs
+Comprehensive assessment is the essential first step in economic development planning. Communities must understand their assets, needs, and opportunities before they can develop effective strategies. The assessment process should be inclusive, engaging residents, businesses, and community organizations in identifying strengths, challenges, and priorities.
 
-### Appendix D: Regional Economic Indicators
-- Current Population Statistics
-- Educational Attainment Data
-- Employment and Industry Data
-- Median Household Income
+The Virginia Rural Center's Rural Virginia Opportunity Dashboard provides a powerful tool for assessment. The dashboard provides comprehensive, data-driven insights into critical sectors such as demographics, housing, education, business, and health, featuring interactive asset maps that highlight essential infrastructure and community resources. As Senator Creigh Deeds, Chairman of the Senator Frank M. Ruff, Jr. Center for Rural Virginia, noted: "Rural Virginia is rich in potential, and this dashboard will serve as a vital tool for stakeholders looking to drive positive change. By providing detailed insights and resources, we aim to help communities recognize their strengths and identify opportunities for growth".
 
-### Appendix E: Timeline and Milestones
-- Phase I Milestones (Years 1-3)
-- Phase II Milestones (Years 4-10)
-- Phase III Milestones (Years 10-20)
+The dashboard includes a Rural Resource Index, a searchable tool for identifying funding opportunities at the local, state, and federal levels, and features interactive asset maps that highlight essential infrastructure and community resources, helping local leaders visualize opportunities and challenges in their regions. As Kristie Proctor, Executive Director of the Virginia Rural Center, explained: "The Rural Virginia Opportunity Dashboard was built with and for our communities. It brings together critical data and resources in one place, giving leaders the insights they need to plan for the future and make a real difference locally".
 
-### Appendix F: Key Contacts and Organizations
-- Regional Economic Development Authorities
-- Chambers of Commerce
-- Educational Institutions
-- Industry Associations
+Communities should supplement the dashboard with local assessments that capture assets not reflected in state-level data. Local knowledge—the understanding of community history, relationships, and informal networks—is essential for effective economic development. As Nicole Wadsworth, a nationally recognized economic development consultant, explains: "You have to know how to sit at a kitchen table and listen".
+
+**Strategic Actions for Assessment:**
+
+1. **Complete Community Assessments**: Use the Rural Virginia Opportunity Dashboard to assess community assets, needs, and opportunities. Supplement with local assessments that capture community knowledge and perspectives.
+
+2. **Conduct Asset Mapping**: Identify and map community assets, including natural resources, built infrastructure, human capital, cultural assets, institutional resources, and geographic advantages.
+
+3. **Identify Gaps and Constraints**: Assess gaps in broadband infrastructure, access to capital, workforce training, business support services, housing options, and entrepreneurship culture.
+
+4. **Engage Community Stakeholders**: Involve residents, businesses, and community organizations in the assessment process through surveys, focus groups, and community meetings.
+
+5. **Prioritize Opportunities**: Identify the most promising economic development opportunities based on community assets, market demand, and feasibility.
+
+### Planning: Comprehensive Community and Regional Plans
+
+Comprehensive planning translates assessment findings into actionable strategies. The planning process should produce both community-level plans and regional plans that coordinate across jurisdictions. Regional cooperation is essential for economic development, as labor markets, transportation networks, and economic regions cross jurisdictional boundaries.
+
+Gate City's planning efforts provide a model for community-level planning. The town is an affiliate member of the Virginia Main Street Program and has partnered with the Crooked Road, Southwest Virginia Heritage Foundation, the Carter Fold, the Fire Escape, Scott County Chamber of Commerce, and the Scott County Economic Development Authority. These partnerships help strengthen Gate City's position in the emerging outdoor tourism market in Southwest Virginia.
+
+The Economic Redevelopment and Revitalization Committee (EDARC) in Gate City has been instrumental in downtown revitalization. The committee produces four signature events annually: Clinch Mountain Music Festival, Grillin at the Gate, King Alleyween, and Christmas Open House. The committee also produces "Kickin Back @ King Alley," a free weekly concert series between June and September. These events create momentum and demonstrate the community's commitment to revitalization.
+
+Regional planning is supported by Virginia's Planning District Commissions (PDCs), including the Lenowisco PDC, Cumberland Plateau PDC, and Mount Rogers PDC. These organizations facilitate cooperation across jurisdictional boundaries and support regional economic development initiatives. The "team approach" that VCEDA emphasizes—in which "VCEDA and its economic development allies work towards a common goal for the betterment of the region"—reflects the importance of regional coordination.
+
+**Strategic Actions for Planning:**
+
+1. **Develop Community Plans**: Work with Virginia Main Street and other partners to develop comprehensive community plans that guide economic development and revitalization.
+
+2. **Coordinate Regional Plans**: Use PDCs and other regional organizations to coordinate economic development across jurisdictions.
+
+3. **Engage Stakeholders in Planning**: Involve residents, businesses, and community organizations in planning processes to ensure that plans reflect community priorities.
+
+4. **Set Clear Goals and Milestones**: Establish clear goals, milestones, and metrics for economic development plans to enable monitoring and accountability.
+
+5. **Integrate Plans Across Sectors**: Ensure that economic development plans are integrated with housing, transportation, workforce, and other planning efforts.
+
+### Infrastructure: Priority Investments in Roads, Utilities, Broadband
+
+Infrastructure investment is essential for economic development. The Infrastructure Investment and Jobs Act (IIJA) provides significant funding for transportation, broadband, and utility infrastructure that can support regional growth. The U.S. confronts a $3.7 trillion shortfall in infrastructure investment through 2033, making strategic investment essential.
+
+The Virginia Department of Transportation has been directed to facilitate and expedite permits for economic development projects that demonstrate significant job creation, including alignment with statewide transportation plans and providing access to industrial sites. This streamlining reduces the time and cost of infrastructure development.
+
+Priority infrastructure investments in the Crooked Road corridor include:
+
+**Transportation Infrastructure:**
+- **U.S. Route 23 Safety and Capacity Improvements**: The $4.6 million safety improvement project in Wise County adding multiple turn lanes and removing median crossovers on a segment carrying approximately 13,200 vehicles per day.
+- **Business Route 23 Widening**: The $11.5 million road widening project in Wise completed in July 2026, providing two lanes in each direction on a segment carrying approximately 14,000 vehicles per day.
+- **Coalfields Expressway BUILD Grants**: The Virginia CFX Authority is pursuing $25 million for safety and capacity improvements in Pound and $5.5 million for planning a 7.4-mile corridor between Pound and Clintwood.
+- **Virginia Creeper Trail Restoration**: The U.S. Forest Service awarded a $240.5 million contract to rebuild the damaged section of the trail, with Route 58 reopened five months ahead of schedule.
+
+**Utility Infrastructure:**
+- **Woodway Water Authority Water System Upgrades**: USDA Rural Development provided a $6,856,000 loan and grant combination to replace over 100,000 linear feet of water lines, reducing losses from 75% to 13%.
+- **Natural Gas Pipeline Expansion**: Chesapeake Utilities Corporation is exploring natural gas pipeline expansion to Virginia's Eastern Shore, with Accomack County contributing $6.5 million.
+- **Broadband BEAD Program**: $545 million in federal funding to 23 internet service providers, with nearly $430 million in private matching funds, connecting 133,000 unserved locations.
+
+**Strategic Actions for Infrastructure:**
+
+1. **Prioritize Transportation Improvements**: Advocate for completion of the Coalfields Expressway and other priority highway projects. Support safety and capacity improvements on U.S. Route 23 and connecting roads.
+
+2. **Leverage USDA Rural Development Programs**: Use USDA Rural Development's Water and Environmental Programs for water and wastewater system upgrades.
+
+3. **Complete Broadband Deployment**: Ensure completion of BEAD and VATI projects to achieve universal broadband access.
+
+4. **Expand Natural Gas Access**: Support natural gas pipeline expansion to industrial and commercial customers.
+
+5. **Invest in Broadband Adoption**: Address affordability and digital literacy barriers to ensure that residents and businesses can take advantage of broadband access.
+
+### Workforce Development: Training Programs
+
+Workforce development is essential for economic growth. The Virginia Talent Accelerator Program provides fully customized recruitment and training services at no cost to qualified new and expanding companies, leveraging the Virginia Community College System to develop tailored training programs.
+
+The Virginia Jobs Investment Program (VJIP) provides grant funding to offset recruitment and training costs for new or expanding companies. The program supports workforce development by providing financial assistance for recruiting and training new employees.
+
+Registered Apprenticeship programs combine on-the-job training with related technical instruction, allowing apprentices to earn wages while learning. Virginia now supports over 15,000 active apprentices, representing a 42% increase since 2022. The HIRED Fund provides additional support to employers launching new apprenticeship programs.
+
+The GO TEC program introduces middle school students to emerging, STEM-focused career fields through hands-on learning. More than 11,000 students from 73 Virginia middle schools interact with the GO TEC curriculum annually, working through modules in Electrical Engineering, Mechanical Engineering, Manufacturing Engineering, Automation & Robotics, Welding, Precision Machining, Healthcare Technologies, IT Coding & Networking, Metrology, Precision Agriculture, and Energy.
+
+The Dickenson Center for Education and Research (DCER) small business incubator is being developed with a $42,500 VCEDA grant. The incubator will house five businesses and provide comprehensive support services, including training, workshops, and meetings. The program will include a business pitch competition component with monetary support and free incubator space for one year for the winners.
+
+**Strategic Actions for Workforce Development:**
+
+1. **Expand Talent Accelerator Program**: Leverage the Virginia Talent Accelerator Program for new and expanding businesses in the region.
+
+2. **Develop Apprenticeship Programs**: Use the HIRED Fund and Virginia Works support to launch new apprenticeship programs in manufacturing, healthcare, and technology.
+
+3. **Implement GO TEC in All Middle Schools**: Expand the GO TEC program to all middle schools in the region to build career awareness and skills.
+
+4. **Develop Incubator and Training Programs**: Complete the DCER small business incubator and develop training programs that support entrepreneurship.
+
+5. **Address Soft Skills Gaps**: Develop programs that address soft skills such as communication, problem-solving, and teamwork, which are essential for workforce success.
+
+### Business Development: Entrepreneur and Existing Business Support
+
+Business development supports entrepreneurship and existing business growth. The VCEDA Seed Capital Matching Fund supports small business startups in the region. In 2025, 26 new business start-ups were supported, projecting a total of 100 full-time and 106 part-time jobs. Grants are awarded as matching funds, requiring businesses to contribute their own capital.
+
+The VCEDA loan program provides loans for business expansion, site development, and infrastructure projects. In 2025, VCEDA approved 59 loans and grants totaling $18,759,752.62 for projects projected to help create and retain 584 full-time and 124 part-time jobs and $180,214,443 in private investment.
+
+The Virginia Small Business Development Center (SBDC) network provides business counseling and technical assistance. Mountain Empire Community College and Southwest Virginia Community College host SBDC offices that serve the region. SBDC counselors help businesses develop business plans, access financing, and improve operations.
+
+The Tobacco Region Revitalization Commission has supported business development throughout the region, awarding a total of $1.5 billion through nearly 2,500 grants over its 25-year history. The Commission's investments in sites and infrastructure—30% of total investment—have been instrumental in attracting major employers.
+
+**Strategic Actions for Business Development:**
+
+1. **Expand VCEDA Seed Capital Matching Fund**: Increase funding for the Seed Capital Matching Fund to support more small business startups.
+
+2. **Provide SBDC Counseling and Technical Assistance**: Ensure that entrepreneurs throughout the region have access to SBDC counseling and technical assistance.
+
+3. **Support Existing Business Expansion**: Help existing businesses access financing and technical assistance for expansion and modernization.
+
+4. **Develop Entrepreneurship Support Programs**: Create programs that support entrepreneurs with training, mentorship, and access to capital.
+
+5. **Leverage Tobacco Region Revitalization Commission Funding**: Access TRRC funding for business development and site preparation.
+
+### Pilot Projects: Strategy Testing and Demonstration
+
+Pilot projects test strategies on a small scale before committing significant resources to full implementation. Successful pilots can be scaled up, while unsuccessful pilots can be modified or abandoned without significant loss. Pilot projects also build momentum and demonstrate that change is possible.
+
+The Green Sprig Ag intercropping system is a pilot project funded by SARE and VCEDA grants. The project is designed to improve soil health while providing economic diversification for grain producers. Phase I demonstrated the system's viability, and Phase II will implement the system on a small scale to maximize success before expanding to other farms.
+
+The Dickenson Center for Education and Research (DCER) small business incubator is another pilot project. The $42,500 VCEDA grant is supporting development of the incubator, which will house five businesses and provide comprehensive support services. The pilot will demonstrate whether the incubator model can foster entrepreneurship in a rural community.
+
+The Community Business Launch (CBL) program in Dickenson County, which received support from VCEDA, Virginia DHCD, and CPROP, is a pilot program that provides six weeks of entrepreneurial training and a business pitch competition. The program's first cohort of businesses included 10 new businesses selected from 25 applications, demonstrating significant demand for entrepreneurship support. The program is being replicated in other communities, including Russell County and Bristol.
+
+The EO Workforce and Child Development Hub in Abingdon is a pilot project that addresses workforce barriers through integrated childcare and career development services. The $26.5 million project transformed a former Kmart into a facility with a child care center and Career Commons. The project has been recognized as a model for innovative workforce development.
+
+**Strategic Actions for Pilot Projects:**
+
+1. **Identify Promising Strategies**: Identify strategies that are likely to be effective but need testing before full implementation.
+
+2. **Secure Pilot Funding**: Access seed funding from VCEDA, SARE, and other sources to support pilot projects.
+
+3. **Design Rigorous Evaluations**: Design pilot projects with clear evaluation frameworks that assess effectiveness and inform scaling decisions.
+
+4. **Share Pilot Results**: Share results with stakeholders to build support for scaling successful pilots.
+
+5. **Scale Successful Pilots**: Expand successful pilots to additional communities and programs.
+
+### Partnerships: Public-Private Collaboration
+
+Partnerships between public, private, and nonprofit organizations are essential for economic development. The "team approach" that VCEDA emphasizes—in which "VCEDA and its economic development allies work towards a common goal for the betterment of the region"—reflects the importance of coordination and collaboration.
+
+The Tobacco Region Revitalization Commission has demonstrated the power of partnerships over its 25-year history. The Commission's investments in sites and infrastructure, workforce development, and business development have been leveraged by local and private matching funds to achieve significant results.
+
+The GO Virginia program exemplifies how public-private partnerships can leverage resources for economic development. Since its inception to June 30, 2023, GO Virginia has awarded $110.3 million in funding for 263 projects across the Commonwealth, leveraging matching funds of more than $125.5 million in additional funding from public and private sources.
+
+The EO Workforce and Child Development Hub is a model for public-private collaboration. The $26.5 million project was primarily funded by private businesses, notably Food City and Ballad Health, and demonstrates how private investment can support workforce development. The project was recognized by Jim Howard of Dudley Ventures as "a unique approach" and "a model to be replicated."
+
+**Strategic Actions for Partnerships:**
+
+1. **Formalize Partnership Agreements**: Establish formal agreements that define roles, responsibilities, and resource commitments for partnerships.
+
+2. **Create Governance Structures**: Develop governance structures that ensure accountability and effective decision-making in partnerships.
+
+3. **Leverage Private Investment**: Use public investment to leverage private investment, as demonstrated by the GO Virginia program and EO Hub project.
+
+4. **Build Cross-Sector Partnerships**: Develop partnerships across government, business, nonprofit, and education sectors.
+
+5. **Sustain Partnerships Over Time**: Ensure that partnerships are structured for long-term sustainability, with mechanisms for renewal and adaptation.
+
+---
+
+## Phase I Implementation Timeline
+
+| **Year** | **Key Activities** | **Success Metrics** |
+|----------|-------------------|---------------------|
+| Year 1 | Complete community assessments; develop regional plans; launch pilot projects; secure broadband BEAD funding | 5 communities with completed assessments; 2 regional plans in development; 3 pilot projects launched; 100% broadband funding secured |
+| Year 2 | Begin infrastructure projects; expand GO TEC; launch VCEDA programs; formalize partnerships | 3 infrastructure projects underway; GO TEC in 50% of middle schools; 20 new businesses assisted; 5 formal partnerships established |
+| Year 3 | Complete initial infrastructure projects; scale successful pilots; evaluate Phase I and plan Phase II | 2 infrastructure projects completed; 3 pilot projects scaled; Phase I evaluation completed; Phase II planning underway |
+
+---
+
+## Phase I Resource Requirements
+
+| **Category** | **Estimated Investment** | **Sources** |
+|--------------|-------------------------|-------------|
+| Infrastructure | $50-100 million | IIJA, VDOT, USDA Rural Development, BEAD |
+| Workforce Development | $5-10 million | VEDP, Virginia Works, VCEDA, private employers |
+| Business Development | $2-5 million | VCEDA, TRRC, SBA, private investment |
+| Planning and Assessment | $1-2 million | ARC, local governments, foundations |
+| Partnerships and Coordination | $1-2 million | GO Virginia, local governments, foundations |
+| **Total Phase I** | **$59-119 million** | |
+
+---
+
+## Conclusion
+
+Phase I of the implementation strategy lays the foundation for sustained economic development in the Crooked Road and U.S. Route 23 corridor. Through comprehensive assessment, strategic planning, priority infrastructure investment, workforce development, business support, pilot projects, and partnership building, communities will create the conditions for growth while demonstrating early progress that builds momentum and confidence.
+
+The success of Phase I depends on coordination across levels of government and sectors of the economy. The "team approach" that VCEDA emphasizes—in which "VCEDA and its economic development allies work towards a common goal for the betterment of the region"—is essential for achieving the scale and impact needed for regional transformation.
+
+As communities complete Phase I and prepare for Phase II, they will have built the capacity, infrastructure, and partnerships needed for sustained growth. The region's assets—its natural resources, cultural heritage, skilled workforce, and strategic location—will be leveraged for economic development. The challenges that have constrained growth—limited broadband, aging infrastructure, and workforce gaps—will be addressed. The foundations for a diversified economy will be in place, ready for the growth and transformation that Phase II and Phase III will bring.
+
+# CHAPTER FIFTEEN: IMPLEMENTATION STRATEGY (Continued)
+
+---
+
+## Phase II: Growth (Years 4-10)
+
+Phase II represents the transition from foundation-building to active growth. During this period, the investments made in Phase I begin to yield returns, and the region's economic development efforts shift from planning and preparation to execution and expansion. This phase focuses on scaling successful pilot projects, expanding manufacturing and technology sectors, developing agriculture and tourism, and building the housing needed to support a growing population. The goal of Phase II is to create a self-sustaining cycle of economic growth, where new businesses create jobs, jobs attract residents, and residents support the businesses and services that make communities thrive.
+
+The data from recent years demonstrates that Southwest Virginia is already experiencing significant economic momentum. In 2025 alone, the Virginia Coalfield Economic Development Authority (VCEDA) approved 59 loans and grants totaling $18,759,753 in new funding, projected to help create and retain 584 full-time and 124 part-time jobs and generate $180,214,443 in private investment – marking one of the highest funding years in VCEDA's history . This momentum provides the foundation for Phase II's expansion efforts.
+
+### Manufacturing Modernization: Expansion and Technology Adoption
+
+The manufacturing sector is the engine of economic growth in the Crooked Road corridor. Phase II focuses on expanding existing manufacturing facilities, attracting new manufacturers, and supporting the adoption of advanced technologies that improve productivity and competitiveness.
+
+**Current Momentum:**
+
+The region is already experiencing significant manufacturing growth. Wrap Technologies opened a $4 million manufacturing center in Norton, adding 50 jobs . Tate expanded its Russell County facility with a $6.5 million investment, adding 35 jobs . Hitachi Energy announced a $22.5 million investment to upgrade its Bland County facility and open a new 75,000-square-foot property in Atkins, expanding its dry-type transformer manufacturing . VFP Inc. announced a $35 million expansion that will add 200 employees at its Duffield campus .
+
+VCEDA Executive Director Jonathan Belcher noted that the region's manufacturing activity was a highlight of 2025, with development activity ramping up significantly after a slow start to the year . The expansion of Tate, which acquired the former 131,000-square-foot Alcoa manufacturing building in Russell County, was described as "a great project for the area" that had been completed in a short time period due to rapid growth .
+
+**Strategic Actions for Manufacturing Modernization:**
+
+1. **Support Existing Manufacturer Expansions**: The "team approach" that VCEDA emphasizes, where "VCEDA and its economic development allies work towards a common goal for the betterment of the region," is essential for supporting existing manufacturers . Continue to provide financing, workforce training, and technical assistance to companies like VFP, Tate, Hitachi Energy, and Lawrence Brothers, Inc. as they expand.
+
+2. **Attract New Manufacturing Investment**: Leverage the region's strategic location along the I-81 and I-77 corridors, available industrial sites, and workforce to attract new manufacturers. As Kendra Hayden, director of community and economic development for Smyth County, noted: "The way that we have to operate here in Southwest Virginia, especially in our area, we have to be regionalists. We have to have the whole region in mind, because economically, it impacts us all" .
+
+3. **Adopt Advanced Manufacturing Technologies**: Support manufacturers in adopting robotics, automation, and digital manufacturing technologies that improve productivity and quality. VCEDA's loan and grant programs can help manufacturers finance technology upgrades.
+
+4. **Develop Manufacturing Workforce Pipelines**: Expand apprenticeship programs and community college partnerships to ensure a skilled workforce for manufacturing employers. The Virginia Talent Accelerator Program provides customized training for new and expanding companies.
+
+5. **Develop Industrial Sites**: Continue to develop industrial sites, including the Coalfields Expressway corridor, Project Intersection in Norton, the Elam Farm site in Wise County, and Southern Gap in Buchanan County. The VCEDA 2025 Annual Report notes that identifying and obtaining further funding for the Coalfields Expressway remains one of the most pressing issues going into 2026 .
+
+**Economic Impact Projections:**
+- **2027 Target**: 500 new manufacturing jobs, $50 million investment
+- **2030 Target**: 1,000 new manufacturing jobs, $150 million investment
+
+### Agriculture Development: Value-Added Processing, Technology, Markets
+
+Agriculture has long been an important part of Southwest Virginia's economy. Phase II focuses on expanding value-added processing, adopting technology, and developing markets for regional agricultural products. VCEDA formally added agriculture as a target industry, and a study commissioned from Virginia Tech identified three key focus areas: cultivating new agricultural business opportunities, attracting large-scale agricultural businesses from outside the region, and providing assistance for existing agriculture-related businesses .
+
+**Current Momentum:**
+
+Oasthouse Ventures and its subsidiary Pluck'd began planting tomatoes at a new 65-acre greenhouse in Carroll County, creating 265 jobs . The $104.8 million project is the company's first U.S.-based controlled environment agriculture operation and demonstrates the potential for large-scale indoor agriculture in the region . The project is a result of collaboration between several localities, with Carroll County splitting tax revenue equally with Grayson County and Galax .
+
+The Appalachian Harvest Herb Hub in Duffield provides a model for value-added processing of medicinal herbs. The Hub acts as a procurement and marketing service that helps farmers combine their forest and farm products to reach more buyers, providing processing equipment and helping farmers combine products to get more marketable amounts.
+
+**Strategic Actions for Agriculture Development:**
+
+1. **Expand Value-Added Processing**: Support the development of meat processing, dairy processing, fruit and vegetable processing, and specialty food production facilities. The VCEDA-commissioned Virginia Tech study identified expanding meat processing as a key strategy for agricultural economic development .
+
+2. **Adopt Precision Agriculture Technology**: Support farmers in adopting GPS, sensors, drones, and data analytics that improve productivity and reduce input costs. The Agriculture Summit co-hosted by VCEDA and SWCC brought together leaders to discuss economic development of the agriculture industry .
+
+3. **Develop Specialty Crop Markets**: Support production and marketing of medicinal herbs, mushrooms, and other high-value crops. The study identified supporting cooperatives in niche areas such as medicinal roots and herbs as a key strategy .
+
+4. **Support Cooperatives**: Develop and support cooperatives in niche areas such as goats and sheep, medicinal roots and herbs, and grass-finished beef .
+
+5. **Reimagine Reclaimed Mine Land for Agriculture**: Conduct an asset analysis that expands and updates a map and inventory of industrial and reclaimed mine sites for agriculture-related industry .
+
+6. **Develop Agricultural Workforce**: Work with community colleges and other educational systems to develop relevant agricultural and financial management curricula .
+
+**Economic Impact Projections:**
+- **2027 Target**: 5 new value-added agricultural businesses, 100 new jobs
+- **2030 Target**: 15 new value-added agricultural businesses, 300 new jobs
+
+### Technology Development: Businesses, Innovation Centers, Workforce
+
+The technology sector offers significant opportunities for economic diversification. Phase II focuses on developing technology businesses, establishing innovation centers, and building the workforce needed for technology careers.
+
+**Current Momentum:**
+
+The Mineral Gap Data Center in Wise County, powered by solar energy, represents the first abandoned mine land in Virginia to be converted to solar. The Russell Regional Business Technology Park in Lebanon has attracted telecommunications giant CGI. The Lonesome Pine Regional Business and Technology Park in Wise County continues to attract technology tenants, with Foundever (formerly Sitel) located in the park.
+
+Southwest Virginia is targeting the data center market, with economic development officials focusing on how the region can power data centers locally and throughout the state. The U.S. Department of Energy in 2024 estimated that data centers' electricity need nationally has tripled in the past decade and projects it will double or triple again by 2028 . Duane Miller, executive director of the LENOWISCO Planning District Commission, noted: "When it comes to power, not just for data centers, but for the overwhelming demand on the grid that's going to occur with the development of technology, we've had a huge focus on that" .
+
+VCEDA continues to promote the region as Southwest Virginia's e-Region, focusing on electronic information technology, energy, education, emerging technologies, and entrepreneurship . In 2025, VCEDA participated in 31 outreach marketing events to promote the region .
+
+**Strategic Actions for Technology Development:**
+
+1. **Develop Innovation Centers and Incubators**: Establish innovation centers and incubators that provide workspace, shared services, and support for technology startups. The Dickenson Center for Education and Research is developing a small business incubator space, and the UVA Wise CO.STARTERS program provides tools, support, and connections for aspiring business owners.
+
+2. **Attract Technology Businesses**: Market the region's broadband infrastructure, available sites, and workforce to technology businesses. The Virginia Talent Accelerator Program can provide customized training for new technology companies.
+
+3. **Support Data Center Development**: Continue to pursue data center projects that leverage the region's available land, energy resources, and strategic location. Natural gas remains the most significant source of energy today, but the region is also looking to support the development of renewable energy sources .
+
+4. **Develop Technology Workforce**: Expand STEM education and technology training programs at community colleges and universities. The GO TEC program introduces middle school students to technology career fields, and community colleges offer training in information technology, cybersecurity, and data analytics.
+
+5. **Support Renewable Energy Development**: Help solar developers find locations for solar farms and navigate the development process. VCEDA notes that "we have a lot of reclaimed surface mine land, which is relatively flat," making it ideal for solar development .
+
+**Economic Impact Projections:**
+- **2027 Target**: 10 new technology businesses, 100 new jobs
+- **2030 Target**: 25 new technology businesses, 300 new jobs
+
+### Tourism Development: Heritage, Recreation, Cultural Events
+
+Tourism is a growing sector in the Crooked Road corridor, leveraging the region's natural beauty, musical heritage, and outdoor recreation opportunities. Phase II focuses on developing heritage tourism, outdoor recreation, and cultural events that attract visitors and support local businesses.
+
+**Current Momentum:**
+
+The Virginia Creeper Trail restoration is ongoing, with a $240.5 million contract awarded to rebuild the damaged section of the trail . The Bristol Rhythm & Roots Reunion music festival draws approximately 50,000 visitors to downtown Bristol. The Crooked Road generates approximately $6.4 million in annual spending and nearly $9.2 million in total economic impact.
+
+The Big Cherry Reservoir Recreation Project in Big Stone Gap received $2 million from Virginia Energy's AMLER grant program to develop rental cabins and create additional fishing opportunities. The High Knob Destination Center project will provide maps and exhibits highlighting outdoor recreation opportunities.
+
+**Strategic Actions for Tourism Development:**
+
+1. **Complete Trail Restoration and Expansion**: Support completion of the Virginia Creeper Trail restoration and development of new trails, including the Mendota Trail connection to downtown Bristol.
+
+2. **Develop Heritage Tourism**: Expand programming and facilities at the Carter Family Fold, Ralph Stanley Museum, Birthplace of Country Music Museum, and other heritage sites. Connect to the Crooked Road heritage music trail.
+
+3. **Develop Outdoor Recreation Infrastructure**: Develop trail networks, parks, and recreational facilities that attract visitors and support local businesses. The Virginia Department of Conservation and Recreation provides resources and support for recreation infrastructure development.
+
+4. **Expand Cultural Events and Festivals**: Support the Bristol Rhythm & Roots Reunion, Galax Old Fiddlers' Convention, and other cultural events that attract visitors. Develop new events that leverage the region's heritage and natural assets.
+
+5. **Develop Visitor Services**: Support development of lodging, dining, and retail businesses that serve visitors.
+
+**Economic Impact Projections:**
+- **2027 Target**: 100,000 additional visitors annually, $10 million tourism spending
+- **2030 Target**: 250,000 additional visitors annually, $25 million tourism spending
+
+### Music and Arts Development: Studios, Manufacturing, Performances
+
+The Crooked Road's musical heritage is one of its most distinctive assets. Phase II focuses on expanding music and arts development, including recording studios, instrument manufacturing, and performances that support the creative economy.
+
+**Current Momentum:**
+
+The Crooked Road Artist-in-Residence program provides a stipend and support to local musicians. The Abingdon Music Experience project will include a CNC-equipped workshop for instrument makers. The Birthplace of Country Music Museum in Bristol anchors the city's cultural identity.
+
+**Strategic Actions for Music and Arts Development:**
+
+1. **Expand Recording Studio Infrastructure**: Support development of digital recording studios that enable musicians to produce professional-quality recordings.
+
+2. **Develop Instrument Manufacturing**: Support instrument manufacturing, including handmade instruments and CNC-assisted production. The Abingdon Music Experience project provides a model for instrument manufacturing development.
+
+3. **Expand Performance Venues**: Support development and improvement of performance venues that host music and arts events.
+
+4. **Connect to the Crooked Road**: Strengthen connections between local music and arts initiatives and the Crooked Road heritage music trail.
+
+5. **Develop Music and Arts Workforce**: Support music and arts education programs that prepare students for careers in the creative economy.
+
+**Economic Impact Projections:**
+- **2027 Target**: 5 new music/arts businesses, 25 new jobs
+- **2030 Target**: 15 new music/arts businesses, 75 new jobs
+
+### Housing Development: Workforce, Senior, Market-Rate Housing
+
+Housing development is essential for population growth and economic development. Phase II focuses on developing workforce housing, senior housing, and market-rate housing that supports a growing population and workforce.
+
+**Current Momentum:**
+
+The modular housing production facility in Russell County, supported by a $3 million VCEDA loan, is expected to create 260 housing units in its first year of operation . The project is part of a partnership with the Russell County Industrial Development Authority, the Wellspring Foundation of Southwest Virginia, and its nonprofit subsidiary, Appalachian Highlands Housing Partners . As VCEDA noted, the loan was approved because of the "need for more housing in the region" .
+
+The Workforce Housing Investment Program, established in November 2024, provides loans, loan subsidies, and grants up to $3 million to localities and nonprofits to develop housing for workers earning 80-120% of area median income. The program has already funded projects across the state, with the potential to catalyze $750 million and build 5,000 units of workforce housing.
+
+The Southern Gap development in Buchanan County is also focusing on housing. A $100,000 housing infrastructure grant will extend and expand Ruffed Grouse Road and install water, sewer, natural gas, and internet for a proposed housing development . As Buchanan County IDA Executive Director Matt Fields noted, the IDA's overall strategy is to develop Southern Gap as "a regional hub that will offer a diversity of employment opportunities, retail and restaurant options, a regional airport and affordable housing in an area that is removed from the floodplain" .
+
+**Strategic Actions for Housing Development:**
+
+1. **Scale Modular Housing Production**: Support the modular housing production facility in Russell County and expand production to meet regional demand.
+
+2. **Utilize Workforce Housing Investment Program**: Apply for Workforce Housing Investment Program funding to support workforce housing development.
+
+3. **Develop Senior Housing**: Support development of independent living, assisted living, and memory care facilities that serve the region's aging population.
+
+4. **Support Downtown Residential Development**: Encourage conversion of historic buildings to residential uses, supporting downtown revitalization.
+
+5. **Address Housing Supply Constraints**: Work with developers to increase housing supply in communities with limited inventory.
+
+**Economic Impact Projections:**
+- **2027 Target**: 500 new housing units
+- **2030 Target**: 1,500 new housing units
+
+---
+
+## Phase II Implementation Timeline
+
+| **Year** | **Key Activities** | **Success Metrics** |
+|----------|-------------------|---------------------|
+| Years 4-5 | Expand manufacturing facilities; scale modular housing production; develop technology businesses | 250 new manufacturing jobs; 500 housing units; 5 new tech businesses |
+| Years 6-7 | Expand agriculture processing; develop tourism infrastructure; complete trail restoration | 5 new ag businesses; 100,000 additional visitors; trail restoration complete |
+| Years 8-10 | Scale all sectors; develop data center projects; build innovation centers | 1,000 new manufacturing jobs; 1,500 housing units; 25 new tech businesses |
+
+---
+
+## Phase II Resource Requirements
+
+| **Category** | **Estimated Investment** | **Sources** |
+|--------------|-------------------------|-------------|
+| Manufacturing | $50-100 million | VCEDA loans, private investment, VEDP |
+| Agriculture | $25-50 million | USDA, VCEDA, private investment |
+| Technology | $25-50 million | VCEDA, VEDP, private investment |
+| Tourism | $10-25 million | ARC, Virginia Tourism, VCEDA |
+| Housing | $50-100 million | Workforce Housing Investment Program, private investment |
+| **Total Phase II** | **$160-325 million** | |
+
+---
+
+## Conclusion
+
+Phase II of the implementation strategy marks the transition from foundation-building to active growth. The investments made in Phase I—in infrastructure, workforce development, and partnerships—now yield returns as the region's economy expands and diversifies.
+
+The successes of recent years demonstrate that the Crooked Road corridor is on the right track. VCEDA's 2025 achievements—$18.7 million in new funding, 584 full-time jobs, and $180 million in private investment—are evidence that the "team approach" is working . Major manufacturing projects, indoor agriculture investments, and housing developments are creating jobs and building a more diversified economy.
+
+As Phase II unfolds, the region must continue to work together across jurisdictional boundaries. As Kendra Hayden noted: "The way that we have to operate here in Southwest Virginia, especially in our area, we have to be regionalists. We have to have the whole region in mind, because economically, it impacts us all" . This regional cooperation, combined with strategic investment and community engagement, will ensure that the Crooked Road corridor continues to grow and prosper.
+
+# CHAPTER FIFTEEN: IMPLEMENTATION STRATEGY (Continued)
+
+---
+
+## Phase III: Transformation (Years 10-20)
+
+Phase III represents the culmination of the region's economic development efforts—the transformation of the Crooked Road and U.S. Route 23 corridor into a diversified, innovative, and resilient economy. During this period, the region will move beyond simply attracting new businesses to creating an integrated ecosystem where businesses, education, and research institutions work together to drive innovation and growth. The goal of Phase III is to establish the region as a national model for rural economic transformation, demonstrating that communities with strong assets, strategic planning, and collaborative partnerships can thrive in the twenty-first-century economy.
+
+The foundation laid in Phases I and II—the infrastructure investments, workforce development programs, business expansions, and housing developments—will enable Phase III's more ambitious initiatives. By Year 10, the region will have developed a critical mass of businesses, a skilled workforce, and the institutional capacity needed for sustained innovation and growth.
+
+---
+
+### Regional Innovation Districts: Integrated Business-Education-Research Areas
+
+Regional Innovation Districts represent the most ambitious economic development strategy of Phase III. These districts are geographic areas where businesses, educational institutions, and research organizations are co-located to foster collaboration, innovation, and commercialization . Innovation districts create an ecosystem where ideas can move quickly from research to development to market, generating jobs, investment, and economic growth .
+
+The Brookings Institution has documented the success of innovation districts in cities and regions across the United States . These districts are characterized by a concentration of anchor institutions, a dense network of small and large firms, and the presence of support organizations that facilitate collaboration . For the Crooked Road corridor, innovation districts could build on the region's existing assets: the University of Virginia's College at Wise, community colleges, technology parks, and available industrial sites .
+
+The Mineral Gap Data Center in Wise County and the Russell Regional Business Technology Park in Lebanon provide early examples of how the region can attract technology and research-intensive businesses . These facilities demonstrate that the region can compete for businesses that require advanced infrastructure and skilled workers . As the region develops additional innovation capacity, it can attract more research-intensive businesses and support the commercialization of new technologies .
+
+**Strategic Actions for Innovation Districts:**
+
+1. **Designate Innovation District Zones**: Identify geographic areas where innovation districts will be developed. These zones should be located near anchor institutions, transportation infrastructure, and available land. The Lonesome Pine Regional Business and Technology Park and the Russell Regional Business Technology Park provide potential anchors for innovation district development .
+
+2. **Develop Innovation Infrastructure**: Invest in the infrastructure needed to support innovation districts, including high-speed broadband, research laboratories, and shared manufacturing facilities. The AM2 initiative, which is creating innovation studios where companies can access tools, expertise, and facilities to design, refine, and test products, provides a model for innovation infrastructure .
+
+3. **Foster Collaboration**: Create mechanisms that encourage collaboration between businesses, educational institutions, and research organizations. The GO Virginia program's focus on regional collaboration provides a model for how different entities can work together toward common goals .
+
+4. **Support Technology Commercialization**: Develop programs that support the commercialization of new technologies, including technology transfer offices, incubators, and accelerators. The Virginia Innovation Partnership Corporation provides resources for technology commercialization that can be leveraged for the region .
+
+5. **Attract Research-Intensive Businesses**: Market innovation districts to research-intensive businesses that can benefit from proximity to anchor institutions and other businesses. The region's available land, broadband infrastructure, and workforce make it competitive for businesses seeking to establish research and development facilities .
+
+**Economic Impact Projections:**
+- **Year 10 Target**: 1 innovation district established with 5 anchor institutions
+- **Year 15 Target**: 2 innovation districts with 50 businesses and 1,000 jobs
+- **Investment Required**: $100-200 million in infrastructure and facilities
+
+---
+
+### Export Industries: Businesses Serving External Markets
+
+Export industries are businesses that sell goods and services outside the region, bringing in new money that circulates through the local economy . Export industries create jobs, generate tax revenue, and support local businesses that serve the export sector's employees . For the Crooked Road corridor, developing and expanding export industries is essential for sustainable economic growth .
+
+The region already has several export industries that can be expanded and diversified. Manufacturing, particularly in metal fabrication, telecommunications equipment, and utility structures, serves markets throughout the eastern United States and internationally . Forestry products, including hardwood lumber and specialty wood products, are exported to national and international markets . Specialized agricultural products, including medicinal herbs and specialty foods, have growing export potential .
+
+The Virginia Economic Development Partnership provides export assistance through its international trade division, helping businesses identify market opportunities, navigate regulations, and develop export strategies . The U.S. Department of Commerce's International Trade Administration provides similar services through its network of export assistance centers . The region's businesses can leverage these resources to develop and expand export markets .
+
+**Strategic Actions for Export Industries:**
+
+1. **Identify Export Opportunities**: Work with businesses to identify export opportunities in national and international markets. The Virginia Economic Development Partnership's international trade division can help businesses identify market opportunities and develop export strategies .
+
+2. **Develop Export Infrastructure**: Invest in the infrastructure needed to support exports, including transportation, logistics, and trade support services. The region's rail and highway infrastructure provides the foundation for export logistics .
+
+3. **Support Export Business Development**: Provide financing, technical assistance, and market intelligence to businesses seeking to develop export markets. VCEDA's loan and grant programs can support export business development .
+
+4. **Promote Regional Products**: Develop branding and marketing strategies that promote regional products in national and international markets. The Crooked Road's musical heritage and Appalachian identity can be leveraged to differentiate regional products .
+
+5. **Develop Export Clusters**: Support the development of export clusters where businesses in related industries work together to develop export markets. The AM2 initiative and other advanced manufacturing programs can support export cluster development .
+
+**Economic Impact Projections:**
+- **Year 10 Target**: 25 businesses exporting products/services
+- **Year 15 Target**: 50 businesses exporting products/services, $100 million annual exports
+- **Investment Required**: $20-50 million in export infrastructure and business support
+
+---
+
+### International Tourism: Global Visitor Attraction
+
+International tourism is a growing opportunity for the Crooked Road corridor. The region's musical heritage, natural beauty, and cultural authenticity appeal to international visitors seeking authentic American experiences . The Crooked Road attracts visitors from as far away as the United Kingdom, Brazil, Australia, and Japan .
+
+The Bristol Rhythm & Roots Reunion, the Galax Old Fiddlers' Convention, and other cultural events have international appeal . The Virginia Creeper Trail and other outdoor recreation assets attract international visitors seeking outdoor experiences . The region's proximity to the Blue Ridge Parkway and the Appalachian Trail provides additional visitor attraction .
+
+The Virginia Tourism Corporation provides marketing support for international tourism, and the U.S. Department of Commerce's International Trade Administration provides export assistance for tourism-related businesses . The region can leverage these resources to develop and expand international tourism .
+
+**Strategic Actions for International Tourism:**
+
+1. **Develop International Tourism Marketing**: Develop marketing campaigns that target international visitors, highlighting the region's musical heritage, natural beauty, and cultural authenticity.
+
+2. **Improve Visitor Infrastructure**: Invest in infrastructure that serves international visitors, including airports, lodging, dining, and visitor services. Lonesome Pine Regional Airport and other airports provide access for international visitors .
+
+3. **Develop Cultural Experiences**: Develop cultural experiences that appeal to international visitors, including music festivals, heritage tours, and craft demonstrations.
+
+4. **Build International Partnerships**: Develop partnerships with international tourism organizations, travel agencies, and media outlets to promote the region.
+
+5. **Support Tourism Businesses**: Provide financing, technical assistance, and training to tourism businesses seeking to serve international visitors. VCEDA's loan and grant programs can support tourism business development .
+
+**Economic Impact Projections:**
+- **Year 10 Target**: 10,000 international visitors annually, $10 million tourism spending
+- **Year 15 Target**: 25,000 international visitors annually, $25 million tourism spending
+- **Investment Required**: $10-25 million in visitor infrastructure and marketing
+
+---
+
+### Research Partnerships: University and Institution Connections
+
+Research partnerships between universities, research institutions, and businesses support technology development and commercialization . These partnerships provide businesses with access to research expertise, facilities, and funding, while providing researchers with real-world problems to solve and pathways to commercialization .
+
+The University of Virginia's College at Wise, Virginia Tech, and community colleges throughout the region provide the foundation for research partnerships . The AM2 initiative, which connects Virginia Tech's manufacturing expertise with regional industry partners, demonstrates the potential for research partnerships to support economic development . The partnership between the Virginia Innovation Partnership Corporation (VIPC) and Virginia's six R1 research universities in the Lab-to-Launch initiative provides another model for research commercialization .
+
+The Energy DELTA Lab project in Wise County represents a significant research partnership opportunity. The project is designed to transform approximately 65,000 acres of mine lands into test sites for energy innovation, including solar, wind, pumped hydro, small nuclear, and other clean energy technologies . The project is coordinating site development with Wise County officials and the landowner, Energy Transfer, and has the backing of Governor Glenn Youngkin .
+
+**Strategic Actions for Research Partnerships:**
+
+1. **Develop Research Partnership Infrastructure**: Invest in the infrastructure needed to support research partnerships, including research laboratories, shared facilities, and technology transfer offices. The AM2 initiative's innovation studios provide a model for research partnership infrastructure .
+
+2. **Support Technology Commercialization**: Develop programs that support the commercialization of research, including technology transfer, incubators, and accelerators. The Lab-to-Launch initiative provides a model for technology commercialization .
+
+3. **Connect Businesses with Research Institutions**: Create mechanisms that connect businesses with research institutions, including industry liaison offices, research consortia, and collaborative research projects.
+
+4. **Leverage Federal Research Funding**: Help businesses and research institutions access federal research funding, including funding from the National Science Foundation, the National Institutes of Health, and the Department of Energy.
+
+5. **Develop Research Talent**: Support research talent development through graduate programs, postdoctoral fellowships, and research training programs. The region's universities provide the foundation for research talent development .
+
+**Economic Impact Projections:**
+- **Year 10 Target**: 10 research partnerships established
+- **Year 15 Target**: 25 research partnerships, 100 research jobs
+- **Investment Required**: $20-50 million in research infrastructure and programs
+
+---
+
+### Advanced Industries: Manufacturing, Technology, Research
+
+Advanced industries are those that invest heavily in research and development and employ high-skilled workers . These industries generate high-wage jobs, support innovation, and contribute to economic growth . For the Crooked Road corridor, developing advanced industries is essential for long-term economic prosperity .
+
+The region has the foundation for advanced industry development. The AM2 initiative is focused on additive manufacturing and advanced materials, industries with significant growth potential . The Energy DELTA Lab project is focused on advanced energy technologies, including solar, wind, and small nuclear . The region's existing manufacturing capabilities, workforce, and research institutions provide the foundation for advanced industry development .
+
+The Virginia Innovation Partnership Corporation supports advanced industry development through its programs and partnerships . The Virginia Economic Development Partnership provides support for advanced industry attraction and expansion . The region can leverage these resources to develop advanced industries .
+
+**Strategic Actions for Advanced Industries:**
+
+1. **Identify Advanced Industry Opportunities**: Identify advanced industry opportunities that align with the region's assets, including additive manufacturing, advanced materials, clean energy, and technology.
+
+2. **Develop Advanced Industry Infrastructure**: Invest in the infrastructure needed to support advanced industries, including research laboratories, shared manufacturing facilities, and broadband infrastructure. The AM2 initiative's innovation studios provide a model for advanced industry infrastructure .
+
+3. **Support Advanced Industry Workforce Development**: Develop workforce training programs that prepare workers for advanced industry careers. The Virginia Talent Accelerator Program provides customized training for advanced industry employers .
+
+4. **Attract Advanced Industry Businesses**: Market the region to advanced industry businesses that can benefit from the region's assets, including its available land, skilled workforce, and research institutions.
+
+5. **Support Advanced Industry Research**: Develop research partnerships that support advanced industry innovation and commercialization. The Lab-to-Launch initiative provides a model for advanced industry research partnerships .
+
+**Economic Impact Projections:**
+- **Year 10 Target**: 5 advanced industry businesses, 100 jobs
+- **Year 15 Target**: 15 advanced industry businesses, 500 jobs
+- **Investment Required**: $50-100 million in infrastructure and programs
+
+---
+
+### Sustainability: Economic Growth with Resource Protection
+
+Sustainability is an essential principle for long-term economic development. Economic growth must be balanced with protection of the region's natural resources—its forests, agricultural land, water, and wildlife—to ensure that future generations can benefit from the region's assets .
+
+The region's forests are among its most significant assets. Sustainable forest management can generate continuous economic returns while protecting wildlife habitat, watersheds, and scenic beauty . The Virginia Department of Forestry provides technical assistance and cost-sharing for sustainable forest management . The USDA Forest Service provides technical assistance through its state and private forestry programs .
+
+The region's agricultural land supports farming operations that provide food, employment, and open space. Conservation practices, including no-till farming, cover cropping, and rotational grazing, can protect soil, water, and wildlife while improving farm productivity . The USDA Natural Resources Conservation Service provides technical assistance and cost-sharing for conservation practices .
+
+The region's rivers and streams support recreation, wildlife, and water supply . The Clinch River, in particular, is nationally significant for its freshwater mussel populations, and the Eastern Region Initiative on the Clinch (ERIC) collaborates on conservation and monitoring efforts . The Virginia Department of Environmental Quality provides resources and support for water quality protection .
+
+Mine reclamation is an opportunity to restore land that has been impacted by mining. The Abandoned Mine Land Economic Revitalization (AMLER) program provides funding for reclamation projects that support economic development . The Energy DELTA Lab project is transforming mine lands into test sites for energy innovation .
+
+**Strategic Actions for Sustainability:**
+
+1. **Adopt Sustainable Forest Management**: Support sustainable forest management practices, including replanting, thinning, and pest management. The Virginia Department of Forestry provides technical assistance and cost-sharing for sustainable forest management .
+
+2. **Promote Conservation Agriculture**: Support conservation practices that protect soil, water, and wildlife while improving farm productivity. The USDA Natural Resources Conservation Service provides technical assistance and cost-sharing for conservation practices .
+
+3. **Protect Water Resources**: Support water quality protection through conservation practices, wastewater treatment improvements, and land use planning. The Virginia Department of Environmental Quality provides resources and support for water quality protection .
+
+4. **Support Mine Reclamation**: Leverage AMLER funding for mine reclamation projects that support economic development, including recreation, renewable energy, and industrial development. The Energy DELTA Lab project provides a model for mine reclamation and sustainable development .
+
+5. **Integrate Sustainability into Economic Development**: Ensure that sustainability principles are integrated into economic development planning and decision-making, recognizing that long-term prosperity depends on protecting the region's natural resources .
+
+**Economic Impact Projections:**
+- **Year 10 Target**: 25% of farms using conservation practices; 5,000 acres of sustainable forest management
+- **Year 15 Target**: 50% of farms using conservation practices; 10,000 acres of sustainable forest management
+- **Investment Required**: $20-50 million in conservation programs and infrastructure
+
+---
+
+## Phase III Implementation Timeline
+
+| **Year** | **Key Activities** | **Success Metrics** |
+|----------|-------------------|---------------------|
+| Years 10-12 | Establish innovation districts; develop research partnerships; launch international tourism marketing | 1 innovation district; 10 research partnerships; 5,000 international visitors |
+| Years 13-16 | Scale advanced industries; expand export industries; develop sustainability programs | 10 advanced industry businesses; 25 export businesses; 10,000 acres sustainable forest management |
+| Years 17-20 | Fully implement innovation ecosystem; achieve export and tourism targets; demonstrate sustainability | 2 innovation districts; 50 export businesses; 25,000 international visitors |
+
+---
+
+## Phase III Resource Requirements
+
+| **Category** | **Estimated Investment** | **Sources** |
+|--------------|-------------------------|-------------|
+| Innovation Districts | $100-200 million | Federal grants, state investment, private investment |
+| Export Industries | $20-50 million | VEDP, U.S. Department of Commerce, private investment |
+| International Tourism | $10-25 million | Virginia Tourism, federal grants, private investment |
+| Research Partnerships | $20-50 million | NSF, NIH, DOE, state research funding, private investment |
+| Advanced Industries | $50-100 million | VEDP, VCEDA, private investment |
+| Sustainability | $20-50 million | USDA, EPA, AMLER, private investment |
+| **Total Phase III** | **$220-475 million** | |
+
+---
+
+## Conclusion
+
+Phase III of the implementation strategy represents the culmination of the region's economic development efforts—the transformation of the Crooked Road and U.S. Route 23 corridor into a diversified, innovative, and resilient economy. During this period, the region will move beyond simply attracting new businesses to creating an integrated ecosystem where businesses, education, and research institutions work together to drive innovation and growth.
+
+The investments made in Phases I and II—in infrastructure, workforce development, business development, and housing—will enable Phase III's more ambitious initiatives. The regional innovation districts will create ecosystems where ideas can move quickly from research to development to market, generating jobs, investment, and economic growth . Export industries will bring new money into the region, supporting local businesses and creating jobs . International tourism will attract visitors from around the world, generating economic activity and cultural exchange . Research partnerships will connect businesses with research institutions, supporting innovation and commercialization . Advanced industries will create high-wage jobs and drive economic growth . Sustainability will ensure that economic growth is balanced with protection of the region's natural resources .
+
+The vision for Phase III is bold but achievable. The region has the assets, the leadership, and the partnerships needed for transformation. The Crooked Road corridor can become a national model for rural economic transformation, demonstrating that communities with strong assets, strategic planning, and collaborative partnerships can thrive in the twenty-first-century economy.
+
+---
+
+# CONCLUSION: A RENEWED REGION
+
+---
+
+## The Region's Assets and Opportunities
+
+The Crooked Road and U.S. Route 23 corridor stands at a pivotal moment in its history. For generations, this region powered America's industrial rise through coal mining, timber production, and manufacturing. The skills, infrastructure, and work ethic developed through these industries remain valuable assets that can support a new era of economic prosperity. Today, the region possesses a remarkable combination of assets that position it for renewal: abundant natural resources, a strategic location, a skilled workforce, a rich cultural heritage, and communities that have demonstrated remarkable resilience in the face of economic challenges.
+
+The region's forests are among the most productive in the eastern United States, containing valuable hardwoods that are increasingly scarce elsewhere. These forests can provide sustainable timber for generations while supporting recreation, wildlife habitat, carbon sequestration, and ecosystem services. The agricultural land that has sustained families for generations can support a modern food industry that processes and markets products throughout the eastern United States. The rivers and streams that flow through the region provide water for agriculture, recreation, and wildlife, supporting both economic activity and quality of life.
+
+The region's location along the U.S. Route 23 corridor, within a day's drive of major population centers including the Washington-Baltimore corridor, Charlotte, and Atlanta, provides access to markets and opportunities. The highway and rail infrastructure that once served the coal industry can support new industries. The airports that serve the region connect it to national and international transportation networks.
+
+The region's workforce is skilled, experienced, and dedicated. Workers who have spent decades in manufacturing, mining, and agriculture possess practical knowledge, mechanical ability, and a strong work ethic that employers value. These skills can be adapted to modern manufacturing, construction, and technology industries. The region's educational institutions—the University of Virginia's College at Wise, community colleges, and public schools—provide the foundation for workforce development and innovation.
+
+The region's cultural heritage is unique and authentic. The music of the Crooked Road has inspired artists around the world, and the region's crafts, traditions, and stories are increasingly valued as authentic expressions of American identity. This cultural heritage can support tourism, creative industries, and branding that differentiates regional products in national and international markets.
+
+The opportunities for renewal are substantial. Manufacturing modernization can create jobs and improve competitiveness. Agricultural development can support farm income and rural communities. Technology development can create high-wage employment and diversify the economy. Tourism and recreation can attract visitors and support local businesses. Music and arts development can build on the region's unique heritage. Housing development can attract and retain residents. Infrastructure modernization can support economic growth and quality of life.
+
+---
+
+## The Path Forward: Investment, Cooperation, Commitment
+
+The path forward for the Crooked Road and U.S. Route 23 corridor requires strategic investment, regional cooperation, and sustained commitment. The vision outlined in this book is ambitious, but it is achievable with the right resources, partnerships, and determination.
+
+Investment is essential for economic development. The region must invest in infrastructure—roads, utilities, broadband—that supports business development and quality of life. It must invest in workforce development—training programs, apprenticeships, education—that prepares workers for available jobs. It must invest in business development—financing, technical assistance, market development—that supports entrepreneurship and business growth. It must invest in housing development that attracts and retains residents. It must invest in innovation districts, research partnerships, and advanced industries that drive economic growth.
+
+Cooperation is essential for success. The challenges facing the region are too large for any single community or organization to address alone. The region's communities share common challenges and opportunities, and they share a common fate—if the region as a whole fails, every community suffers; if the region succeeds, every community benefits. Cooperation means working together across jurisdictions, sectors, and organizations. It means sharing information, resources, and strategies. It means recognizing that a rising tide lifts all boats.
+
+Commitment is essential for sustainability. Economic development is a long-term endeavor that requires sustained effort over decades. The region's decline has been decades in the making, and its renewal will take decades to achieve. There will be no quick fixes, no overnight successes. The work will be difficult, the progress will be slow, and the results will be measured in years and decades. Commitment means maintaining focus and resources through inevitable disappointments and setbacks. It means continuing to invest in education and infrastructure even when the immediate returns are invisible. It means keeping faith in the region's future even when the present seems bleak.
+
+---
+
+## The Role of People: Families, Workers, Musicians, Entrepreneurs
+
+Economic development is ultimately about people—the families who have maintained their farms for generations, the workers who have kept factories operating, the musicians who have preserved mountain traditions, the entrepreneurs who are starting new businesses, and the young people who are choosing to build their futures at home.
+
+The families of the Crooked Road corridor have sustained the region through difficult times. They have maintained their farms, supported their communities, and passed on traditions that define Appalachian identity. Their commitment to place and their determination to build a better future for their children are the foundation on which economic renewal must be built.
+
+The workers of the region possess skills that are valuable and increasingly rare. Their mechanical aptitude, safety awareness, and strong work ethic are assets that can support modern manufacturing, construction, and technology industries. Their experience in mining, manufacturing, and agriculture provides practical knowledge that cannot be easily replicated. Their willingness to work hard and learn new skills makes them valuable employees.
+
+The musicians of the region have preserved and transmitted a cultural heritage that is unique and valuable. The music of the Crooked Road has inspired artists around the world and attracted visitors to the region. The musicians who perform at the Carter Family Fold, the Ralph Stanley Museum, and the Floyd Country Store are not only preserving tradition—they are creating economic value that supports their communities.
+
+The entrepreneurs of the region are creating new businesses that diversify the economy and create jobs. They are responding to market opportunities, solving problems, and building enterprises that contribute to community vitality. Their creativity and determination are essential for economic renewal.
+
+The young people of the region are the future. They are choosing to stay or return to their hometowns, bringing education, skills, and energy to their communities. They are starting businesses, creating jobs, and building the future they want to see. Their commitment to place is a source of hope and a foundation for renewal.
+
+---
+
+## Creating Opportunities for All
+
+Economic development must create opportunities for all residents of the Crooked Road corridor. The region's prosperity must be shared broadly, not concentrated in a few communities or sectors. Creating opportunities for all requires attention to equity, inclusion, and access.
+
+Opportunities must be created for workers at all skill levels. The region must develop jobs that provide a living wage for workers with varying levels of education and experience. It must provide training programs that enable workers to advance their careers. It must support workers who are transitioning from declining industries to new opportunities.
+
+Opportunities must be created for entrepreneurs and small businesses. The region must provide access to capital, technical assistance, and market connections that enable entrepreneurs to start and grow businesses. It must support small businesses that are the backbone of local economies.
+
+Opportunities must be created for communities throughout the region. Economic development must benefit all communities, not just the largest or most prosperous. It must support rural communities that have been left behind by economic change. It must invest in infrastructure and services that enable communities to thrive.
+
+Opportunities must be created for young people. The region must provide education and training that prepares young people for careers. It must create jobs that provide a living wage and opportunities for advancement. It must build communities that are attractive places for young people to live and raise families.
+
+Opportunities must be created for all residents regardless of race, ethnicity, gender, or background. The region must welcome diversity and ensure that all residents have access to economic opportunity. It must address barriers that have limited opportunities for some residents and ensure that the benefits of economic development are shared broadly.
+
+---
+
+## A Commitment to the Future
+
+The future of the Crooked Road and U.S. Route 23 corridor depends on a commitment to the next generation. The decisions made today will shape the opportunities available to the children and grandchildren of the region's residents. The investments made today will determine whether young people can build meaningful lives in their hometowns or whether they must leave to find opportunity elsewhere.
+
+A commitment to the future requires investment in education. The region must ensure that all children have access to quality education from early childhood through higher education. It must support career and technical education that prepares students for available jobs. It must provide scholarships and financial aid that enable students to pursue higher education without incurring debilitating debt.
+
+A commitment to the future requires investment in infrastructure. The region must maintain and modernize its roads, utilities, and broadband networks. It must build the infrastructure that supports economic development and quality of life. It must ensure that infrastructure serves all communities, not just those that are most prosperous.
+
+A commitment to the future requires investment in the environment. The region must protect its natural resources—its forests, agricultural land, water, and wildlife—for future generations. It must manage resources sustainably, ensuring that they can support economic activity and quality of life for decades to come.
+
+A commitment to the future requires investment in community. The region must support the organizations and institutions that build community—schools, churches, nonprofit organizations, and local governments. It must create opportunities for residents to connect with each other and work together toward common goals.
+
+---
+
+## The Crooked Road as a Symbol of Renewal
+
+The Crooked Road has long been a symbol of Appalachian culture—a winding path through mountains and valleys that connects communities and preserves traditions. The road can also become a symbol of renewal—a path that leads to prosperity and opportunity for the people who call this region home.
+
+The name itself evokes the challenges of the region's geography and history—a road that is not straight but winding, not easy but navigable. The Crooked Road represents the resilience and determination of the people who have traveled it, the communities that have grown along it, and the culture that has flourished despite the challenges.
+
+The Crooked Road can represent a future in which the region's heritage is a source of strength, not a limitation. It can represent a future in which the region's musical traditions attract visitors from around the world, its natural beauty supports outdoor recreation and tourism, its skilled workforce attracts businesses and investment, and its communities are places where people want to live, work, and raise families.
+
+The Crooked Road can represent a future in which the region's economy is diversified, resilient, and sustainable—an economy that honors the past while creating opportunity for the future.
+
+---
+
+## The Future Being Written Today
+
+The future of the Crooked Road and U.S. Route 23 corridor is being written today. Each business that opens, each job that is created, each student who stays, and each family that chooses to make their home here contributes to that future. Together, these small acts of commitment create the foundation for a renewed region.
+
+The decisions made by community leaders, business owners, and residents will shape the region for decades to come. Investments in infrastructure, education, and business development will determine whether the region can attract and retain residents and businesses. Partnerships across sectors and jurisdictions will determine whether the region can achieve the scale and coordination needed for transformation. Commitment to the next generation will determine whether young people can build meaningful lives in their hometowns.
+
+The future is not predetermined. It will be shaped by the choices made today. The region has the assets, the leadership, and the partnerships needed for renewal. The path forward requires investment, cooperation, and commitment. The region's future will be determined by whether its residents and leaders are willing to make those investments, build those partnerships, and sustain that commitment.
+
+---
+
+## Hope and Determination
+
+The Crooked Road and U.S. Route 23 corridor faces significant challenges. Decades of population decline, economic disinvestment, and social dislocation have left communities struggling to maintain their identity, their services, and their hope for the future. The economic foundations that sustained communities for generations have eroded, and the path forward is not clear.
+
+Yet even in the face of these challenges, hope persists. Communities throughout the region are demonstrating resilience, creativity, and determination. They are preserving their cultural heritage, supporting one another through difficult times, and working to build a better future. The stories of renewal in Hazard, Kentucky; the Coalfield Development Corporation's workforce model; the success of the Crooked Road; and the recovery of Damascus following Hurricane Helene demonstrate that renewal is possible.
+
+Hope is not simply a feeling—it is a choice to believe that the future can be different from the past and a commitment to act on that belief. The people of the Crooked Road and U.S. Route 23 corridor are making that choice every day. They are starting businesses, creating jobs, and building the future they want to see. They are preserving their heritage, supporting their communities, and ensuring that the next generation has opportunities to build meaningful lives.
+
+Determination is the companion to hope. It is the willingness to work hard, to persevere through setbacks, and to continue the work of renewal even when progress is slow and the obstacles seem insurmountable. The people of the Crooked Road corridor have demonstrated determination throughout their history—in the face of economic challenges, natural disasters, and social change. That determination remains a source of strength and a foundation for renewal.
+
+---
+
+## Building an Economy That Honors the Past While Creating Future Opportunity
+
+The economic renewal of the Crooked Road and U.S. Route 23 corridor must honor the region's past while creating opportunity for the future. The region's history—its coal mining, timber production, manufacturing, and agriculture—has shaped its communities, its culture, and its identity. That history should be respected and preserved, not erased or forgotten. The region's heritage is a source of pride and a foundation for economic development.
+
+The renewal must also embrace the future. The region cannot simply recreate the past—the world has changed, and the region must change with it. It must adapt to new economic realities, adopt new technologies, and develop new industries. It must prepare its workforce for jobs that did not exist a generation ago. It must build communities that are attractive to young people and new residents.
+
+The renewal must be grounded in the region's strengths. Its natural resources, strategic location, skilled workforce, and cultural heritage are assets that can support economic development. The region must build on these strengths, not try to be something it is not. It must develop industries that leverage its assets—manufacturing, agriculture, technology, tourism, and the creative economy. It must build a diversified economy that is resilient to economic shocks and sustainable for the long term.
+
+The renewal must be inclusive. It must create opportunities for all residents of the region, regardless of their background or circumstances. It must address the barriers that have limited opportunities for some residents and ensure that the benefits of economic development are shared broadly. It must build communities that are welcoming to all.
+
+The renewal must be sustainable. It must protect the region's natural resources—its forests, agricultural land, water, and wildlife—for future generations. It must manage resources sustainably, ensuring that they can support economic activity and quality of life for decades to come. It must build communities that are environmentally sustainable and economically resilient.
+
+The Crooked Road and U.S. Route 23 corridor has the assets, the leadership, and the partnerships needed for renewal. The path forward requires investment, cooperation, and commitment. The region's future will be determined by whether its residents and leaders are willing to make those investments, build those partnerships, and sustain that commitment.
+
+The vision of a renewed region is within reach. A region where manufacturing, agriculture, technology, tourism, and the creative economy create jobs and opportunity. A region where young people can build meaningful lives in their hometowns. A region where families can thrive, where workers can find good jobs, and where communities are places of pride and vitality. A region that honors its past while embracing the future.
+
+The Crooked Road winds through the mountains, but it does not stop at the mountains. It continues, finding a path around every obstacle, through every valley, over every ridge. The people of the Crooked Road and U.S. Route 23 corridor have always found a way forward. They will find a way forward again.
+
+The future is being written today. The renewal of the Crooked Road corridor is not an aspiration—it is a process that is already underway. The investments being made, the partnerships being built, and the opportunities being created are already shaping the region's future. The region's best days are not behind it—they are ahead of it.
+
+---
+
+*The path to economic renewal in the Crooked Road and U.S. Route 23 corridor is long, but it is well worth traveling. The region's heritage is rich, its people are resilient, and its future is full of promise. With determination, cooperation, and investment, Southwest Virginia can build an economy that honors its past while creating opportunity for generations to come.*
+
+# APPENDICES
+
+---
+
+## Appendix A: County-by-County Investment Recommendations
+
+### Scott County
+
+| **Investment Priority** | **Description** | **Estimated Cost** | **Potential Funding Sources** | **Timeline** |
+|-------------------------|-----------------|-------------------|-------------------------------|--------------|
+| Carter Family Fold Expansion | Expand seating capacity, improve visitor amenities, develop interpretive center | $2-4 million | VCEDA, TRRC, Crooked Road, private donors | Phase I |
+| Riverside Development | Complete mixed-use development in Weber City with workforce housing, commercial space | $10-15 million | VCEDA, private investment, USDA | Phase I-II |
+| Downtown Gate City Revitalization | Historic building renovation, streetscape improvements, business development | $3-5 million | Virginia Main Street, VCEDA, TRRC | Phase I-II |
+| Agricultural Processing | Develop meat processing, dairy processing, and specialty food facilities | $2-3 million | USDA VAPG, VCEDA, private investment | Phase II |
+| Broadband Infrastructure | Complete fiber-to-the-premise deployment countywide | $5-8 million | BEAD, VATI, private ISP investment | Phase I |
+
+### Lee County
+
+| **Investment Priority** | **Description** | **Estimated Cost** | **Potential Funding Sources** | **Timeline** |
+|-------------------------|-----------------|-------------------|-------------------------------|--------------|
+| Heritage Tourism Development | Develop coal heritage and mining tourism attractions | $2-4 million | ARC POWER, VCEDA, TRRC | Phase I-II |
+| Industrial Site Development | Prepare sites for manufacturing and logistics investment | $5-10 million | VBRSP, VCEDA, AMLER | Phase I-II |
+| Downtown Revitalization | Historic preservation and business attraction in Jonesville and Pennington Gap | $2-3 million | Virginia Main Street, VCEDA, TRRC | Phase I-II |
+| Broadband Infrastructure | Complete fiber-to-the-premise deployment | $5-8 million | BEAD, VATI, private ISP investment | Phase I |
+| Healthcare Expansion | Expand healthcare services and employment | $3-5 million | Ballad Health, federal grants, VCEDA | Phase II |
+
+### Wise County
+
+| **Investment Priority** | **Description** | **Estimated Cost** | **Potential Funding Sources** | **Timeline** |
+|-------------------------|-----------------|-------------------|-------------------------------|--------------|
+| Elam Farm Industrial Site | Complete 65-acre industrial pad development | $4.8 million | VCEDA, AMLER, state grants | Phase I |
+| Project Intersection | Complete second access road, market available sites | $4.75 million | AMLER, VCEDA, private investment | Phase I-II |
+| High Knob Destination Center | Develop maps, exhibits, and visitor services | $1-2 million | ARC POWER, VCEDA, Virginia Tourism | Phase I |
+| Sugar Hill Cidery & Entrepreneurial Center | Redevelop downtown property into cider brewery and entrepreneurial center | $2-4 million | VCEDA, TRRC, private investment | Phase I-II |
+| Big Cherry Reservoir Recreation | Develop rental cabins, camping, fishing opportunities | $2 million | AMLER, VCEDA | Phase I |
+| Solar Development | Develop solar on reclaimed mine lands | $10-20 million | Virginia Brownfield Fund, private investment | Phase II |
+
+### Norton City
+
+| **Investment Priority** | **Description** | **Estimated Cost** | **Potential Funding Sources** | **Timeline** |
+|-------------------------|-----------------|-------------------|-------------------------------|--------------|
+| Project Intersection | Complete industrial megasite development | $5-10 million | VCEDA, AMLER, state grants | Phase I-II |
+| Flag Rock Recreation Area | Expand trail system, camping, visitor facilities | $2-4 million | ARC, VCEDA, Virginia Tourism | Phase I-II |
+| Downtown Revitalization | Facade improvements, streetscape enhancements, business development | $2-3 million | Virginia Main Street, VCEDA, TRRC | Phase I-II |
+| Entrepreneurial Programs | CO.STARTERS program, business challenge, incubator space | $500,000-$1 million | VCEDA, UVA Wise, private foundations | Phase I |
+
+### Russell County
+
+| **Investment Priority** | **Description** | **Estimated Cost** | **Potential Funding Sources** | **Timeline** |
+|-------------------------|-----------------|-------------------|-------------------------------|--------------|
+| Modular Housing Manufacturing | Support facility expansion and workforce development | $3 million | VCEDA, private investment | Phase I-II |
+| Tate Access Floors Expansion | Support data center component manufacturing growth | $4 million | VCEDA, New Markets Tax Credits | Phase I |
+| Natural Gas Pipeline | Expand pipeline from Castlewood to Wise County line | $5-10 million | State study, private investment | Phase I-II |
+| Deen Building Revitalization | Connect to sewer, develop commercial space | $25,000 | VCEDA | Phase I |
+| St. Paul Downtown Revitalization | Business development, streetscape improvements | $1-2 million | Virginia Main Street, VCEDA, TRRC | Phase II |
+
+### Dickenson County
+
+| **Investment Priority** | **Description** | **Estimated Cost** | **Potential Funding Sources** | **Timeline** |
+|-------------------------|-----------------|-------------------|-------------------------------|--------------|
+| Red Onion Industrial Site | Complete training facility, attract employers | $3.8 million | AMLER, VCEDA, ARC | Phase I-II |
+| DCER Business Incubator | Complete 3,200 sq ft incubator space, launch CBL program | $42,500 | VCEDA, Virginia DHCD, CPROP | Phase I |
+| Russell Fork River Recreation | Develop river access, trails, facilities | $1-2 million | ARC, VCEDA, Virginia Tourism | Phase II |
+| Workforce Development | Training and rehabilitation programs | $1-2 million | ARC POWER, VCEDA, federal grants | Phase I-II |
+
+### Washington County
+
+| **Investment Priority** | **Description** | **Estimated Cost** | **Potential Funding Sources** | **Timeline** |
+|-------------------------|-----------------|-------------------|-------------------------------|--------------|
+| Virginia Creeper Trail Restoration | Complete restoration of upper 17 miles | $240.5 million | U.S. Forest Service, federal grants | Phase I |
+| Bristol Downtown Revitalization | Historic building renovation, business attraction | $5-10 million | Enterprise Zone, VCEDA, TRRC | Phase I-II |
+| Virginia Intermont Campus | Redevelop into housing, commercial, arts | $10-20 million | Historic tax credits, private investment | Phase II |
+| EO Workforce Hub Expansion | Expand childcare and career services | $2-5 million | Private investment, state grants | Phase I-II |
+| Mendota State Park | Develop park on proposed site | $5-10 million | State park funding, ARC, federal grants | Phase II |
+| Damascus Trail Town Recovery | Complete recovery from Helene, diversify attractions | $5-10 million | FEMA, state grants, private investment | Phase I-II |
+
+---
+
+## Appendix B: Grant and Financing Program Directory
+
+### Federal Programs
+
+| **Program** | **Agency** | **Purpose** | **Eligibility** | **Application** |
+|-------------|------------|-------------|-----------------|-----------------|
+| Broadband Equity, Access, and Deployment (BEAD) | NTIA | Broadband infrastructure deployment | States, localities, ISPs | State-administered |
+| Appalachian Regional Commission (ARC) POWER | ARC | Economic diversification in coal-impacted communities | Local governments, nonprofits, institutions | ARC-administered |
+| USDA Rural Development Water & Environmental Programs | USDA | Water and wastewater infrastructure | Rural communities, water districts | USDA RD |
+| USDA Value-Added Producer Grant (VAPG) | USDA | Agricultural processing and marketing | Agricultural producers | USDA RD |
+| Abandoned Mine Land Economic Revitalization (AMLER) | OSMRE | Mine reclamation and economic development | States, localities | Virginia Energy |
+| Economic Development Administration (EDA) Public Works | EDA | Infrastructure for economic development | Local governments, nonprofits | EDA |
+| Appalachian Regional Commission (ARC) ARISE | ARC | Multi-state collaborative economic development | Regional partnerships | ARC |
+| Appalachian Regional Commission (ARC) Traditional Grants | ARC | Economic development infrastructure | Local governments, nonprofits | ARC |
+| Environmental Protection Agency Brownfields | EPA | Brownfield assessment and cleanup | Local governments, nonprofits, businesses | EPA |
+| Federal Transit Administration Grants | FTA | Public transit infrastructure | Transit agencies, local governments | FTA |
+| National Endowment for the Arts Grants | NEA | Arts and cultural programs | Arts organizations, local governments | NEA |
+| National Endowment for the Humanities Grants | NEH | Humanities programs | Cultural organizations, institutions | NEH |
+| Economic Development Administration Recompete | EDA | Economic diversification in distressed areas | Regional coalitions | EDA |
+
+### State Programs
+
+| **Program** | **Agency** | **Purpose** | **Eligibility** | **Application** |
+|-------------|------------|-------------|-----------------|-----------------|
+| Commonwealth's Development Opportunity Fund (COF) | VEDP | Business attraction/expansion grants | Businesses, local governments | VEDP |
+| Virginia Business Ready Sites Program (VBRSP) | VEDP | Industrial site development | Local governments | VEDP |
+| Virginia Talent Accelerator Program | VEDP | Customized workforce training | New/expanding businesses | VEDP |
+| Virginia Jobs Investment Program (VJIP) | VEDP | Recruitment and training grants | Businesses | VEDP |
+| Virginia Enterprise Zone Program | DHCD | Tax incentives and grants | Businesses in enterprise zones | DHCD |
+| Virginia Telecommunications Initiative (VATI) | DHCD | Broadband infrastructure | Localities, ISPs | DHCD |
+| Agriculture and Forestry Industries Development Fund | VDACS | Agricultural processing and manufacturing | Businesses, local governments | VDACS |
+| Virginia Coalfield Economic Development Authority (VCEDA) | VCEDA | Loans, grants, seed capital | Businesses, localities in VCEDA region | VCEDA |
+| Virginia Brownfield and Coal Mine Renewable Energy Grant Fund | Virginia Energy | Renewable energy on former mine/brownfield sites | Developers, local governments | Virginia Energy |
+| Abandoned Mine Land (AML) Program | Virginia Energy | Mine reclamation | State government | Virginia Energy |
+| Virginia Housing Development Authority (VHDA) | VHDA | Affordable housing financing | Developers, local governments | VHDA |
+| Virginia Department of Housing and Community Development (DHCD) Grants | DHCD | Community development, housing, planning | Local governments, nonprofits | DHCD |
+| Virginia Main Street Program | DHCD | Downtown revitalization | Local governments, Main Street organizations | DHCD |
+| Virginia Tourism Corporation Grants | VTC | Tourism marketing and infrastructure | Tourism organizations, local governments | VTC |
+| Governor's Agriculture and Forestry Industries Development Fund (AFID) | VDACS | Agricultural processing expansion | Businesses, local governments | VDACS |
+
+### Private Foundation Opportunities
+
+| **Foundation** | **Focus Areas** | **Geographic Focus** | **Contact** |
+|----------------|-----------------|---------------------|-------------|
+| Wellspring Foundation of Southwest Virginia | Workforce development, housing, community development | Southwest Virginia | www.wellspringfoundationswva.org |
+| Appalachian Community Capital (ACC) | CDFI financing, small business support | 13-state Appalachian region | www.appalachiancommunitycapital.org |
+| Appalachian Funders Network | Regional collaboration, economic transition | Central Appalachia | www.appalachianfunders.org |
+| The Nature Conservancy | Conservation, renewable energy, reclamation | Virginia, regional | www.nature.org |
+| The Ford Foundation | Economic justice, community development | National, rural focus | www.fordfoundation.org |
+| The Rockefeller Foundation | Economic transition, workforce development | National, Appalachian focus | www.rockefellerfoundation.org |
+| The Robert Wood Johnson Foundation | Health equity, rural health | National | www.rwjf.org |
+| Local Community Foundations | Various community development | County-specific | Various |
+
+### Regional Program Guide
+
+| **Program** | **Organization** | **Purpose** | **Application** |
+|-------------|------------------|-------------|-----------------|
+| Seed Capital Matching Fund | VCEDA | Small business startups (matching grants up to $10,000) | VCEDA via SBDC |
+| VCEDA Loan Program | VCEDA | Business expansion, site development, infrastructure | VCEDA |
+| VCEDA Workforce Development Grants | VCEDA | Workforce training and development | VCEDA |
+| Community Business Launch Program | VCEDA | Entrepreneurial training and incubator support | VCEDA via counties |
+| Tobacco Region Opportunity Fund | TRRC | Business development in tobacco region | TRRC |
+| GO Virginia Grants | GO Virginia | Regional economic development projects | GO Virginia regions |
+| Virginia Small Business Development Center (SBDC) | SBDC | Business counseling and technical assistance | SBDC network |
+| Virginia Manufacturing Extension Partnership (MEP) | MEP | Manufacturing technical assistance | MEP |
+
+---
+
+## Appendix C: Workforce Development Resource Guide
+
+### Community Colleges
+
+| **College** | **Location** | **Service Area** | **Key Programs** | **Contact** |
+|-------------|--------------|------------------|------------------|-------------|
+| Mountain Empire Community College | Big Stone Gap | Wise, Lee, Scott, Dickenson counties | Advanced Manufacturing, Nursing, IT | www.mecc.edu |
+| Southwest Virginia Community College | Cedar Bluff | Russell, Tazewell, Buchanan, Dickenson counties | Advanced Manufacturing, Precision Machining, Nursing | www.sw.edu |
+| Virginia Highlands Community College | Abingdon | Washington, Smyth, Grayson counties | Nursing, Welding, Electrical Technology | www.vhcc.edu |
+| Wytheville Community College | Wytheville | Wythe, Carroll, Grayson counties | Power Line Worker, Nursing, Manufacturing | www.wcc.vccs.edu |
+| Virginia Tech Southwest Center | Wise | Regional | Research, Extension, Education | www.swcenter.vt.edu |
+
+### Career and Technical Education Centers
+
+| **Center** | **Location** | **Service Area** | **Key Programs** | **Contact** |
+|------------|--------------|------------------|------------------|-------------|
+| Dickenson Center for Education and Research | Clintwood | Dickenson County | Small business incubator, workforce training | Dickenson County EDO |
+| Lonesome Pine Regional Business and Technology Park | Wise | Regional | Technology businesses, data centers | Wise County EDO |
+| Russell Regional Business Technology Park | Lebanon | Russell County | Technology businesses, CGI | Russell County IDA |
+| Southwest Virginia Higher Education Center | Abingdon | Regional | Apprenticeship programs, continuing education | www.swcenter.edu |
+| Virginia Tech Southwest Center | Wise | Regional | Research, Extension, Education | www.swcenter.vt.edu |
+
+### Apprenticeship Programs
+
+| **Program** | **Sponsor** | **Occupations** | **Location** | **Contact** |
+|-------------|-------------|-----------------|--------------|-------------|
+| Registered Apprenticeship Program | Virginia Department of Labor and Industry | Various | Statewide | Virginia Works |
+| HIRED Fund Apprenticeships | Virginia Works | Various | Statewide | Virginia Works |
+| ExTRA Program | Institute for Advanced Learning and Research | Manufacturing, healthcare, technology | Danville/Roanoke region | www.ialr.org |
+| Sumitomo Drive Technologies Apprenticeship | Sumitomo Drive Technologies | Machinists | Chesapeake | Sumitomo Drive Technologies |
+| FAME Apprenticeship | Kanawha Valley FAME | Advanced Manufacturing Technicians | West Virginia (regional) | FAME |
+| Teacher Apprenticeship Program | Virginia Department of Education | Teachers | Statewide | Virginia Department of Education |
+
+### Industry Certification Programs
+
+| **Certification** | **Issuing Organization** | **Industry** | **Contact** |
+|-------------------|--------------------------|--------------|-------------|
+| Certified Production Technician (CPT) | Manufacturing Skill Standards Council (MSSC) | Manufacturing | www.msscusa.org |
+| Certified Logistics Technician (CLT) | Manufacturing Skill Standards Council (MSSC) | Logistics | www.msscusa.org |
+| National Institute for Metalworking Skills (NIMS) | NIMS | Metalworking/Machining | www.nims-skills.org |
+| National Coalition of Certification Centers (NC3) | NC3 | Various technical trades | www.nc3.net |
+| OSHA-10/30 | OSHA | Safety | OSHA Training Institute |
+| American Red Cross FA/CPR/AED | American Red Cross | Healthcare/Emergency | American Red Cross |
+| CompTIA A+, Network+, Security+ | CompTIA | Information Technology | www.comptia.org |
+| Certified Nursing Assistant (CNA) | Virginia Board of Nursing | Healthcare | Virginia Board of Nursing |
+| Licensed Practical Nurse (LPN) | Virginia Board of Nursing | Healthcare | Virginia Board of Nursing |
+| Registered Nurse (RN) | Virginia Board of Nursing | Healthcare | Virginia Board of Nursing |
+
+---
+
+## Appendix D: Regional Economic Indicators
+
+### Current Population Statistics
+
+| **County/City** | **2020 Census** | **2024 Estimate** | **Change** | **Population Density (per sq mi)** |
+|-----------------|-----------------|-------------------|------------|-------------------------------------|
+| Scott County | 21,576 | 21,388 | -0.9% | 38 |
+| Lee County | 22,173 | 21,642 | -2.4% | 32 |
+| Wise County | 36,130 | 34,973 | -3.2% | 65 |
+| Norton City | 3,687 | 3,478 | -5.9% | 1,200 |
+| Russell County | 25,781 | 25,000 | -3.0% | 43 |
+| Dickenson County | 14,124 | ~14,000 | -0.9% | 29 |
+| Washington County | 53,935 | 54,219 | +0.5% | 96 |
+| Virginia | 8.63 million | 8.7 million | +0.8% | 200 |
+
+*Source: U.S. Census Bureau; Weldon Cooper Center for Public Service*
+
+### Educational Attainment Data
+
+| **County/City** | **High School Graduate+** | **Bachelor's Degree+** | **Graduate/Professional Degree** |
+|-----------------|---------------------------|------------------------|----------------------------------|
+| Scott County | 84.8% | 15.6% | 4.7% |
+| Lee County | 82.5% | 12.5% | 3.8% |
+| Wise County | 80.3% | 15.6% | 5.2% |
+| Norton City | 80.5% | 16.6% | 5.5% |
+| Russell County | 85.0% | 18.0% | 5.5% |
+| Dickenson County | 82.0% | 14.0% | 4.2% |
+| Washington County | 88.0% | 26.7% | 9.5% |
+| Virginia | 89.0% | 38.0% | 15.0% |
+
+*Source: U.S. Census Bureau ACS 5-Year Estimates; Virginia Employment Commission*
+
+### Employment and Industry Data
+
+| **County/City** | **Labor Force** | **Employed** | **Unemployed** | **Unemployment Rate** |
+|-----------------|-----------------|--------------|----------------|----------------------|
+| Scott County | 8,500 | 8,100 | 400 | 4.7% |
+| Lee County | 8,200 | 7,700 | 500 | 6.1% |
+| Wise County | 14,500 | 13,800 | 700 | 4.8% |
+| Norton City | 1,600 | 1,500 | 100 | 6.3% |
+| Russell County | 10,000 | 9,600 | 400 | 4.0% |
+| Dickenson County | 5,200 | 4,800 | 400 | 7.7% |
+| Washington County | 24,500 | 23,500 | 1,000 | 4.1% |
+| Virginia | 4.4 million | 4.2 million | 200,000 | 4.8% |
+
+*Source: Virginia Employment Commission (2024 data)*
+
+### Median Household Income
+
+| **County/City** | **Median Household Income** | **Per Capita Income** | **Poverty Rate** |
+|-----------------|-----------------------------|-----------------------|------------------|
+| Scott County | $46,349 | $28,852 | 20.1% |
+| Lee County | $42,000 | $21,818 | 27.6% |
+| Wise County | $50,740 | $23,528 | 18.2% |
+| Norton City | $38,497 | $27,033 | 20.6% |
+| Russell County | $50,012 | $29,997 | 16.7% |
+| Dickenson County | $47,254 | $25,000 | 22.0% |
+| Washington County | $66,230 | $31,337 | 12.0% |
+| Virginia | $93,170 | $50,666 | 9.9% |
+
+*Source: U.S. Census Bureau ACS 5-Year Estimates; Virginia Employment Commission; ARC*
+
+---
+
+## Appendix E: Timeline and Milestones
+
+### Phase I Milestones (Years 1-3)
+
+| **Year** | **Milestone** | **Indicator** | **Responsible Parties** |
+|----------|---------------|---------------|-------------------------|
+| Year 1 | Complete all community assessments | 37 community assessments completed | PDCs, local governments, VCEDA |
+| Year 1 | Secure BEAD funding for broadband | All unserved locations funded | DHCD, ISPs |
+| Year 1 | Launch GO TEC in all middle schools | 100% of middle schools participating | School divisions, GO TEC |
+| Year 1 | Launch Community Business Launch programs | 3 counties participating | VCEDA, counties |
+| Year 2 | Complete initial infrastructure projects | 5 infrastructure projects completed | VDOT, localities, VCEDA |
+| Year 2 | Expand VCEDA Seed Capital Program | 50 businesses assisted | VCEDA, SBDC |
+| Year 2 | Formalize regional partnerships | 10 partnerships established | VCEDA, PDCs, local governments |
+| Year 3 | Complete Phase I evaluation | Evaluation report completed | VCEDA, PDCs |
+| Year 3 | Scale successful pilots | 3 pilots scaled | VCEDA, local governments |
+| Year 3 | Complete initial housing projects | 250 housing units completed | Localities, developers, VHDA |
+
+### Phase II Milestones (Years 4-10)
+
+| **Year** | **Milestone** | **Indicator** | **Responsible Parties** |
+|----------|---------------|---------------|-------------------------|
+| Year 5 | Complete Virginia Creeper Trail restoration | Trail fully open | U.S. Forest Service, VDOT |
+| Year 5 | Expand modular housing production | 500 housing units produced | Russell County IDA, AHHP |
+| Year 5 | Launch innovation center | 1 center open with 10 businesses | UVA Wise, VCEDA, localities |
+| Year 6 | Complete natural gas pipeline expansion | Pipeline operational | Pipeline company, localities |
+| Year 7 | Develop new industrial sites | 3 new sites developed | VBRSP, VCEDA, localities |
+| Year 8 | Attract new manufacturers | 10 new manufacturers | VEDP, VCEDA, localities |
+| Year 8 | Develop international tourism marketing | Campaign launched | Virginia Tourism, localities |
+| Year 9 | Scale workforce development programs | 5,000 workers trained | Community colleges, Virginia Works |
+| Year 10 | Complete Phase II evaluation | Evaluation report completed | VCEDA, PDCs |
+
+### Phase III Milestones (Years 10-20)
+
+| **Year** | **Milestone** | **Indicator** | **Responsible Parties** |
+|----------|---------------|---------------|-------------------------|
+| Year 12 | Establish innovation district | 1 district established with 5 anchors | UVA Wise, VCEDA, localities |
+| Year 12 | Develop export industries | 25 businesses exporting | VEDP, businesses |
+| Year 14 | Achieve international tourism targets | 10,000 international visitors | Virginia Tourism, localities |
+| Year 15 | Develop research partnerships | 15 partnerships established | Universities, VCEDA, businesses |
+| Year 15 | Expand advanced industries | 10 advanced industry businesses | VEDP, VCEDA, businesses |
+| Year 18 | Achieve sustainability targets | 50% farms using conservation practices | USDA, VDACS, farmers |
+| Year 20 | Complete regional transformation | Innovation ecosystem fully operational | All partners |
+
+---
+
+## Appendix F: Key Contacts and Organizations
+
+### Regional Economic Development Authorities
+
+| **Organization** | **Location** | **Primary Contact** | **Phone** | **Email** |
+|------------------|--------------|---------------------|-----------|-----------|
+| Virginia Coalfield Economic Development Authority (VCEDA) | Norton | Jonathan Belcher, Executive Director/General Counsel | (276) 523-2444 | jbelcher@vceda.us |
+| Virginia Economic Development Partnership (VEDP) | Richmond | Regional Director | (804) 545-5600 | info@vedp.org |
+| Tobacco Region Revitalization Commission | Richmond | Executive Director | (804) 786-3060 | trrc@trrc.virginia.gov |
+| Appalachian Regional Commission | Washington, DC | Federal Co-Chair | (202) 884-7700 | www.arc.gov |
+| Appalachian Community Capital (ACC) | Christiansburg | Executive Director | (540) 382-2069 | info@appalachiancommunitycapital.org |
+| LENOWISCO Planning District Commission | Wise | Duane Miller, Executive Director | (276) 328-7400 | info@lenowisco.org |
+| Cumberland Plateau Planning District Commission | Lebanon | Executive Director | (276) 889-1776 | www.cppdc.org |
+| Mount Rogers Planning District Commission | Abingdon | Executive Director | (276) 783-5103 | www.mrpd.org |
+
+### Chambers of Commerce
+
+| **Organization** | **Location** | **Primary Contact** | **Phone** | **Email** |
+|------------------|--------------|---------------------|-----------|-----------|
+| Scott County Chamber of Commerce | Gate City | President | (276) 386-6521 | chamber@scottcountyva.com |
+| Wise County Chamber of Commerce | Wise | President | (276) 328-2324 | info@wisecountychamber.org |
+| Russell County Chamber of Commerce | Lebanon | President | (276) 889-1900 | chamber@russellcountyva.org |
+| Dickenson County Chamber of Commerce | Clintwood | President | (276) 926-1645 | chamber@dickensoncountyva.org |
+| Washington County Chamber of Commerce | Abingdon | President | (276) 628-8141 | info@washingtoncountychamber.org |
+| Bristol Chamber of Commerce | Bristol | President | (276) 645-7394 | info@bristolchamber.org |
+
+### Educational Institutions
+
+| **Institution** | **Location** | **Primary Contact** | **Phone** | **Email** |
+|-----------------|--------------|---------------------|-----------|-----------|
+| University of Virginia's College at Wise | Wise | Chancellor | (276) 328-0100 | www.uvawise.edu |
+| Mountain Empire Community College | Big Stone Gap | President | (276) 523-2400 | www.mecc.edu |
+| Southwest Virginia Community College | Cedar Bluff | President | (276) 964-2555 | www.sw.edu |
+| Virginia Highlands Community College | Abingdon | President | (276) 739-2400 | www.vhcc.edu |
+| Wytheville Community College | Wytheville | President | (276) 223-4700 | www.wcc.vccs.edu |
+| Virginia Tech Southwest Center | Wise | Director | (276) 376-3000 | www.swcenter.vt.edu |
+
+### Industry Associations
+
+| **Organization** | **Focus** | **Contact** |
+|------------------|-----------|-------------|
+| Virginia Manufacturers Association | Manufacturing | www.vamanufacturers.org |
+| Virginia Farm Bureau Federation | Agriculture | www.vafb.com |
+| Virginia Cattlemen's Association | Cattle Industry | www.vacattlemen.org |
+| Virginia Forestry Association | Forestry | www.vaforestry.org |
+| Virginia Tourism Corporation | Tourism | www.virginia.org |
+| Virginia Association of Chamber of Commerce Executives | Chamber Leadership | www.vacce.org |
+| Virginia Economic Developers Association | Economic Development | www.veda.org |
+| Appalachian Regional Commission | Regional Development | www.arc.gov |
+| Virginia Rural Center | Rural Development | www.ruralvirginia.org |
+
+---
+
+*End of Appendices*
 
 ---
 
@@ -8527,5 +9571,154 @@ The path forward requires investment in these tools, development of workforce sk
 - Industry Research and Reports
 
 ---
+# BIBLIOGRAPHY
 
-# END OF BOOK OUTLINE
+This bibliography compiles the key sources that informed the economic development strategies, program descriptions, and regional analysis presented throughout this book. The sources reflect the collaboration between federal agencies, state organizations, regional authorities, and local institutions that is central to the Crooked Road corridor's renewal.
+
+---
+
+## Virginia Economic Development Resources
+
+**Commonwealth of Virginia, Virginia Coalfield Economic Development Authority (VCEDA).** *2025 Annual Report (RD265)*. Published 2026. Richmond, VA: Virginia General Assembly. Available at rga.lis.virginia.gov/Published/2026/RD265.
+
+This foundational report documents the authority's work in 2025, including 59 loans and grants totaling $18.8 million across the seven-county, one-city region, projected to create and retain 584 full-time and 124 part-time jobs with $180.2 million in private investment . The report also highlights 26 new business start-ups supported through VCEDA's Seed Capital Matching Fund program .
+
+**Commonwealth of Virginia, Virginia Coalfields Expressway Authority.** *2025 Annual Report (RD1031)*. Published 2025. Richmond, VA: Virginia General Assembly. Available at rga.lis.virginia.gov/Published/2025/RD1031.
+
+Documents progress on the Coalfields Expressway, designated as U.S. Route 121 and a Congressional High Priority Corridor, including the opening of an additional 2.74 miles of four-lane highway in 2025 . The report emphasizes the expressway's role in regional economic development, tourism, and access to employment, education, and healthcare .
+
+**Virginia Economic Development Partnership (VEDP).** "Bespoke Training for Emerging Workforce Needs." Published 2025. Available at vedp.org/news/bespoke-training-emerging-workforce-needs.
+
+Describes the Virginia Talent Accelerator Program and its collaboration with the Virginia Community College System, including the program's recognition as the top customized workforce training program in the nation by Business Facilities and Area Development . Features case studies of Civica Rx and Patrick & Henry Community College's Manufacturing, Engineering, and Technology Complex .
+
+**Virginia Economic Development Partnership (VEDP).** "VEDP Announces $40 Million in Virginia Business Ready Sites Program Grants." Press Release, August 1, 2025. Available at vedp.org/press-release/2025-08/vbrsp-2025.
+
+Announces $40 million in VBRSP development grants across the Commonwealth, including $35.9 million for direct site development and $4.1 million for accelerated site characterization . The program partners with localities, utilities, and state agencies to fund infrastructure improvements .
+
+**Virginia Economic Development Partnership (VEDP).** "Virginia Business Ready Sites Program (VBRSP)." Available at vedp.org/vbrsp.
+
+Describes the program's two components—site characterization and site development—and its eligibility requirements for industrial sites of at least 50 contiguous, developable acres (25 acres for localities of 35 square miles or less) .
+
+**Virginia Business.** "Area Development Ranks Virginia No. 1 for Workforce Training." Published September 24, 2025. Available at virginiabusiness.com/area-development-ranks-virginia-no-1-for-workforce-training.
+
+Reports on Virginia's top ranking for workforce training by Area Development magazine and the state's seventh overall ranking in the Top States for Doing Business report . Notes that the Talent Accelerator Program has helped secure more than 17,000 jobs since its launch in 2019 .
+
+**Business Facilities Magazine.** "Virginia Offers Programs That Excel." September/October 2025 Issue. Available at businessfacilities.com/virginia-offers-programs-that-excel.
+
+Describes Virginia's business development programs, including the VBRSP and the Talent Accelerator Program, and their role in attracting more than $125 billion in capital investment since 2022 .
+
+**Virginia's Community Colleges (VCCS).** "Virginia Workforce Training Recognized…Again!" Published September 24, 2025. Available at vccs.edu/blog/virginia-workforce-training-recognizedagain.
+
+Announces the Talent Accelerator Program's top ranking by Area Development magazine, complementing similar recognition by Business Facilities . Notes the program's collaboration between VEDP and the VCCS and its role in securing more than 17,000 announced jobs .
+
+**Virginia Chamber of Commerce.** "VCEDA 2025 Annual Report Highlights Projects, Expansions." Published March 11, 2026. Available at vachamber.com/2026/03/11/vceda-2025-annual-report-highlights-projects-expansions.
+
+Summarizes the VCEDA annual report, including key projects such as Appalachian Highlands Housing Partners (89 jobs, $3 million loan), West River Conveyors expansion (56 jobs, $4 million loan), and VFP Inc. expansion (200 jobs, $35 million investment) .
+
+---
+
+## Appalachian Regional Commission Publications
+
+**Appalachian Regional Commission (ARC).** "POWER Initiative." Available at arc.gov/research_report_eval_topic/power-initiative/.
+
+Overview of the Partnerships for Opportunity and Workforce and Economic Revitalization (POWER) Initiative, which has funded 564 projects since 2015 to empower Appalachian communities to create new economic opportunities .
+
+**Chamberlin, Molly, Ph.D., and Nicole Dunn, M.P.A.** *POWER Initiative Evaluation: The POWER of Change*. Appalachian Regional Commission, 2021. Available at arc.gov/report/power-initiative-evaluation-the-power-of-change/.
+
+Documents the evaluation of POWER projects through "most significant change" (MSC) methodology, analyzing 72 stories from 44 unique projects . Identifies themes of change at individual (job opportunities, skill-building, recovery support), business (revenue increase, organizational capacity), and community (economic opportunities, collaboration, quality of place) levels .
+
+**Appalachian Regional Commission (ARC).** *POWER Initiative Evaluation: The Value of POWER*. Published 2022. Available at arc.gov/report/power-initiative-evaluation-the-value-of-power/.
+
+Examines the longer-term impacts of POWER grants through evaluation of closed projects . Notes that grantees with closed projects have already exceeded many cumulative targets .
+
+---
+
+## USDA Rural Development Resources
+
+**U.S. Department of Agriculture, Rural Development.** "Water and Waste Disposal Loan and Grant Program." Available at rd.usda.gov/programs-services/water-environmental-programs/water-waste-disposal-loan-grant-program.
+
+Provides financing for the construction of water and waste facilities in rural communities with populations of 10,000 or less, as well as technical assistance and training .
+
+**U.S. Department of Agriculture, Rural Development.** "Edgecombe County Updates Water Treatment Facility with Support of U.S. Department of Agriculture." News Release, September 25, 2025. Available at rd.usda.gov/newsroom/news-release/edgecombe-county-updates-water-treatment-facility-support-us-department-agriculture.
+
+Demonstrates the application of USDA Water and Environmental programs, including a $9.3 million investment serving 1,050 residential and 30 commercial customers .
+
+**U.S. Department of Agriculture, Rural Development.** "USDA Rural Development invests over $3 Million to help ensure safe, reliable potable water for people in Calhoun County, Illinois." News Release, September 2, 2025. Available at rd.usda.gov/newsroom/news-release/usda-rural-development-invests-over-3-million-help-ensure-safe-reliable-potable-water-people-calhoun.
+
+Illustrates the Water and Waste Disposal Loan and Grant program's impact, including a $3.069 million direct loan for water infrastructure serving 3,500 residents .
+
+**U.S. Department of Agriculture, Rural Development.** "USDA Rural Development Announces Over $1 Million Investment in Infrastructure for Mercer Borough and Pleasant Township." News Release, July 7, 2026. Available at rd.usda.gov/newsroom/news-release/usda-rural-development-announces-over-1-million-investment-infrastructure-mercer-borough-and.
+
+Provides examples of water and wastewater infrastructure investments, including $350,000 for Mercer Borough and $742,000 for Pleasant Township .
+
+---
+
+## Regional Planning Documents
+
+**Lenowisco Planning District Commission.** *Comprehensive Economic Development Strategy (CEDS)*. Wise, VA: Lenowisco PDC.
+
+Regional planning document guiding economic development in Lee, Wise, and Scott counties. The CEDS process involves stakeholder engagement, asset assessment, and identification of priority projects for the region.
+
+**Cumberland Plateau Planning District Commission.** *Comprehensive Economic Development Strategy (CEDS)*. Lebanon, VA: CPPDC.
+
+Regional planning document for Russell, Tazewell, Buchanan, and Dickenson counties, coordinating economic development across jurisdictional boundaries.
+
+**Mount Rogers Planning District Commission.** *Comprehensive Economic Development Strategy (CEDS)*. Abingdon, VA: MRPDC.
+
+Regional planning document for Washington, Smyth, Grayson, Carroll, Wythe, and Bland counties and the cities of Bristol and Galax.
+
+**Town of Gate City.** *Main Street Program Documents*. Gate City, VA: Town of Gate City.
+
+Local planning documents for downtown revitalization, including event programming and business development strategies .
+
+---
+
+## Industry Research and Reports
+
+**Chmura Economics & Analytics.** *Economic Impact Analysis of the Virginia Coalfield Economic Development Authority Region*. Published 2024. Richmond, VA: Chmura.
+
+Comprehensive economic impact analysis of the VCEDA region, documenting job creation, private investment, and economic diversity improvements .
+
+**Virginia Tech, Department of Agricultural and Applied Economics.** *Agricultural Development Study for the VCEDA Region*. Blacksburg, VA: Virginia Tech.
+
+Study commissioned by VCEDA to identify opportunities for agricultural economic development, including value-added processing, specialty crops, and cooperative development .
+
+**Wellspring Foundation of Southwest Virginia.** *Annual Reports and Program Documents*. Abingdon, VA: Wellspring Foundation.
+
+Documents the foundation's investments in workforce development, housing, and community development, including support for the EO Workforce and Child Development Hub .
+
+**Appalachian Voices.** *Virginia Coal Community Development Platform*. Published 2025. Available at appvoices.org.
+
+Community-developed platform identifying priorities and challenges facing Virginia's coalfield communities, developed through listening sessions with residents from five Southwest Virginia communities.
+
+---
+
+## Additional References
+
+**U.S. Census Bureau.** *American Community Survey 5-Year Estimates*. Various years. Available at data.census.gov.
+
+Source of demographic, economic, and educational attainment data for counties and communities in the Crooked Road corridor.
+
+**Virginia Employment Commission.** *Labor Market Information*. Various years. Available at vec.virginia.gov.
+
+Source of employment, unemployment, and labor force data for Virginia localities.
+
+**Virginia Department of Transportation.** *Project Documents and Traffic Data*. Various years. Available at virginiadot.org.
+
+Source of highway project information and traffic volume data for U.S. Route 23 and connecting roads .
+
+**Virginia Department of Housing and Community Development.** *Virginia Telecommunications Initiative (VATI) Program Documents*. Various years. Available at dhcd.virginia.gov.
+
+Source of broadband expansion project information and funding data .
+
+**Virginia Energy.** *Abandoned Mine Land Economic Revitalization (AMLER) Program Documents*. Various years. Available at energy.virginia.gov.
+
+Source of mine reclamation and economic development project information .
+
+**University of Virginia, Weldon Cooper Center for Public Service.** *Population Projections and Demographic Analysis*. Charlottesville, VA: Cooper Center.
+
+Source of population projections and demographic trend analysis for Southwest Virginia.
+
+---
+
+*Compiled for the Economic Redevelopment of the Crooked Road and U.S. Route 23 Corridor*
