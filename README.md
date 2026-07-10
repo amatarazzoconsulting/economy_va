@@ -1,13 +1,10 @@
 # ECONOMIC REDEVELOPMENT OF THE CROOKED ROAD AND U.S. ROUTE 23 CORRIDOR
+![Book Cover](va_tree.jpg)
 ## By Anthony Matarazzo (c) 2026
 
 ## A Comprehensive Strategy for Re-Energizing Southwest Virginia's Economy Through Agriculture, Manufacturing, Technology, and Cultural Heritage
 
----
 
-# COMPLETE BOOK OUTLINE
-
----
 
 # INTRODUCTION: A VISION FOR RENEWAL
 
