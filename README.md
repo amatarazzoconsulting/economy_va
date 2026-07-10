@@ -1,2 +1,5637 @@
-# economy_va
-There is many new growth opportunities in VA
+# ECONOMIC REDEVELOPMENT OF THE CROOKED ROAD AND U.S. ROUTE 23 CORRIDOR
+## By Anthony Matarazzo (c) 2026
+
+## A Comprehensive Strategy for Re-Energizing Southwest Virginia's Economy Through Agriculture, Manufacturing, Technology, and Cultural Heritage
+
+---
+
+# COMPLETE BOOK OUTLINE
+
+---
+
+# INTRODUCTION: A VISION FOR RENEWAL
+
+---
+
+## The Historical Significance of the Crooked Road and U.S. Route 23 Corridor
+
+The Crooked Road and U.S. Route 23 corridor stretches through the heart of Appalachia, connecting communities that have shaped American culture, industry, and identity for more than three centuries. This winding path through the mountains of Southwest Virginia is far more than a transportation route—it is a living testament to the resilience, creativity, and determination of the people who have called these hills home. From the earliest Native American trails that followed the ridgelines to the pioneer settlements that transformed wilderness into farmland, from the railroad boom that opened the region to national markets to the coal mining operations that powered America's industrial rise, this corridor has been at the center of the nation's story.
+
+The Crooked Road earned its name not only from its winding geography but from the winding path of history itself—a history marked by periods of tremendous prosperity and devastating hardship, of communities that built entire economies from the resources beneath their feet and the music that rose from their hearts. Along this route, the Carter Family created the foundations of country music at the Fold in Hiltons. Ralph Stanley perfected the high, lonesome sound of bluegrass in Coeburn. Miners descended into the depths of the earth in Norton and Big Stone Gap to extract the coal that powered factories and lit homes from New York to Chicago. Farmers worked the fertile valleys of Scott and Washington Counties, feeding families and communities for generations. Timber workers harvested the ancient hardwoods that became the furniture, flooring, and musical instruments that graced homes across America.
+
+This corridor gave birth to industries that built the nation. The coal that came from the mines of Wise, Lee, and Dickenson Counties fueled the steel mills of Pittsburgh, the factories of Detroit, and the power plants that electrified America's cities. The timber that came from the forests of Russell and Scott Counties built the homes and businesses of the growing nation. The agricultural products of the region fed soldiers during wars and families during depressions. The music that came from the porches and churches of these communities inspired artists around the world and gave voice to the Appalachian experience.
+
+Yet the historical significance of this corridor extends beyond economics and industry. It is a place where cultural traditions have been preserved with remarkable fidelity, where families have maintained connections to the land for generations, and where communities have supported one another through the most difficult circumstances. The values of hard work, mutual assistance, faith, and family that have characterized this region are not merely historical artifacts—they are living traditions that continue to shape community life today. The Crooked Road is not simply a highway; it is a cultural artery that carries the heritage of Appalachia into the future.
+
+---
+
+## Understanding the Region's Economic Heritage
+
+To understand the economic challenges facing the Crooked Road and U.S. Route 23 corridor today, one must first understand the economic systems that built these communities and the forces that ultimately caused them to decline. The region's economic heritage is a complex tapestry of agriculture, timber, mining, manufacturing, and transportation—each industry building upon the previous, each creating wealth and opportunity, and each eventually facing the inevitable forces of technological change, resource depletion, and global competition.
+
+Agriculture was the first economic foundation of the region. The earliest settlers who crossed the mountains in the eighteenth century found fertile valleys and abundant game. They cleared small farms, raised livestock, and grew crops that sustained their families and communities. The isolation of mountain life forced self-reliance and created strong community bonds. For more than a century, agriculture was the primary economic activity—families working the land, trading with neighbors, and building the rural communities that would later become the towns and cities along the corridor.
+
+The arrival of the railroad in the late nineteenth century transformed the region's economy. Suddenly, the vast resources that had been inaccessible could be transported to national markets. Coal that had remained in the ground for millennia could be extracted and shipped to cities hungry for energy. Timber that had been too difficult to move could be harvested and sold to growing industries. The railroads opened the region to the national economy and brought prosperity to communities that had known only subsistence.
+
+Coal mining became the dominant economic force of the twentieth century. Corporations invested heavily in the region, building mines, processing facilities, railroads, and company towns. Thousands of workers migrated to the region seeking employment, and communities grew rapidly around mining operations. The coal industry created wealth that built schools, hospitals, churches, and commercial districts. It created a working-class culture that valued solidarity, mutual support, and determination. It gave the region an identity that persisted long after the industry began to decline.
+
+Manufacturing expanded alongside mining. The region's skilled workforce, transportation connections, and industrial infrastructure attracted companies producing telecommunications equipment, utility structures, metal fabrication, and heavy machinery. These manufacturing facilities provided stable employment and diversified the economy beyond resource extraction. For several decades, the combination of mining, manufacturing, agriculture, and timber created a relatively balanced economic system that supported communities throughout the corridor.
+
+The decline began in the 1980s as coal production decreased due to environmental regulations, competition from western mines, and the transition to other energy sources. Manufacturing facilities consolidated or relocated to lower-cost regions. Timber markets shifted as substitutes replaced wood products. Agriculture faced competition from industrial-scale operations in the Midwest. The combination of these factors created a perfect storm of economic dislocation.
+
+Communities that had depended on these industries faced unemployment, population decline, and reduced public services. The young people who had once found employment in local mines and factories began leaving in search of opportunities elsewhere. The downtowns that had thrived during the boom years saw businesses close and storefronts empty. The cycle of disinvestment accelerated as declining populations reduced tax bases and made it harder to maintain infrastructure and services.
+
+Today, the region faces the legacy of this decline. Abandoned industrial buildings dot the landscape. Downtowns that once bustled with commerce now house empty storefronts. Population continues to decline as young people leave and the elderly remain. The economic foundations that sustained communities for generations have eroded.
+
+Yet even in the face of this decline, the region possesses remarkable assets. The skills and work ethic of the workforce remain. The natural resources—forests, agricultural land, water—continue to provide opportunities. The transportation infrastructure that once served mining and manufacturing can serve new industries. The cultural heritage that makes the region unique can be leveraged for tourism and creative industries.
+
+---
+
+## The Challenge of Decline and the Promise of Renewal
+
+The challenge facing the Crooked Road and U.S. Route 23 corridor is perhaps the most profound of any region in the eastern United States. Decades of population loss, economic disinvestment, and social dislocation have left communities struggling to maintain their identity, their services, and their hope for the future. The statistics tell a story of steady decline: shrinking school enrollments, closing hospitals, vacant commercial buildings, and an aging population that grows older with each passing year.
+
+Yet beneath these statistics lies something more troubling—a crisis of confidence. Many residents have come to believe that their communities are dying, that the best days are behind them, and that the future holds only more of the same. This loss of hope is perhaps the greatest barrier to economic renewal because it creates a self-fulfilling prophecy. When people believe their communities have no future, they invest less, work less, and stay less. They send their children away and resign themselves to a diminished existence.
+
+The economic challenges are real and substantial. The region faces competition from low-cost regions, particularly in manufacturing. The transition from coal to other energy sources has eliminated thousands of jobs. The geographic isolation that once protected the region now limits access to markets. The educational attainment levels lag behind state averages, limiting the region's ability to attract technology and professional services businesses.
+
+Yet the promise of renewal is equally real. The region possesses assets that are increasingly valuable in the modern economy: affordable land, natural beauty, authentic cultural heritage, and a skilled, dedicated workforce. The trends that have driven decline—automation, globalization, and urbanization—are creating counter-trends that favor rural regions. Remote work is becoming more common, allowing people to live anywhere while working anywhere. The desire for authentic experiences is driving tourism to regions with distinctive cultural and natural assets. The emphasis on sustainability and local food is creating markets for regional agricultural products.
+
+The promise of renewal lies in the ability to build on these assets while addressing the challenges that have limited past development. It lies in creating a diversified economy that does not depend on a single industry. It lies in investing in education and infrastructure that will attract new residents and businesses. It lies in rebuilding the confidence and hope that are essential for community vitality.
+
+The renewal of the Crooked Road and U.S. Route 23 corridor will not happen overnight. It will require sustained effort over decades. It will require investments that may not show immediate returns. It will require cooperation among communities, businesses, governments, and organizations. It will require a willingness to try new approaches and learn from both success and failure.
+
+But the promise of renewal is not simply hope—it is grounded in the reality that the region has survived and thrived through many challenges in its history. The same resilience that carried communities through the boom and bust of the coal era can carry them through the transition to a new economic model. The same determination that built the region's industries can build new ones. The same pride that sustained Appalachian culture can sustain the region through the difficult work of transformation.
+
+---
+
+## Building Upon Enduring Strengths While Embracing Modern Technologies
+
+The economic strategy for the Crooked Road and U.S. Route 23 corridor must be grounded in the recognition that the region's future lies not in recreating its past but in building upon its enduring strengths. The region will never again be the coal and timber center it once was, nor should it try to be. The world has changed, and the region must change with it. But change does not mean abandonment—it means adaptation and innovation.
+
+The region's enduring strengths are numerous and substantial. Its forests are among the most productive in the eastern United States, containing valuable hardwoods that are increasingly scarce elsewhere. These forests can provide sustainable timber for generations, supporting sawmills, furniture manufacturing, and engineered wood products. They can also support recreation, wildlife habitat, carbon sequestration, and ecosystem services that generate income without harvesting.
+
+Its agricultural land remains productive and can support diversified farming operations that produce high-value products for regional and national markets. The growing demand for local and sustainably produced food creates opportunities for farmers who can capture value through processing, branding, and direct marketing. The region's climate, soils, and topography are suited to specialty crops that command premium prices.
+
+Its workforce is skilled, experienced, and dedicated. Workers who have spent decades in manufacturing, mining, and agriculture possess practical knowledge that cannot be easily replicated. They understand machinery, maintenance, safety, and quality. They have strong work ethics and are accustomed to the demands of physical labor. These skills can be adapted to modern manufacturing, construction, and technology industries.
+
+Its cultural heritage is unique and authentic. The music of the region has inspired artists around the world. The crafts, traditions, and stories of Appalachian culture are increasingly valued as authentic expressions of American identity. This cultural heritage can support tourism, creative industries, and branding that differentiates regional products in national markets.
+
+Its transportation infrastructure, including highways, railroads, and airports, provides connections to markets throughout the eastern United States. The region is within a day's drive of major population centers, making it accessible for tourism and logistics. The railroad infrastructure that once served the coal industry can support manufacturing, agriculture, and timber products.
+
+Embracing modern technologies does not mean abandoning the region's identity—it means using technology to enhance what the region already does well. Precision agriculture can make farms more productive and sustainable. Digital manufacturing can make factories more competitive. Broadband can connect the region to global markets. Renewable energy can power the region's economy while creating jobs and reducing costs.
+
+The integration of traditional strengths with modern technologies creates opportunities that are unique to the region. For example, the combination of sustainable hardwood harvesting with advanced manufacturing can produce high-value engineered wood products that replace less sustainable materials. The combination of agricultural production with food processing technology can create value-added products that command premium prices. The combination of musical heritage with digital recording and distribution technology can create a modern creative economy that reaches global audiences.
+
+---
+
+## The Path Forward: Courage, Cooperation, and Commitment
+
+The redevelopment of the Crooked Road and U.S. Route 23 corridor will require more than good ideas and investment capital. It will require courage—the courage to acknowledge the challenges the region faces, to make difficult decisions, and to invest in the future despite uncertainty. It will require cooperation—the willingness of communities, businesses, governments, and organizations to work together toward common goals. It will require commitment—the determination to see the work through, even when results are slow to materialize and obstacles seem insurmountable.
+
+Courage is needed because the path forward is not clear. There are no guarantees that specific strategies will succeed. The region's leaders must make decisions based on imperfect information and hope that their judgments are sound. They must be willing to try new approaches, to learn from failure, and to persist despite setbacks. They must have the courage to invest in education, infrastructure, and business development even when the benefits are uncertain.
+
+Courage is also needed because the region must confront difficult truths. The economic model of the past will not return. Communities cannot wait for a revival of coal mining or the return of manufacturing jobs that have permanently relocated overseas. The region must build something new, and that requires letting go of what once was. This is not easy—the region's identity has been closely tied to its economic foundations, and changing those foundations means changing how the region sees itself.
+
+Cooperation is needed because the challenges facing the region are too large for any single community or organization to address alone. The Crooked Road and U.S. Route 23 corridor is a network of communities that share common challenges and opportunities. They compete for the same businesses, the same workers, the same visitors. But they also share the same fate—if the region as a whole fails, every community suffers. If the region succeeds, every community benefits.
+
+Cooperation means sharing information, resources, and strategies. It means coordinating economic development efforts to avoid duplication and competition. It means recognizing that a rising tide lifts all boats—that the success of Bristol benefits Wise, and the success of Wise benefits Bristol. It means working together to attract businesses, develop infrastructure, and market the region to the world.
+
+Cooperation also means building partnerships between public and private sectors, between government and nonprofit organizations, between educational institutions and employers. These partnerships leverage resources and create synergies that no single entity could achieve alone. They create the ecosystem of support that businesses need to succeed.
+
+Commitment is needed because economic redevelopment is a long-term endeavor. The region's decline has been decades in the making, and its renewal will take decades to achieve. There will be no quick fixes, no overnight successes. The work will be difficult, the progress will be slow, and the results will be measured in years and decades rather than weeks and months.
+
+Commitment means maintaining focus and resources through the inevitable disappointments and setbacks. It means continuing to invest in education and infrastructure even when the immediate returns are invisible. It means supporting businesses and entrepreneurs even when many will fail. It means keeping faith in the region's future even when the present seems bleak.
+
+Commitment also means ensuring that the benefits of economic development are shared broadly. Too often, economic development strategies have benefited some communities or some individuals while leaving others behind. The region's renewal must be inclusive—it must create opportunities for all residents, all communities, and all sectors of the economy.
+
+The path forward is challenging, but it is not impossible. The region has faced many challenges in its history and has always found ways to adapt and survive. The Crooked Road winds through the mountains, but it does not stop at the mountains—it continues, finding a path around every obstacle, through every valley, over every ridge.
+
+The renewal of the Crooked Road and U.S. Route 23 corridor will require the same determination, the same resilience, the same spirit that built the region's communities, sustained them through difficult times, and preserved their culture and identity. With courage, cooperation, and commitment, the region can build an economy that honors its past, addresses its present challenges, and creates a prosperous future for generations to come.
+
+
+
+# CHAPTER ONE: UNDERSTANDING THE REGION
+
+---
+
+## Geographic and Demographic Foundations
+
+### Overview of the Crooked Road and U.S. Route 23 Corridor
+
+The Crooked Road and U.S. Route 23 corridor winds through the heart of Southwest Virginia, connecting communities that have shaped American culture and industry for generations. This 333-mile driving trail stretches from the Blue Ridge Mountains to the Cumberland Mountains, crossing some of the most historically significant and naturally beautiful landscapes in the eastern United States . The corridor is far more than a transportation route—it is a living testament to the resilience, creativity, and determination of the people who have called these hills home.
+
+U.S. Route 23 itself extends for approximately 61 miles through far Southwest Virginia, beginning at the Tennessee state line near Weber City and continuing northward to Pound at the Kentucky border . The route traverses communities including Gate City in Scott County, Norton (an independent city), and Big Stone Gap and Pound in Wise County, serving as a vital four-lane divided corridor connecting rural communities and facilitating regional commerce, tourism, and travel between the Tri-Cities metropolitan area in Tennessee and eastern Kentucky . Known primarily as the Orby Cantrell Highway, it forms a key segment of Corridor B within the Appalachian Development Highway System, designed to enhance economic development in the Appalachian region by improving access and reducing travel times across state lines .
+
+The route's significance extends beyond transportation. In 2004, the governor declared it Virginia's Heritage Music Trail, recognizing the extraordinary musical heritage that flourishes along its path . The idea for The Crooked Road came from the late musicologist Joe Wilson and Todd Christensen of the Virginia Department of Housing in 2003, and it has since become a symbol of the region's cultural identity . As museum curator Jessica Turner explains, the region represents a remarkable convergence of cultures: "You've got African-American spiritual songs that become influential. You've got certainly a Native American music tradition that is influential. You've got fiddle tunes from Western Europe that became influential, too. And all of this mixes together to become, really, what is distinctly Appalachian" .
+
+The communities along this corridor share common characteristics that make them both vulnerable and resilient. The region has historically depended on lumber and coal, and when the energy industry changed, the local economy suffered profoundly . In 2013, the poverty rate in Appalachian Virginia was 3 percent higher than the national average, reflecting the economic challenges that have accumulated over decades of industrial transition . Yet despite these challenges, the region has demonstrated remarkable resilience, preserving its cultural heritage and maintaining communities that continue to support one another through difficult circumstances.
+
+The demographic picture of the corridor reflects both the challenges of the past and the possibilities of the future. According to the Weldon Cooper Center for Public Service at the University of Virginia, the region's coal counties face significant population declines, with Buchanan County projected to lose 48 percent of its population over the next 25 years . Virginia's seven Central Appalachian coalfield counties collectively lost 7,208 residents between 2020 and 2025, according to U.S. Census Bureau data . The two main factors driving this decline are people leaving the region and the number of deaths exceeding birth rates . The median age in Buchanan County has almost doubled since 1980, from 26 to 47 years old, transforming it from one of Virginia's youngest counties to one of its oldest .
+
+Yet there is hope in these numbers. Hamilton Lombard of the Weldon Cooper Center notes that starting with the millennial generation, Southwest Virginia has retained about 70 percent of its young people—a figure on par with localities in Northern Virginia . The challenge, Lombard explains, is that the region now needs to attract additional young people to counteract an aging population where deaths increasingly outnumber births . The combination of new business growth and retaining its young people may eventually slow and even reverse the region's population loss, though it will take years to see the results in estimates and projections .
+
+### Transportation Infrastructure and Connectivity
+
+The transportation infrastructure of the Crooked Road and U.S. Route 23 corridor represents both the legacy of past industrial development and the foundation for future economic growth. The highway network that connects these communities has evolved over decades, shaped by the region's geography, economy, and the aspirations of its people.
+
+U.S. Route 23 enters Virginia from Tennessee as a four-lane divided highway, the Orby Cantrell Highway, passing through the rural landscapes of Scott County before reaching Gate City, the county seat . Here, the route joins a concurrency with U.S. Routes 58 and 421, forming a major east-west thoroughfare that traverses the Appalachian terrain . This concurrency extends approximately 16 miles through rural landscapes, passing communities such as Hiltons, home of the Carter Family Fold, before splitting at Duffield near the Lee County line . The highway's southern segment carries average daily traffic volumes ranging from 5,400 vehicles near Duffield to 12,000 near Gate City, reflecting its importance for freight and commuter traffic in this rural area .
+
+As the route continues through Lee County and into Wise County, it transitions from a surface highway to a four-lane divided freeway, bypassing the central areas of Big Stone Gap, Appalachia, and Norton . These bypasses were constructed over decades to improve safety and efficiency, eliminating most two-lane sections and incorporating modern freeway standards where possible . The freeway features interchanges designed to facilitate traffic flow around the urban core, including a partial cloverleaf interchange with U.S. Route 23 Business and U.S. Route 58 Alternate at mile marker 42.94 .
+
+In the independent city of Norton, the route continues as a four-lane divided freeway with a posted speed limit of 55 miles per hour, bypassing the city to the south and serving commercial and residential areas through a series of interchanges and signalized intersections . Key connections include an interchange at State Route 74 (Wise-Norton Road) and diamond interchanges providing access to Norton Road, Southmark Road Southwest, Woodland Drive Southwest, and Addington Avenue Southwest . This segment carries average daily traffic volumes ranging from 14,000 to 21,000 vehicles, underscoring its role as a primary commercial artery .
+
+North of Norton, the route passes through the town of Wise, the county seat, with a business loop providing access to local services while the mainline bypasses the town center to the east . The highway then transitions into more mountainous terrain within the Appalachian region, descending along Indian Creek for roughly 10 miles toward the Pound River valley . It crosses the Pound River near the town of Pound and ascends through forested ridges, culminating at Pound Gap in Pine Mountain—a historic Cumberland Mountains pass at 2,392 feet elevation—before reaching the Kentucky state line . This northern segment, with its notable horizontal curves and vertical sags, demands careful navigation but offers some of the most scenic views in the region.
+
+Beyond its local connections, U.S. Route 23 is part of a larger transportation network that connects Southwest Virginia to major markets. The highway is designated as Corridor B of the Appalachian Development Highway System, enhancing economic development by improving access and reducing travel times across state lines . It connects to Interstate 26 and Interstate 81, providing access to the Tri-Cities region of Tennessee, the Washington-Baltimore corridor, and the southeastern United States . This connectivity is essential for businesses that depend on efficient transportation of goods and for communities seeking to attract investment from outside the region.
+
+The railroad infrastructure that once served the coal industry remains in place, providing opportunities for freight transportation that could support manufacturing, agriculture, and timber industries. While passenger service has largely disappeared, the rail lines continue to operate, offering efficient movement of bulk commodities over long distances. This rail network, combined with the highway system, creates a multimodal transportation system that can support a diversified economy.
+
+The region's airports provide general aviation services, with commercial service available in nearby cities. Expanding air service could support business travel and tourism, making the region more accessible to investors, visitors, and potential residents. The combination of highways, railroads, and airports creates a transportation system that connects the Crooked Road corridor to national and international markets.
+
+### Public Utilities and Communications Infrastructure
+
+The availability and quality of public utilities and communications infrastructure are essential determinants of economic development potential. Communities with reliable electricity, clean water, modern telecommunications, and high-speed internet are better positioned to attract businesses, support remote work, and provide quality services to residents.
+
+Electrical service in the corridor is provided by multiple utilities, including Appalachian Power, which serves approximately 1 million customers in Virginia, West Virginia, and Tennessee . The company is part of American Electric Power, which operates and maintains the nation's largest electricity transmission system and more than 224,000 miles of distribution lines . This infrastructure provides the foundation for residential, commercial, and industrial development, but it also requires modernization to meet the demands of the twenty-first-century economy.
+
+Appalachian Power has demonstrated commitment to infrastructure improvement through innovative projects that leverage its existing assets for broadband expansion. In West Virginia, the company was awarded a $25 million grant to construct 658 miles of new "middle mile" fiber optic cable and utilize fiber strands along another 297 miles of its existing fiber infrastructure . These projects connect utility equipment and facilities, allowing more efficient and effective management of the power grid while facilitating broadband access for approximately 22,000 currently unserved households . Similar opportunities exist in the Virginia portion of the corridor, where utility infrastructure can support both electrical modernization and communications expansion.
+
+Water and wastewater systems throughout the corridor vary in age and condition. Many communities rely on systems built decades ago that require maintenance and upgrading. Reliable water and wastewater services are essential for public health, economic development, and quality of life. Investments in these systems can support business development, housing construction, and population growth.
+
+Broadband infrastructure has emerged as perhaps the most critical communications infrastructure for economic development. Access to high-speed internet is essential for businesses, education, healthcare, and daily life. Communities with reliable broadband can attract remote workers, support technology businesses, enable distance education, and provide telehealth services.
+
+Russell County demonstrates the potential of strategic broadband development. The county is served by three telecommunications companies—Shentel, Verizon, and Point Broadband—providing double and triple broadband redundancy for companies locating in the county . Point Broadband, deployed through strategic industrial development efforts, operates an all-fiber-optic telecommunications network comparable to any in the world, offering speeds of up to 1 Gbps and a performance level for data centers as high as tier-4 . This world-class network, coupled with Russell County's inland location and relatively mild climate, makes the area viable for companies needing locations for data redundancy and data storage . The telecommunications giant CGI found these resources attractive and has located in the Russell Regional Business Technology Park in Lebanon .
+
+Across Southwest and Central Virginia, additional broadband expansion is underway. Brightspeed, the nation's third-largest fiber broadband builder, is rapidly transforming the digital landscape, with planned fiber service reaching more than 177,000 homes and businesses across the state . The company has secured more than $16.6 million in federal Broadband Equity Access and Deployment (BEAD) program funding to expand its fiber network to reach another 4,963 locations in the state . In communities such as Buena Vista, Collinsville, Galax, Lexington, Martinsville, and Wytheville, fiber connectivity is changing what is possible, enabling remote work, online learning, e-commerce, and telehealth .
+
+As Rockbridge County Board of Supervisors Chair Leslie Ayers observed: "Fiber connectivity changes everything; it means students can learn without interruption, small businesses can compete online, and residents can access healthcare and jobs no matter where they live. Bringing fiber to our communities isn't just about faster speeds; it's about creating opportunity and ensuring every community has a fair shot at success in today's digital world" .
+
+The combination of reliable utilities and modern communications infrastructure creates the foundation for economic development. Businesses need electricity, water, and internet to operate. Residents need these services to work, learn, and live. Communities with modern infrastructure are better positioned to attract investment, create jobs, and retain population.
+
+Yet challenges remain. Many rural areas in the corridor lack adequate broadband infrastructure, a gap the COVID-19 pandemic highlighted as students, workers, and businesses struggled to connect. The federal government has recognized this challenge, with the $65 billion broadband provisions in the Bipartisan Infrastructure Law providing dedicated funding for middle mile projects that extend connectivity to unserved areas . These investments, combined with state and local initiatives, can bridge the digital divide and ensure that all communities in the Crooked Road and U.S. Route 23 corridor have access to the connectivity that is essential for twenty-first-century economic development.
+
+I will expand this into a more detailed **regional economic development handbook format**. Because the full expansion will be very large, I will provide it in sections. This first section expands the **regional strategy, Scott County, and Lee County** with more detail on businesses, infrastructure, agriculture, energy, workforce, and investment opportunities. I will continue with Wise/Norton, Russell, Dickenson, and Washington/Bristol in the following sections.
+
+# Southwest Virginia Economic and Energy Development Corridor
+
+## A Regional Investment Strategy for The Crooked Road and U.S. Route 23 Communities
+
+# Introduction: Building a Modern Appalachian Economy
+
+The Crooked Road and U.S. Route 23 corridor represent one of the most unique economic regions in the eastern United States. The area combines natural resources, industrial history, agricultural land, transportation infrastructure, cultural heritage, and a workforce with generations of experience in manufacturing, energy, construction, farming, forestry, and skilled trades.
+
+For much of the twentieth century, the economic identity of Southwest Virginia was built around coal mining, timber, agriculture, rail transportation, and manufacturing. These industries created towns, supported families, and built the infrastructure that remains today. However, changes in energy markets, automation, globalization, and population movement have created the need for a new economic strategy.
+
+The future economic model should not abandon the region's traditional strengths. Instead, it should modernize them. The forests, farms, industrial buildings, rail lines, highways, schools, and skilled workers that supported previous generations can become the foundation for a new economy based on advanced manufacturing, sustainable agriculture, renewable energy, technology, tourism, and entrepreneurship.
+
+The most successful rural economic regions in the United States have not depended on a single industry. They have created connected systems where agriculture supports food manufacturing, education supports businesses, transportation supports logistics, and natural resources create value-added products. Southwest Virginia has the opportunity to build this type of diversified economy.
+
+# Regional Economic Principles
+
+## 1. Modernize Existing Assets Before Building New Ones
+
+One of the greatest advantages of Southwest Virginia is the presence of existing infrastructure.
+
+The region already has:
+
+* Industrial buildings.
+* Rail connections.
+* Highways.
+* Electrical infrastructure.
+* Water systems.
+* Skilled workers.
+* Educational institutions.
+* Agricultural land.
+* Forest resources.
+
+Investment should focus on upgrading and reusing these assets rather than starting from the beginning.
+
+Former industrial buildings can become:
+
+* Advanced manufacturing facilities.
+* Technology centers.
+* Agricultural processing plants.
+* Energy businesses.
+* Training centers.
+
+Former mining areas can become:
+
+* Solar energy sites.
+* Industrial parks.
+* Recreation areas.
+* Wildlife restoration areas.
+
+## 2. Create Local Value From Local Resources
+
+Historically, many regional resources left the area with limited economic benefit remaining locally. A modern strategy should focus on processing resources within the region.
+
+Examples include:
+
+Timber:
+
+* Instead of shipping raw logs, produce furniture, flooring, engineered wood, modular building materials, and musical instruments.
+
+Agriculture:
+
+* Instead of selling raw products, create food processing, packaging, and regional brands.
+
+Energy:
+
+* Instead of only producing energy, develop energy technology, manufacturing, and workforce training.
+
+Culture:
+
+* Instead of only preserving music traditions, create recording studios, digital content, and music technology businesses.
+
+# Scott County Economic Development Profile
+
+## Communities:
+
+Gate City, Weber City, Duffield, Nickelsville, Moccasin, Fort Blackmore, Dungannon, Hiltons
+
+# Scott County Overview
+
+Scott County represents one of the strongest examples of a rural economy built around agriculture, natural resources, transportation, and community-based businesses.
+
+The county has several advantages:
+
+* Affordable land.
+* Agricultural valleys.
+* Forest resources.
+* Access to Tennessee markets.
+* Skilled trades workforce.
+* Rural quality of life.
+* Outdoor recreation opportunities.
+
+The county's future economic strategy should focus on agriculture modernization, food production, forestry, transportation, and small business growth.
+
+# Gate City Economic Development
+
+Gate City serves as the governmental and commercial center of Scott County. The town provides important services including government offices, retail, healthcare, education, and small businesses.
+
+The community has potential for growth through:
+
+* Downtown revitalization.
+* Small business development.
+* Professional services.
+* Regional food businesses.
+* Technology-based companies.
+
+A major opportunity is creating a regional agricultural business network.
+
+Farmers could produce:
+
+* Beef.
+* Poultry.
+* Vegetables.
+* Fruit.
+* Specialty crops.
+* Honey.
+* Timber products.
+
+These products could be processed through regional facilities located near transportation routes.
+
+Potential businesses include:
+
+* Food packaging.
+* Cold storage.
+* Meat processing.
+* Commercial kitchens.
+* Agricultural supply companies.
+
+Gate City could become a center connecting rural producers with larger markets.
+
+# Weber City Economic Development
+
+Weber City benefits from its location near Tennessee markets and transportation corridors.
+
+Its economic advantages include:
+
+* Highway access.
+* Commercial locations.
+* Proximity to larger population centers.
+* Available workforce.
+
+Future opportunities include:
+
+## Logistics Development
+
+The community could support:
+
+* Distribution centers.
+* Truck services.
+* Equipment repair.
+* Transportation companies.
+
+## Energy Support Businesses
+
+As energy infrastructure expands, opportunities include:
+
+* Electrical contractors.
+* Solar installation companies.
+* Equipment maintenance.
+* Utility support services.
+
+## Construction Growth
+
+Affordable land creates opportunities for:
+
+* Housing development.
+* Modular construction.
+* Building material businesses.
+
+# Duffield Economic Development
+
+Duffield has one of the strongest logistical opportunities in Scott County because of transportation connections.
+
+The community has potential as a regional movement and processing center.
+
+## Rail Opportunities
+
+Existing rail infrastructure could support:
+
+* Timber transportation.
+* Agricultural products.
+* Industrial materials.
+* Energy equipment.
+
+Rail development could reduce transportation costs and create new businesses.
+
+## Industrial Opportunities
+
+Duffield could support:
+
+* Manufacturing facilities.
+* Warehousing.
+* Agricultural processing.
+* Forestry operations.
+
+## Timber Industry Expansion
+
+The region's forests represent a major renewable resource.
+
+Future businesses could include:
+
+* Hardwood processing.
+* Furniture manufacturing.
+* Engineered wood products.
+* Building materials.
+
+# Nickelsville, Moccasin, Fort Blackmore, Dungannon, Hiltons
+
+These rural communities have significant agricultural and natural resource advantages.
+
+## Agricultural Development
+
+Small farms can become economically stronger through:
+
+* Cooperative marketing.
+* Shared equipment.
+* Food processing.
+* Farm tourism.
+
+Potential products include:
+
+* Livestock.
+* Produce.
+* Appalachian specialty foods.
+* Herbs.
+* Farm products.
+
+## Forestry Development
+
+Tree farming represents an important opportunity.
+
+Landowners can develop:
+
+* Managed hardwood forests.
+* Specialty tree farms.
+* Christmas tree operations.
+* Wildlife-friendly forests.
+
+The goal is creating a continuous cycle:
+
+Plant → Manage → Harvest → Process → Replant
+
+This creates long-term wealth rather than one-time income.
+
+## Tourism Opportunities
+
+Communities such as Hiltons have cultural significance through Appalachian music traditions.
+
+Economic opportunities include:
+
+* Music tourism.
+* Farm tourism.
+* Outdoor recreation.
+* Lodging.
+* Artisan businesses.
+
+# Lee County Economic Development Profile
+
+## Communities:
+
+Jonesville, Pennington Gap, Rose Hill, Ewing, Keokee, Ben Hur, St. Charles
+
+# Lee County Overview
+
+Lee County has a strong foundation in agriculture, energy history, forestry, and small business. Its location at Virginia's western border provides opportunities for regional trade.
+
+The county's future should focus on:
+
+* Agricultural expansion.
+* Manufacturing.
+* Forestry.
+* Tourism.
+* Small business growth.
+
+# Jonesville Economic Development
+
+Jonesville serves as the county seat and provides government, business, and community services.
+
+Future opportunities include:
+
+* Business services.
+* Healthcare-related businesses.
+* Workforce training.
+* Agricultural support.
+
+A business incubator could help entrepreneurs establish:
+
+* Construction companies.
+* Technology services.
+* Food businesses.
+* Professional services.
+
+# Pennington Gap Economic Development
+
+Pennington Gap has historically served as a commercial center.
+
+Opportunities include:
+
+* Downtown redevelopment.
+* Small manufacturing.
+* Retail expansion.
+* Service businesses.
+
+The community could benefit from investment in:
+
+* Building renovation.
+* Small business grants.
+* Tourism development.
+
+# Rose Hill, Ewing, Keokee, Ben Hur, St. Charles
+
+These communities represent the agricultural and natural resource foundation of Lee County.
+
+## Agriculture Opportunities
+
+Development areas include:
+
+* Livestock.
+* Hay production.
+* Specialty crops.
+* Farm processing.
+
+## Forestry Opportunities
+
+Sustainable forestry can support:
+
+* Lumber.
+* Furniture.
+* Construction materials.
+* Wood energy products.
+
+## Renewable Energy
+
+Available land creates opportunities for:
+
+* Solar installations.
+* Agricultural energy systems.
+* Energy-efficient homes.
+
+# Conclusion: The Foundation for Growth
+
+Scott and Lee Counties demonstrate the broader opportunity available throughout Southwest Virginia. These communities already possess the basic ingredients needed for economic renewal: land, resources, transportation, workers, and cultural identity.
+
+The future depends on creating connections between these assets. Farms must connect with food manufacturers. Forests must connect with wood-product businesses. Schools must connect with employers. Transportation systems must connect local businesses with national markets.
+
+The goal is not to recreate the past. The goal is to build a modern economy that uses the strengths of the past to create opportunities for future generations.
+
+# CHAPTER ONE: UNDERSTANDING THE REGION
+
+---
+
+## County and Community Profiles
+
+The Crooked Road and U.S. Route 23 corridor encompasses a diverse collection of communities across multiple counties in Southwest Virginia. Each county and town possesses unique characteristics shaped by geography, history, and economic evolution. Understanding these distinct profiles is essential for developing targeted economic development strategies that build upon local strengths while addressing specific challenges.
+
+---
+
+### Scott County
+
+Scott County occupies a position at the eastern edge of the corridor, bordering Tennessee and Kentucky along the southern and western boundaries of Virginia's Appalachian region. The county's geography encompasses the Clinch River Valley, fertile agricultural bottomlands, and the forested ridges of the Appalachian Plateau. This varied terrain has supported a diversified economy of farming, timber, and small-scale manufacturing for generations, creating a rural character that persists despite the challenges of economic transition.
+
+**Population and Demographics**
+
+Scott County has experienced a gradual but steady population decline over the past several decades. According to U.S. Census Bureau data, the county's population decreased from 23,403 in 2000 to 21,566 in 2020, with an estimated 21,388 residents as of 2024 . This decline reflects broader regional trends of outmigration and aging, though the pace has moderated in recent years. The county's population remains predominantly rural, with only 365 residents classified as living in urban areas out of more than 21,000 total .
+
+The demographic profile reveals an aging population structure. Age distribution data shows approximately 3,920 residents under age 18, 12,359 between 18 and 64, and 5,297 aged 65 and older . The significant population of older residents creates challenges for workforce availability and healthcare services while also representing an opportunity for senior-oriented services and housing.
+
+Racial composition remains overwhelmingly White, with 20,617 residents identifying as White, 134 as Black or African American, and 699 reporting two or more races . Hispanic or Latino residents number only 255, reflecting the region's limited diversity . This demographic homogeneity shapes cultural identity and community cohesion while also creating challenges for attracting diverse populations.
+
+**Economic Characteristics**
+
+Scott County's economy reflects its rural and agricultural heritage. Median household income levels lag significantly behind state averages, with many families dependent on farming, timber, manufacturing, and service sector employment. The county's location along U.S. Route 23 provides transportation access to markets, while the railroad infrastructure offers freight options for agricultural and timber products.
+
+**Gateway Communities**
+
+Gate City serves as the Scott County seat and the primary commercial center along the U.S. Route 23 corridor. Its population has remained relatively stable, with 2,045 residents in 2020 and an estimated 2,019 in 2024 . The town functions as a hub for county government services, retail, and education. Its historic downtown contains buildings dating from the early twentieth century, many of which have been maintained and adapted for contemporary uses. The town's location at the junction of U.S. Route 23 and U.S. Route 58 provides accessibility and visibility.
+
+Weber City lies adjacent to the Tennessee state line, its population of 1,236 residents  benefiting from proximity to the Tri-Cities metropolitan area. This location provides access to regional employment and services while maintaining the character of a small town. Weber City's position along the southern gateway to the Crooked Road offers opportunities for tourism and commerce.
+
+Duffield, with an estimated population of 69 residents , sits at a strategic junction where U.S. Route 23 splits from its concurrency with U.S. Routes 58 and 421. This small community serves as a gateway to both the northern and western portions of the corridor. Nearby Hiltons, home of the Carter Family Fold, is arguably the most culturally significant location in Scott County. The Carter Family—known as the "First Family of Country Music"—established their musical legacy at this location, and the Fold continues to host performances that draw visitors from around the world .
+
+Nickelsville, with 376 residents , and Dungannon, with 251 residents , represent the smaller communities that dot the county. These towns maintain strong agricultural traditions and community connections. Moccasin and Fort Blackmore are unincorporated communities with deep historical roots, their names reflecting Native American heritage and frontier history. Each of these communities faces challenges of population retention and economic diversification while possessing the assets of community cohesion, available land, and agricultural resources.
+
+---
+
+### Lee County
+
+Lee County occupies the southwestern corner of Virginia, bordered by Tennessee to the south and Kentucky to the west. Its geography encompasses the Cumberland Mountains, the Powell River Valley, and the Clinch River watershed. This region was historically significant for coal mining and timber production, industries that shaped community development but have since declined substantially.
+
+**Population and Demographics**
+
+Lee County has experienced significant population decline as coal employment has decreased, leaving many commercial buildings vacant and industrial sites underutilized. The county's population patterns reflect the broader challenges facing the Central Appalachian coalfields. Areas such as Pennington Gap and Jonesville show median household incomes far below state averages, with Pennington Gap's ZIP code area reporting a median household income of $29,938 .
+
+**Economic Characteristics**
+
+The economy of Lee County has historically depended on coal mining, timber, and agriculture. The decline of coal has created substantial economic dislocation, with unemployment and poverty rates exceeding state averages. According to ZIP code data, the Pennington Gap area had an unemployment rate of 3.8 percent as of September 2025, with 41.1 percent of households earning less than $25,000 annually . Educational attainment levels reflect these economic challenges, with only 7.85 percent of adults holding bachelor's degrees . However, the presence of natural resources, including forests and agricultural land, provides opportunities for economic diversification.
+
+**Community Profiles**
+
+Jonesville serves as the Lee County seat, functioning as the center for government services and local commerce. The town has maintained its historic character while seeking new economic opportunities following the decline of coal. Its location along U.S. Route 23 provides transportation access, and its historic downtown offers potential for revitalization.
+
+Pennington Gap, with a population of approximately 6,342 in the surrounding ZIP code area , has been a center for coal mining and now faces economic transition. The community has worked to attract new industries and develop tourism related to its mining heritage. The presence of natural resources, including forests and agricultural land, provides opportunities for economic diversification. However, median household income of $35,749 within a five-mile radius of Pennington Gap remains significantly below state averages .
+
+Rose Hill, Ewing, Keokee, Ben Hur, and St. Charles are smaller communities distributed throughout the county. Each has been affected by the decline of coal mining, with reduced employment and population. These communities possess available land, natural resources, and transportation access that could support new economic activities.
+
+---
+
+### Wise County and the City of Norton
+
+Wise County and the independent City of Norton form the northern heart of the Crooked Road corridor. This region contains many of the most visible displays of country music and coal heritage, with commercial buildings dating from the coal boom of the 1920s through 1960s. Historic murals, guitars, and music-themed decorations adorn downtowns alongside vacant storefronts, creating a tangible connection to both prosperity and challenge.
+
+**Population and Demographics**
+
+The region has experienced significant demographic shifts as coal employment has declined. However, recent data suggests some stabilization, particularly among the 25-to-44-year-old workforce. Research from the University of Virginia's Weldon Cooper Center for Public Service indicates that the decline in this age group has slowed in Wise and Lee counties during the first half of the 2020s compared to the early 2010s . This trend appears linked to the growth of remote work, which has allowed professionals to bring higher-paying jobs to the region while enjoying the low cost of living .
+
+**Economic Characteristics**
+
+Norton has been identified as the second poorest county in Virginia, with an average household income of only $32,98 . This economic reality reflects the challenges facing communities that depended heavily on coal mining. However, Norton has been working to diversify its economy through outdoor recreation centered on High Knob while remaining an important stop on U.S. Route 23. Nearby Coeburn exemplifies the region's demographic shifts, with a median age of 44.8 years .
+
+**Community Profiles**
+
+Big Stone Gap serves as a historic coal town with distinctive architecture and cultural attractions, including the Southwest Virginia Museum. The town has embraced its heritage while working to develop new economic opportunities. Its location along the U.S. Route 23 corridor provides access to regional markets, and its historic downtown retains the character of the coal boom era.
+
+Appalachia is a small city that has faced significant economic challenges following the decline of coal. Its name reflects the region's identity, and its residents have maintained their cultural heritage despite economic difficulties. The city's potential lies in heritage tourism, outdoor recreation, and small business development.
+
+Norton, as an independent city, serves as a regional center for government, commerce, and education. Its location at the intersection of major highways positions it as a transportation hub. The city has worked to diversify its economy through outdoor recreation, healthcare, and retail. The presence of High Knob, the highest point in the region, provides recreational opportunities that can attract visitors and residents.
+
+Wise serves as the county seat of Wise County and home to the University of Virginia's College at Wise. The university provides educational and cultural resources that support the local economy and community life. The city's location on U.S. Route 23 and its role as a regional center for government, education, and commerce make it strategically important. The university has become increasingly important to the local economy, providing employment, educational opportunities, and cultural programming.
+
+Coeburn, with a population of 1,639 , is home to the Ralph Stanley Museum and Traditional Mountain Music Center, which attracts visitors interested in bluegrass and old-time music. The median household income of $55,104 in Coeburn is slightly above the county average but still far below the Virginia median of $93,170 . Coeburn's poverty rate of 19.1 percent reflects the economic challenges facing the region .
+
+Pound lies near the Kentucky border, maintaining strong musical traditions and community connections. Its location at the northern end of the corridor provides opportunities for tourism and commerce related to music heritage. The town has invested in preserving its historic character and promoting its cultural assets.
+
+---
+
+### Russell County
+
+Russell County lies between the more urbanized Washington County to the southwest and the coal-impacted counties of Wise and Dickenson to the north and east. Its geography includes the Clinch River Valley, the Cumberland Mountains, and significant agricultural land. The county has maintained a diversified economy of agriculture, manufacturing, and services, making it somewhat more resilient than neighboring counties.
+
+**Population and Demographics**
+
+Russell County has shown slight growth in its 25-to-44-year-old workforce in recent years . This trend reflects the broader pattern of stabilization in some Southwest Virginia counties, driven by remote work and migration from more expensive urban areas. The county's location between the Bristol metropolitan area and the coal counties provides advantages for residents seeking a balance of rural living and access to regional employment.
+
+**Economic Characteristics**
+
+The county has actively pursued industrial development, including the Russell Regional Business Technology Park in Lebanon. Telecommunications giant CGI located in this technology park, attracted by the county's investment in broadband infrastructure . This success demonstrates the potential for technology-based economic development when communities invest in the necessary infrastructure.
+
+**Community Profiles**
+
+St. Paul, with a population of approximately 1,046 residents , lies in the western portion of Russell County near the Clinch River. The town has worked to develop outdoor recreation and heritage tourism as economic development strategies. Its location along the Clinch River provides opportunities for fishing, paddling, and wildlife viewing.
+
+Castlewood, with a population of approximately 1,120 residents , is located in the eastern portion of the county. The town's agricultural roots and community connections provide a foundation for economic development. Available land and access to transportation routes support potential agricultural and manufacturing growth.
+
+---
+
+### Dickenson County
+
+Dickenson County represents the most rural and remote portion of the corridor, with communities nestled in the mountain valleys of the Cumberland Plateau. The county has been profoundly affected by the decline of coal mining, with population loss and economic challenges that have tested community resilience.
+
+**Population and Demographics**
+
+Dickenson County's population has declined significantly as coal employment has decreased. The population within a five-mile radius of Haysi was 4,115, with a median household income of $50,254, which is below the Virginia median of $93,170 but above the Dickenson County average of $47,254 . Haysi itself reported a population of 506 as of July 2025, with a median household income of $34,527 and a per capita income of only $10,686 . These figures reflect the extreme poverty that exists in some portions of the county.
+
+**Economic Characteristics**
+
+The county's economy has historically depended on coal mining and timber. The decline of coal has created substantial economic dislocation, with high unemployment, poverty, and population loss. However, the county's natural resources, including forests and water, provide opportunities for economic diversification. The development of outdoor recreation, sustainable forestry, and agriculture could support a more resilient economy.
+
+**Community Profiles**
+
+Clintwood serves as the Dickenson County seat, functioning as the center for government services and local commerce. The town has worked to develop heritage tourism and outdoor recreation as economic development strategies. Its location provides access to the county's natural resources and recreational opportunities.
+
+Haysi, with a population of approximately 506 , is located in the southern portion of the county along the Russell Fork River. The town has been affected by the decline of coal, with reduced employment and population. However, its location along the river provides recreational opportunities that could support tourism.
+
+Clinchco and Birchleaf represent the smaller communities of the county, each maintaining strong community connections while facing economic challenges.
+
+---
+
+### Washington County and Bristol Area
+
+Washington County forms the southwestern gateway to the Crooked Road corridor, benefiting from proximity to the Tri-Cities metropolitan area and Interstate 81. This location provides economic advantages that have made the county more prosperous and more resilient than other portions of the corridor.
+
+**Population and Demographics**
+
+Washington County's population of approximately 54,219 residents makes it one of the larger counties in Southwest Virginia . The county has shown slight growth in its 25-to-44-year-old workforce, reflecting the migration of remote workers and professionals to the region . However, this growth has been uneven, with Bristol experiencing decline while adjacent counties have seen slight growth .
+
+**Economic Characteristics**
+
+Washington County's economy is more diversified than many neighboring counties, with healthcare, education, retail, tourism, and professional services contributing to employment and income. The median household income of $66,230 reflects this economic diversity, though significant disparities exist between communities . Within the county, median household income ranges from $28,983 in Damascus to $85,747 in Abingdon, a 3.0 times gap .
+
+**Community Profiles**
+
+Bristol, located on the Virginia-Tennessee border, is known for its country music heritage and the Bristol Rhythm and Roots festival. The city has been affected by the growth of remote work, with a 30 percent increase in Washington D.C.-based workers working from Southwest Virginia between 2019 and 2022 . However, the city's 25-to-44-year-old population has not grown as much as adjacent counties, likely due to a shortage of residential units. Bristol had only 2.77 months of housing inventory in November 2024, well below the balanced market level of approximately six months . The city's housing shortage reflects its limited land for new construction and current zoning policies that constrain development .
+
+Abingdon, with a population of approximately 16,814 residents , serves as the Washington County seat and a regional center for arts, culture, and commerce. The Barter Theatre, a historic professional theater, attracts visitors from throughout the region. The median household income of $85,747 in the 24211 ZIP code area  reflects the economic advantages of the Abingdon area. Educational attainment is also higher, with 38.3 percent of adults holding bachelor's degrees , compared to the county average of 26.7 percent.
+
+Mendota, with a population of approximately 416 residents , is located in the northern portion of Washington County near the Virginia-Tennessee border. This small community maintains agricultural roots and community connections while being accessible to regional employment.
+
+Damascus, with a population of approximately 3,109 residents , is located on the Virginia-Tennessee border and is known for its outdoor recreation opportunities. The town sits at the intersection of the Virginia Creeper Trail and the Appalachian Trail, attracting cyclists, hikers, and outdoor enthusiasts. Despite its tourism potential, Damascus reports the lowest median household income in Washington County at $28,983 , with only 17.5 percent of adults holding bachelor's degrees .
+
+
+
+## CHAPTER ONE: UNDERSTANDING THE REGION (Continued)
+
+---
+
+### Population Trends and Challenges
+
+#### Fifty Years of Population Decline
+
+The population decline across the Crooked Road and U.S. Route 23 corridor represents one of the most profound demographic shifts in contemporary American history. The nine-county, two-city region that constitutes Southwest Virginia's core has lost nearly 60,000 residents since 1980, when the region was home to nearly 340,000 people . By 2023, the population had fallen to 279,241, with the region's population dropping by 5,963 people since the 2020 census alone . This represents a continuation of a trend that saw the region decline by 8.9 percent—some 27,860 people—between 2010 and 2020 .
+
+The scale of loss becomes even more stark when examining individual counties. Buchanan County's population has fallen to barely more than half of its 1980 population of 37,989 . Lee County has experienced a 2.4 percent decline since 2020 and a staggering loss of more than 3,900 residents since 2010 . Wise County lost 12.8 percent of its population between 2010 and 2020 . The combined population of Wise County and Norton City reached its lowest level since before 1920 in the 2020 census, with just 39,817 residents .
+
+These figures represent more than statistical abstractions; they represent the departure of families who have called these mountains home for generations, the closure of businesses that once anchored downtowns, and the contraction of communities that once supported vibrant civic and cultural life. The population decline has been attributed largely to challenges to the primary economic bases of coal and tobacco, industries that sustained the region for generations but which have been fundamentally reshaped by automation, globalization, and shifting energy markets .
+
+#### The Widening Economic and Educational Divide
+
+The economic transformation of the United States over the past half-century has fundamentally reshaped Virginia's demographics and created a widening chasm between the state's rural and urban regions. As Dr. Amanda Weinstein of the Center on Rural Innovation observed at the 2026 Southwest Virginia Economic Forum, "Richer places are becoming richer and poorer places are becoming poorer decade after decade" . This observation captures a central challenge facing the Crooked Road corridor: the structural economic forces that have concentrated wealth and opportunity in urban centers have systematically disadvantaged rural regions.
+
+At the end of World War II, 14 percent of Virginia's residents lived in Southwest Virginia, while 43 percent lived in all rural counties outside the state's current metropolitan areas . Today, those figures are 4 percent and 14 percent, respectively . The shift reflects the U.S. economy's movement toward high-paying service industries—accounting, law, engineering, finance, and technology—which have concentrated in the nation's largest metropolitan areas . The departure of Norfolk Southern's corporate headquarters from Roanoke, first to Norfolk in the 1980s and then to Atlanta in the 2010s, exemplifies this pattern .
+
+The income gap between Virginia's wealthiest and poorest counties is now the largest of any state in the nation. In Loudoun County, the median household income exceeds $180,000, while in Lee County it hovers near $42,000 . No other state has a larger income gap between two counties . This disparity reflects the fundamental economic reality that nearly half of Northern Virginia's workforce is employed in high-paying service industries, while in Southwest Virginia the share is under 15 percent .
+
+The Appalachian Regional Commission's economic status designations for fiscal year 2026 quantify this divide with devastating clarity. Lee County, Buchanan County, Dickenson County, and Wise County (combined with Norton City) are all designated as "Distressed"—the commission's most severe economic status classification . Lee County's per capita market income is just $21,818, or 38.2 percent of the U.S. average, with a poverty rate of 27.6 percent . Wise County's per capita market income stands at $23,528, or 41.2 percent of the U.S. average, with an 18.5 percent poverty rate . Russell and Scott counties are designated as "At-Risk," reflecting their vulnerability to economic decline . The composite index for Lee County ranks 3,000 out of 3,106 counties nationwide, placing it in the lowest quartile of economic performance .
+
+The educational attainment gap between the region and the state as a whole compounds these economic challenges. The percentage of persons with a high school diploma for the state of Virginia is 89 percent, compared to 38 percent having a bachelor's degree or higher . However, in the Lenowisco Planning District Commission—which encompasses Lee, Wise, and Scott counties—the percentage of persons with a bachelor's degree or higher is below the state average . This educational deficit limits the region's ability to compete for the high-paying service industries that have driven economic growth elsewhere in Virginia.
+
+#### Outmigration of Younger Generations
+
+Perhaps the most troubling aspect of the region's population decline is the persistent outmigration of younger generations. The loss of young adults has fundamentally reshaped the demographic structure of the corridor, creating a self-reinforcing cycle of decline. As Hamilton Lombard of the University of Virginia's Weldon Cooper Center for Public Service has documented, the loss of young adults and its resulting birth-death imbalance has put Southwest Virginia on track to have 100,000 fewer residents by 2050 than it did in 2010—a decline of 25 percent .
+
+The departure of young people reflects a combination of limited economic opportunity and educational attainment patterns. Data from the Census Bureau and Harvard's Opportunity Atlas show that millennials from Southwest Virginia were more likely to complete college than their peers just across the state line in neighboring states, but also more likely to leave and not return . This pattern is particularly damaging because it means that the region's investment in education—often made through significant public expenditure—benefits other communities where these educated young people ultimately settle and build their careers.
+
+Between 2010 and 2013, nearly 4,500 more adults ages 25 to 44 left Southwest Virginia than moved to it . This outmigration represented a hemorrhage of human capital that drained the region of its most productive demographic cohort. The loss was driven by the region's inability to create sufficient jobs in fast-growing service industries, forcing young adults to seek employment elsewhere. The economic transition that began in the 1970s and 1980s—when employers began prioritizing access to large pools of skilled workers—accelerated this pattern, with white-collar industries concentrating in the country's largest metropolitan areas .
+
+Yet there are signs that this trend may be moderating. In the three years since 2020, the number of young adults leaving Southwest Virginia dropped to 764, with some counties now gaining young adults . This shift appears linked to the growth of remote work, which has allowed professionals to bring higher-paying jobs to the region while enjoying the low cost of living and quality of life that the corridor offers . Between 2019 and 2022, there was a 30 percent increase in Washington D.C.-based workers working from Southwest Virginia . This trend represents a potential reversal of the long-standing pattern of outmigration, though its sustainability remains uncertain.
+
+#### Demographic Imbalance and Aging Population
+
+The cumulative effect of decades of population decline and young adult outmigration has created a profound demographic imbalance, with an aging population structure that will shape the region's future for decades to come. Scott County's median age now stands at 48.7 years, significantly higher than the Virginia median of 40.2 years and the national median of 40.3 years . The county's age distribution reveals the depth of the demographic challenge: 1,283 residents aged 75 to 79, compared to just 1,059 residents aged 25 to 30—a cohort that should be far more numerous in a healthy population structure .
+
+The transformation of Buchanan County serves as a cautionary tale for the entire region. In 1980, the median age in Buchanan County was 26, younger than any other Virginia county without a college or military base . By 2020, it had reached 48, nearly a decade above the statewide median . The median age has almost doubled since 1980, transforming it from one of Virginia's youngest counties to one of its oldest . This pattern, while most extreme in Buchanan, is being replicated across the corridor, with Scott County's median age climbing from 44.3 in 2010 to 47.7 in 2024 .
+
+The aging of the population has profound implications for the region's future. Seniors (ages 65 and older) now make up 25.3 percent of Scott County's population, while children under 18 represent just 14.0 percent . This inverted age structure means that there are nearly twice as many elderly residents as children—a ratio that strains healthcare and social services while reducing the future workforce. The Weldon Cooper Center projects that Wise County will lose another 28.1 percent of its population by 2050, with Norton losing an additional 15.9 percent during the same period . By 2050, Wise County is projected to have just 25,955 residents, down from 36,130 in 2020 .
+
+The age structure also has implications for community vitality. Older populations typically have lower workforce participation rates, reducing the tax base and making it harder to fund public services. They require more healthcare and social services, straining systems that are already underfunded. They are less likely to start businesses or engage in entrepreneurial activity, reducing economic dynamism. The region's age structure thus creates a self-reinforcing cycle of decline: fewer young people means fewer workers, which means fewer businesses, which means fewer opportunities, which means fewer young people.
+
+#### Impact on Tax Base, Public Services, and Community Vitality
+
+The fiscal consequences of population decline are perhaps the most immediate and visible impacts on communities throughout the Crooked Road corridor. As the Appalachian Regional Commission has documented, per capita income in Appalachian Virginia was just $32,783 in 2023—only 57.4 percent of the U.S. average—while the poverty rate stood at 17.0 percent, significantly higher than the national average . These economic indicators translate directly into reduced tax revenues, making it increasingly difficult for counties and municipalities to maintain essential services.
+
+The decline in the tax base has led to difficult budget decisions across the region. Lee County's per capita income of $21,818 and poverty rate of 27.6 percent  create an extremely narrow tax base for funding schools, roads, public safety, and other essential services. Wise County's per capita income of $23,528 and poverty rate of 18.5 percent  similarly constrain local government's ability to invest in infrastructure and economic development. As the 2022-2025 Virginia Appalachian Regional Commission Program Development Plan notes, poverty level estimates for the Virginia Appalachian Region average 19 percent, compared to 11 percent statewide, with 27 of the 33 Appalachian localities having a higher estimated percentage of residents living below the poverty level than the statewide average .
+
+The impact on public services is particularly acute in the area of education. As Carter County schools were forced to cut teachers after losing $600,000 in state funding following the 2020 census, other communities throughout the region face similar challenges . State funding formulas tied directly to population mean that declining enrollment translates directly into reduced educational resources at a time when students may need additional support. Schools that lose students must consolidate or close, removing community anchors and making it harder to attract young families.
+
+Infrastructure maintenance is another casualty of the shrinking tax base. Roads, water systems, wastewater treatment plants, and other public facilities require ongoing investment, but declining populations mean fewer taxpayers to support these systems. The Appalachian Regional Commission has identified the accessibility problems of adequate water and sewer services as a significant challenge , with many communities relying on aging infrastructure that requires expensive upgrades. The Virginia Department of Housing and Community Development administers the Indoor Plumbing Program to address deficiencies in indoor plumbing and potable water service, a reminder that even basic infrastructure remains a challenge in some communities .
+
+The impact on community vitality extends beyond dollars and budgets. Empty storefronts, closed schools, and deteriorating public spaces create a psychological environment that reinforces decline. Business owners who see their customer base shrinking are less likely to invest in their enterprises. Residents who see their neighbors moving away may decide to leave themselves. Local leaders who face dwindling revenues may struggle to maintain the community amenities that attract and retain residents. The cycle of decline can become self-perpetuating, with each year of population loss making the next year's losses more likely.
+
+#### Opportunities Created by Population Decline
+
+Despite the profound challenges presented by population decline, the Corridor's demographic trends also create opportunities for strategic economic development. As Hamilton Lombard of the Weldon Cooper Center has noted, starting with the millennial generation, Southwest Virginia has retained about 70 percent of its young people—a figure on par with localities in Northern Virginia . The combination of new business growth and retaining young people may eventually slow and even reverse the region's population loss .
+
+The shift in migration patterns since 2020 offers cause for cautious optimism. In the 2010s, the region lost about 1,300 more people a year to other parts of the country than it gained . Since 2020, these numbers have reversed, with the region attracting 1,300 new residents annually . Only two counties in the region still see more people moving out than in . Across Virginia, more counties are attracting new residents than at any point in fifty years .
+
+Much of this shift has been driven by rural areas losing fewer and attracting more young adults . The COVID-19 pandemic blurred the rural-urban divide, with remote work enabling professionals to relocate to areas with lower cost of living and higher quality of life. Broadband expansion, accelerated by the $65 billion broadband provisions in the Bipartisan Infrastructure Law, has the potential to further enable this trend by connecting rural communities to the digital economy.
+
+The 2026 Southwest Virginia Economic Forum, held at UVA Wise, reflected this shifting sentiment. Governor Spanberger emphasized that "Southwest Virginia is a strategic part of Virginia's future" . Virginia Tourism Corporation President and CEO Rita McClenny described how tourism patterns have shifted after the pandemic, with more Americans looking toward smaller towns and outdoor destinations . Tourism spending across Southwest Virginia reached approximately $1.3 billion during 2024 , representing a significant economic opportunity.
+
+The region's available land, affordable housing, and natural beauty have become assets in attracting new residents and businesses. As Virginia Economic Development Partnership President and CEO Jason El Koubi noted, "The places that create the conditions and environment where people want to be, those are the places that are going to be more successful" . This perspective suggests that the Corridor can leverage its quality of life assets—which have always been present but were undervalued in an era when economic development meant attracting large industrial employers—to build a more diversified and resilient economy.
+
+The forum also highlighted the redevelopment of former mine land sites in Norton tied to Project Intersection and new manufacturing investments . These initiatives demonstrate how the region can transform liabilities—abandoned industrial sites—into assets for new economic activities. Similarly, the Big Cherry Reservoir development near Big Stone Gap  shows how strategic investments in infrastructure can create new opportunities for tourism, recreation, and economic development.
+
+The demographic challenges facing the Corridor are real and substantial. The Appalachian Regional Commission's projections suggest that the region faces continued population decline for decades to come . However, the shifting migration patterns, growing interest in rural living, and strategic investments in infrastructure and economic development create the potential for a different trajectory—one in which the Corridor's enduring strengths become the foundation for renewed prosperity.
+
+# CHAPTER ONE: UNDERSTANDING THE REGION (Continued)
+
+---
+
+### Educational Attainment and Workforce Skills
+
+#### Current Educational Statistics
+
+The educational attainment landscape of the Crooked Road and U.S. Route 23 corridor presents a complex picture of challenges and emerging opportunities. While the region has made strides in certain areas, significant gaps remain between the corridor's educational outcomes and those of Virginia as a whole. These gaps have profound implications for economic development, workforce recruitment, and the region's ability to compete in an increasingly knowledge-based economy.
+
+**Regional Educational Attainment Compared to State Averages**
+
+The percentage of persons with a high school diploma for the state of Virginia stands at 89 percent, while 38 percent hold a bachelor's degree or higher . However, in the Lenowisco Planning District Commission—which encompasses Lee, Wise, and Scott counties—the percentage of persons with a bachelor's degree or higher falls significantly below the state average . This educational deficit represents one of the most significant barriers to economic development in the corridor, as businesses requiring highly educated workers are unlikely to locate in regions where such workers are scarce.
+
+The Southern Regional Education Board's postsecondary attainment goals provide additional context for understanding the region's educational challenges. Virginia has set a goal of achieving 70 percent postsecondary attainment among its working-age population (ages 25-64) by 2030, up from the 2019 attainment level of 57.4 percent . While this represents an ambitious target for the state as a whole, the corridor's current attainment rates suggest that reaching this goal will require substantial investment and targeted interventions in Southwest Virginia.
+
+**Community College Contributions to Workforce Development**
+
+Southwest Virginia's community colleges are playing an increasingly vital role in bridging the skills gap and preparing workers for high-demand careers. Mountain Empire Community College (MECC), Virginia Highlands Community College (VHCC), Southwest Virginia Community College (SWCC), and Wytheville Community College (WCC) are leading efforts to close the Commonwealth's skills gap and address the growing demand for middle-skill workers .
+
+The data on credential production is particularly encouraging. During the 2023-2024 academic year, MECC awarded 501 high-demand credentials supporting key industries including construction, engineering, health care, manufacturing, and technology . Programs such as Practical Nursing (LPN), Nursing (RN), and Phlebotomy achieved success rates exceeding 97 percent on licensure exams. The college has also created four new programs—Machine Operator I, II, and III, and Community Health Worker—to meet growing demand in manufacturing and healthcare .
+
+Virginia Highlands Community College helped more than 540 graduates earn nearly 800 degrees and certificates during the 2023-2024 academic year. Several programs saw dramatic enrollment increases, including Welding (67 percent), Electrical Technology (46 percent), and Diesel Mechanic (29 percent) . The college has created new short-term training programs in nationally-certified Carpentry and Heavy Equipment Operator to meet demand in the construction, maintenance, and trades industry .
+
+Southwest Virginia Community College awarded credentials to 714 students who earned industry-recognized licenses in the 2023-2024 academic year. Programs with 100 percent pass rates included Carpentry, Masonry, Plumbing, and Heavy Equipment Operator, while Welding, CDL, Phlebotomy, and Diesel Repair programs all exceeded 94 percent pass rates . The college created a Fiber Optics Technician program to meet increasing labor market demand, along with numerous customized trainings tailored to specific industry needs .
+
+Wytheville Community College helped 422 students earn industry-recognized licenses in the 2023-2024 academic year. WCC's Nursing (RN) program graduates achieved a 100 percent pass rate for three consecutive years, and recent expansion of WCC's Power Line yard allows for more class offerings .
+
+Collectively, these efforts directly support the Virginia Community College System's goal of awarding 300,000 credentials by 2030, as part of its "Accelerate Opportunity" strategic plan . Governor Glenn Youngkin recently announced a significant rise in the number of Virginians earning industry-recognized licenses and certifications, representing a 10 percent year-over-year increase and nearly double the application volume handled a decade ago .
+
+**The Skills Gap and Workforce Mismatch**
+
+Despite the progress being made, a significant skills gap persists across Southwest Virginia. The region's largest healthcare provider alone has 2,000 open positions, even as many graduates struggle to find employment . This paradox reflects what Roanoke College President Frank Shushok describes as "a significant misalignment between the pipeline from education, whether from K-12 or higher education, to the workforce" .
+
+The gap extends beyond technical skills to include fundamental soft skills essential for workplace success. Travis Staton, CEO and President of EO Companies, a workforce development center in Abingdon, notes that "soft skills could be as simple as you can work as a team, you can collaborate, you can communicate effectively, something else is being able to problem solve" . Beyond skills, Staton identifies an awareness gap, as "many people simply don't know what careers are available" .
+
+This awareness gap is particularly acute when it comes to opportunities in manufacturing, energy, and healthcare. Staton notes that there are "lots of manufacturing opportunities" and "lots of energy related jobs as well as in the healthcare arena" that remain unfilled because potential workers are unaware of their existence . To address this, EO Companies focuses on "helping students with career awareness building, helping them understand about jobs in certain industries," and notes that "teachers are also unaware of jobs and occupations" .
+
+---
+
+#### Workforce Strengths and Gaps
+
+The workforce of the Crooked Road and U.S. Route 23 corridor possesses distinctive strengths that can serve as foundations for economic development, even as significant gaps constrain the region's competitiveness.
+
+**Available Labor Force and Regional Capacity**
+
+Russell County provides a useful example of the region's workforce potential. The county's labor force numbers 10,030 (2024), and when combined with the surrounding regional labor force within commuting distance (121,600), the total available labor pool reaches 131,630 . Russell County's three high schools graduate on average about 300 students annually, with approximately 96 entering the labor force directly and 204 pursuing post-secondary degrees . Numerous colleges and universities within a 125-mile radius collectively enroll more than 75,000 students at any given time, providing a substantial talent pool for employers .
+
+The region is part of the e-Region, a seven-county, one-city area in Southwest Virginia recognized as an emerging East Coast center for key areas of business: electronic information technology, energy, education, and emerging technologies . This designation reflects the region's growing capacity to attract businesses in knowledge-intensive sectors.
+
+**Workforce Strengths**
+
+The region's workforce possesses several distinctive strengths that employers value. The work ethic cultivated through generations of mining, manufacturing, and agriculture remains a hallmark of Appalachian workers. Practical skills in mechanical repair, equipment operation, and production processes are deeply embedded in the workforce culture. Many workers have experience in industries that demand precision, safety awareness, and quality orientation—qualities that transfer well to modern manufacturing and technology fields.
+
+The community college system provides a strong foundation for workforce development. As Dr. Clint Hayes, President of Southwest Virginia Community College, observes, "At Southwest Virginia Community College, every credential earned represents a student achieving their goals, a family gaining new opportunities, and a stronger community. We are proud to work hand in hand with our students and local employers to ensure that the training we provide translates into real careers and a lasting impact here in Southwest Virginia" .
+
+The region's educational institutions are increasingly responsive to labor market demands. The four community colleges serving Southwest Virginia—MECC, VHCC, SWCC, and WCC—are "creating direct pathways from education to employment by offering hands-on, career-focused education" that "enables them to adapt quickly to labor market demands" .
+
+**Workforce Gaps**
+
+Despite these strengths, significant gaps constrain the region's workforce capacity. The low educational attainment rates, particularly in bachelor's degrees, limit the region's ability to attract knowledge-based industries. U.S. Census data shows that "fewer working age adults are employed in Southwest Virginia compared to the state average" . This lower labor force participation rate reflects both the aging population and the limited availability of suitable employment.
+
+The skills gap identified by employers includes both technical and soft skills. The "awareness gap"—potential workers not knowing what careers are available—is a particular challenge that requires systematic career education and exposure . Frank Shushok of Roanoke College emphasizes that "there are so many ways to be credentialed for high-paying jobs as a respiratory therapist or phlebotomist, but students don't know about these things" .
+
+The region also faces challenges in retaining talent. Graduates from Southwest Virginia who pursue higher education often leave and do not return. The Reenergize Southwest Virginia report notes that "students from Southwest Virginia who graduate from medical school often leave the area to receive further training, and many of those students do not return to practice in the area" . This pattern of outmigration represents a significant drain of human capital that the region has invested in educating.
+
+---
+
+#### Digital Skills and Technology Literacy
+
+Digital skills and technology literacy have become essential for workforce participation in the modern economy. The Crooked Road corridor faces significant challenges in this area, though targeted programs are beginning to address these gaps.
+
+**The Digital Divide in Southwest Virginia**
+
+Data from the U.S. Census Bureau's Digital Equity Act Population Viewer reveals the scale of the digital divide in the region. The Southwest Virginia Region is overwhelmingly rural, with 98.97 percent of the population residing in rural areas . This rural character creates specific barriers to digital access and literacy. The "mountainous terrain and low-density development have made infrastructure deployment in the area slow and difficult," while "the distances to central locations such as libraries and community colleges coupled with few public transportation options and many households having only one (or fewer) cars means it is difficult for residents to access learning opportunities" .
+
+The barriers to digital equity in the region, in order of priority, are: Broadband/Internet Access, Digital Literacy, Device Access and Affordability, Broadband Affordability, Privacy and Cybersecurity, and Online Accessibility . These barriers affect different populations in different ways, with the rural population (98.97 percent of the region) facing the most significant challenges.
+
+**Impact on Workforce Development**
+
+The digital divide has profound implications for workforce development. Individuals who lack digital literacy skills are at a significant disadvantage in the job market, as "many entry-level jobs require basic computer skills" . The inability to access the internet or use computers and software effectively limits job searching, online applications, and the ability to perform in roles that require digital competence.
+
+The covered population in the region—those qualifying for digital equity services under federal legislation—represents a substantial portion of residents. Covered populations by county range from 95.1 percent in Scott County (which has some suburban areas due to its proximity to Kingsport, Tennessee) to 100 percent in every other county in the region . This means that virtually the entire population of the region is eligible for digital equity services, reflecting the scale of the challenge.
+
+**Digital Literacy Programs**
+
+Several programs are working to address digital literacy gaps in the region. The Southwest Regional Adult Education program offers the NorthStar Digital Literacy program, "an excellent resource through an online course ... aimed at helping adults acquire the skills they need in today's workplace" . NorthStar defines basic skills needed to perform tasks on computers and online, with self-guided modules assessing individuals' ability to perform tasks in three main areas:
+
+- **Essential Computer Skills**: Basic Computer Skills, Internet Basics, Using Email, Windows OS, Mac OS 
+- **Essential Software Skills**: Microsoft Word, Excel, PowerPoint, Google Docs 
+- **Using Technology in Daily Life**: Social Media, Information Literacy, Career Search Skills, Accessing Telehealth Appointments, Supporting K-12 Distance Learning, Your Digital Footprint 
+
+NorthStar "was developed in response to the needs of job seekers who may lack the digital literacy skills needed to seek, obtain, and retain employment, and perform other tasks in daily life" . Participants can obtain a NorthStar Digital Literacy Certificate, "an important credential for employment, as many entry-level jobs require basic computer skills" . The program is free of charge, with adult education instructors available to provide support .
+
+Southwest Virginia Community College offers a Career Studies Certificate in Information Technology and Business Fundamentals "designed to provide students with the knowledge and skills to be productive users of a personal computer and to understand basic business concepts" . The program covers "general computer usage, keyboarding, working with operating systems, working with office applications including Word, Excel, PowerPoint, email and the Internet" . The certificate covers competencies for Digital Literacy certification and other nationally recognized certifications, "benefit[ing] anyone just entering the workforce or wanting to update his or her skills to the latest software versions" .
+
+The Reenergize Southwest Virginia report recommends the creation of a "Simulated Workplace" pilot program modeled after a West Virginia initiative that has demonstrated a 95 percent success rate . This program transforms "the traditional classroom into student-led simulated workplace companies that strictly follow their respective business processes," with students required to develop digital and technology skills in the context of realistic work environments .
+
+---
+
+#### The Aging Workforce and Succession Challenges
+
+The aging of the workforce across the Crooked Road and U.S. Route 23 corridor represents one of the most significant long-term challenges facing the region's economy. As experienced workers retire, they take with them decades of institutional knowledge and practical skills that are difficult to replace.
+
+**Demographic Pressures on the Workforce**
+
+The demographic trends examined earlier in this chapter have direct implications for the workforce. With median ages in many counties approaching 50 and the proportion of residents aged 65 and older exceeding 25 percent in some communities, the workforce is shrinking even as demand for workers in certain sectors grows. The healthcare sector, in particular, faces critical shortages. Ballad Health, the region's largest healthcare provider, has "2,000 open positions" and has "been unable to fill an obstetrician vacancy since 2020" .
+
+The aging of the workforce is compounded by the challenges of recruiting workers to rural areas. As Harrison Hayes, Executive Director of the Virginia Health Workforce Development Authority, noted in testimony before the House Select Committee on Advancing Rural and Small Town Health Care, "convincing providers from other areas to move to rural areas has not been effective" . This challenge extends beyond healthcare to include other professional and technical occupations.
+
+**Succession Planning and Knowledge Transfer**
+
+The retirement of experienced workers creates both challenges and opportunities. The "institutional knowledge" accumulated over decades of work in mining, manufacturing, agriculture, and other industries must be transferred to younger workers if the region is to maintain its economic competitiveness. However, the workforce development programs in place are not always sufficient to capture and transmit this knowledge.
+
+The "Simulated Workplace" model recommended in the Reenergize Southwest Virginia report represents one approach to addressing this challenge . By giving students practical, hands-on experience in work environments that simulate real jobs, these programs can help transfer practical skills and work ethic to the next generation. West Virginia's experience with this model—where "95% of students in the Simulated Workplace programs have entered the workforce or higher education after graduation" —suggests it could be effective in the Virginia corridor as well.
+
+**Talent Attraction and Retention**
+
+The region has begun to recognize the importance of talent attraction and retention as part of workforce development strategy. The Virginia Tobacco Region Revitalization Commission's Talent Attraction Program "encourage[s] recent graduates to live in the Tobacco Region and work in targeted, hard-to-fill occupations in the Tobacco Region by providing up to $12,000 annually in student loan repayment with a two-year commitment" . The program can be renewed for another two years, with a maximum award of $48,000 .
+
+The program has seen early success, with "more than 200 new residents attracted to the region to fill specifically-targeted and in-demand jobs in fields like IT, engineering, STEM education, and others" . These residents are required to live in the region, work full-time in their field, and be civically engaged, performing at least 50 hours of volunteer work per year . To date, the program has "obligated just over $3 million dollars, with around $800,000 paid out over its first three years" .
+
+**Preparing the Next Generation**
+
+Educational institutions are adapting to the workforce challenges posed by the aging population. Roanoke College, for example, has gained accreditation approval to offer associate degrees and has received a federal grant to jumpstart dual-credit programs for high school students . President Shushok emphasizes that "workforce development has to start at the K-12 level" and must include both "university-bound students" and "high school graduates who opt to go directly into the workforce" .
+
+The introduction of career tracks at earlier stages of education helps "make young people aware of lesser-known, high-paying jobs in the region that do not require a bachelor's degree" . This approach addresses both the awareness gap identified by employers and the need to prepare the next generation of workers before they leave the region to pursue education or employment elsewhere.
+
+
+### Economic History and Industrial Evolution
+
+#### Agricultural and Timber Foundations
+
+Long before the arrival of railroads and industrial mining, the highland forests of southwestern Virginia sustained Native American populations who regarded the land as sacred and relied upon its resources for sustenance. After European contact, successive waves of agricultural settlers transformed the valleys and lower slopes into farms, while the higher elevations remained forested. The Jefferson National Forest—which today encompasses significant portions of the corridor—stands as a testament to this transition, preserving both the natural landscape and the history of how various peoples regarded this land over the centuries.
+
+Industrial logging arrived with intensity in the late nineteenth century, as industrialists "rapaciously exploited its timber resources, particularly in the higher elevations where the woodlands had survived the nearby valleys' generations of agricultural use". This exploitation, while brief, left a lasting imprint on the region's landscape and economy. The timber industry, combined with charcoal production to fuel early iron furnaces, established patterns of resource extraction that would later characterize the coal era.
+
+Southwestern Virginia's agricultural foundations extended beyond subsistence farming. As historian Randal L. Hall documents in "Mountains on the Market," southern entrepreneurs formed companies as early as 1760 to take advantage of the region's natural resources, challenging stereotypes that southerners shunned industrial development. Even in the rugged Appalachian terrain, the mining and processing of lead, copper, and iron had long been underway by the start of the Civil War, with railroads beginning to penetrate the region.
+
+---
+
+#### The Railroad Era and Market Expansion
+
+The arrival of railroads in southwestern Virginia fundamentally transformed the region's economy, connecting isolated mountain communities to national and international markets for the first time. According to the Virginia Department of Historic Resources, the rush to establish mining operations and expand railroads across Southwest Virginia following the opening of the Pocahontas Mine No. 1 in 1882 led to dramatic changes in the region's built environment and population.
+
+Three major railroads entered Wise County in 1891—the Norfolk & Western and Louisville & Nashville at Norton and the South Atlantic & Ohio at Big Stone Gap—triggering a 400 percent increase in population over the next three decades. The Norfolk & Western's Clinch Valley Division connected the line with western markets while opening Tazewell County's possibilities for growth and industry. Towns such as Pocahontas, Bluefield, Graham, and Richlands were birthed out of this growth, while the county seat of Tazewell benefitted from the presence of the railroad.
+
+This expansion did not simply facilitate resource extraction; it reshaped the very structure of Appalachian society. As the doctoral research of Hannah Beth Hensley documents, Tazewell County underwent a fundamental shift from a primarily agricultural, barter economy prior to 1880 to one of both industry and agriculture by 1930. This transition from "Cattle Drives to Coal Cars" encapsulates a broader regional transformation that brought new wealth, new populations, and new challenges to the mountain communities.
+
+---
+
+#### The Coal Mining Boom
+
+Coal mining became the dominant economic force of the twentieth century in the Crooked Road and U.S. Route 23 corridor. The postcard images of early coal mining show how the industry progressed from simple pick-and-shovel operations to large-scale industrial extraction, with hundreds of mining companies dotting the landscape by the early 1900s.
+
+In Southwest Virginia, the Pennsylvania-based Virginia Coal & Iron Company (VCI), incorporated in 1882, became the primary founder and operator of coal company towns in Wise County. The company's first coal camp at Stonega—originally called Pioneer—was opened in 1896, followed by camps at Osaka (1902), Roda (1903), Arno (1908), Exeter (1917), Dunbar (1919), and Derby (1923). These company towns were built as an efficient way to house workers near the mines in areas that were otherwise sparsely populated.
+
+The mining workforce during the boom period was remarkably diverse, composed of native Appalachians, African Americans, and recent immigrants from Ireland, Poland, Italy, and Hungary. The camps were designed to be self-contained, providing miners and their families with goods, services, and entertainment; mature towns eventually included a company store, churches, schools, playgrounds, a theater or amusement hall, and other urban amenities.
+
+Along with the scores of company towns that emerged across Southwest Virginia, the rapidly expanding coal and rail industries drove the development of new commercial centers. Listed historic districts in the towns of Appalachia, Big Stone Gap, and St. Paul boast significant collections of early twentieth-century commercial architecture that serve to illustrate the prosperity of the period. The coal boom brought new wealth and growth, yet the company town system also created dependency and vulnerability that would become apparent as the industry declined.
+
+---
+
+#### Manufacturing Development
+
+Manufacturing in the region evolved alongside coal mining, benefiting from the transportation infrastructure and skilled workforce that mining had attracted. The Virginia Coalfield Economic Development Authority (VCEDA), created by the Virginia General Assembly in 1988, reflects the recognition that manufacturing diversification was essential for the region's long-term stability.
+
+Today, VCEDA-assisted businesses (including new and expanding businesses) in Southwest Virginia generate $11.2 billion in total economic impact and support 45,045 jobs. Of these jobs, 12,838 are in manufacturing and 8,448 are in professional and business services. Recent manufacturing investments include Wrap Technologies' $4 million national manufacturing headquarters in Norton, adding 50 jobs; Tate's $6.5 million expansion in Russell County adding 35 jobs; and VFP's $35 million expansion in Duffield adding 200 employees. Ireland-based Tate, which manufactures raised floors and other interior systems for data centers, acquired the former 131,000-square-foot Alcoa manufacturing building in Russell County, demonstrating how existing industrial infrastructure can be repurposed.
+
+The region's manufacturing sector has also adapted to emerging opportunities. Modular housing production is being established in Russell County with a $3 million VCEDA loan, expected to create 260 housing units annually and 89 jobs in its first year. This sector offers a promising intersection of manufacturing, workforce housing, and economic development.
+
+---
+
+#### The Decline of Coal and Economic Dislocation
+
+The decline of coal mining began in the 1980s, accelerated by environmental regulations, competition from cheaper energy sources, and the mechanization of mining operations. The data tells a stark story of industrial contraction. In 1990, the coal industry represented 13.2 percent of the region's workforce, employing nearly 12,000 people. By 2024, the industry employed about 2,500 workers, representing just 2.4 percent of the region's workforce.
+
+Coal production has followed a similar trajectory. U.S. coal production was at 1 billion tons in 2014 but dropped to 578 million tons by 2023, with the Energy Information Administration forecasting production will continue to decline to 483 million tons by 2025. Virginia's coal mines produced 10 million short tons in 2023, declining to 8.6 million short tons in 2024. Over 75 percent of Virginia coal is metallurgical coal used for steel production, with only a small portion used for power generation. The decline of the domestic steel industry and shifts in global steel markets have further compressed demand.
+
+The human impact of this decline has been devastating. In nearby McDowell County, West Virginia, by 1950 the county had grown to more than 100,000 people; today it is a fraction of that size. The region is on track to lose about 100,000 people by 2050 according to projections from the University of Virginia's Weldon Cooper Center for Public Service. The loss of coal severance tax revenue has strained local governments, with the Logan County Commission president in West Virginia noting, "we're very dependent upon coal severance. With this further reduction, it's going to put some financial strain on everyone."
+
+Recent layoffs continue to underscore the industry's instability. In February 2026, over 500 miners in southern West Virginia faced layoffs as seven operations idle, with the company citing "adverse market conditions" as the cause. While metallurgical coal remains an important commodity, its market is subject to global steel demand and trade policies, creating ongoing volatility for mining communities.
+
+---
+
+#### Contemporary Economic Conditions
+
+Despite the decline of coal, the industry remains hugely important to the regional economy, with approximately a 9.9 percent total economic impact, according to a 2024 Chmura Economics & Analytics report for VCEDA. The combined economic impact of the coal and natural gas industries and VCEDA in Southwest Virginia is estimated at $13.48 billion, supporting 51,245 jobs.
+
+Coal remains the region's highest-paying industry, with the average coal industry salary at $101,268 in 2024—more than twice the regional annual salary of $45,926. The coal industry contributed $37 million in taxes to local governments and agencies in Southwest Virginia in 2024, $29 million to the Virginia state government, and $43.4 million to the federal government. These figures underscore why communities have fought to sustain mining operations even as employment has declined.
+
+The natural gas industry also plays a significant role, contributing $481.7 million in total economic impact and supporting 1,115 jobs in 2024. Natural gas now accounts for 55 percent of Virginia's in-state electricity generation, while coal accounts for just 2 percent, nuclear power provides 32 percent, and renewables contribute 12 percent.
+
+VCEDA has been instrumental in regional diversification, reducing unemployment rates from what would otherwise be catastrophic levels. Without the jobs attracted to the region by VCEDA, the region's unemployment rate would rise from 3.9 percent to 15.8 percent. VCEDA-assisted jobs have also saved the state government an estimated $151.6 million from 1989 to 2024 through reduced government assistance payments.
+
+Contemporary economic development in the corridor is increasingly focused on energy projects, including solar, wind, energy storage, small modular reactors (SMRs), and energy-efficient data centers. The Southwest Virginia Energy Research and Development Authority's 2024-25 Annual Report notes that as the United States moves toward carbon-neutral energy and traditional industries decline, "Southwest Virginia has the opportunity to continue to be a leader in energy... by leveraging the region's valuable assets and competing nationwide for entrepreneurs and large market cap developers."
+
+The region has also secured significant investment in advanced manufacturing and indoor agriculture. Oasthouse Ventures and its subsidiary Pluck'd began planting tomatoes at a new 65-acre greenhouse in Carroll County, creating 265 jobs, while Hitachi Energy announced a $22.5 million investment to upgrade its Bland County facility. These investments demonstrate the region's capacity to attract new industries while honoring its legacy as a center of production.
+
+The evolution from agricultural settlement to timber extraction, railroad expansion, coal boom, manufacturing diversification, and now energy and technology transition represents a continuous thread of adaptation. As Wise County officials noted regarding their pursuit of small modular reactor deployment, "We're focused on everything... What can we do to continue what we're known for in Southwest Virginia through coal? Energy is our history."
+
+### Transportation Infrastructure
+
+#### U.S. Route 23 and U.S. Route 58 Highways
+
+The highway network of the Crooked Road and U.S. Route 23 corridor represents both the legacy of past industrial development and the foundation for future economic growth. These roadways connect communities that were once isolated by mountain terrain, enabling commerce, commuting, and cultural exchange that have shaped the region for generations.
+
+**U.S. Route 23: The Orby Cantrell Highway**
+
+U.S. Route 23 serves as the primary north-south arterial through the heart of the corridor. The Virginia Department of Transportation (VDOT) has designated the segment of US 23 from the US 58 ALT/Route 283 interchange to the US 23 BUS/Route 823 intersection as a corridor requiring strategic safety and operational improvements. This designation reflects the route's importance to regional commerce and the challenges posed by its mountainous terrain.
+
+Traffic data collected in April 2023 reveals the corridor's usage patterns. The segment of US 23 from US 58 ALT/Route 283 to US 23 BUS/Route 757 carries the highest traffic volumes, with an Annual Average Daily Traffic (AADT) of 21,000 vehicles per day. Adjacent segments range from 14,000 to 20,000 vehicles per day, with the lowest volumes occurring south of the US 23 BUS/Route 823 intersection.
+
+The traffic patterns follow predictable commuter rhythms. The AM peak hour occurs from 7:45 AM to 8:45 AM, while the PM peak hour extends from 4:30 PM to 5:30 PM. Northbound US 23 traffic volumes are greater during the PM peak hour than the AM peak hour, while southbound volumes are higher during the AM peak hour south of the US 23 BUS/Route 823 intersection. Average travel speeds within the study corridor range from 55 mph to 71 mph throughout the day, with no significant speed reductions during peak hours.
+
+The highway's significance extends beyond Virginia's borders. US 23 is part of Corridor B of the Appalachian Development Highway System (ADHS), a network designed to enhance economic development in the Appalachian region by improving access and reducing travel times across state lines. In Tennessee, the route is a four-lane controlled-access freeway concurrent with Interstate 26, following the James H. Quillen Parkway through the Tri-Cities region. The freeway was authorized by the Appalachian Regional Development Act of 1965, and the stretch between Johnson City and the Virginia state line was constructed in segments between 1968 and 1986. The mountainous stretch near the North Carolina state line reaches an elevation of 3,760 feet, the highest on the Interstate Highway System east of the Mississippi River.
+
+**Future Capacity Challenges**
+
+Projections indicate that by 2050, traffic volumes along the US 23 corridor will increase substantially, creating operational challenges. Under 2050 "No Build" conditions (no improvements beyond existing geometry), overall intersection vehicle delays will increase at signalized intersections throughout the corridor. Three of five signalized intersections are projected to degrade to an overall Level of Service (LOS) D during the PM peak hour, compared to existing conditions.
+
+The US 23 at US 23 BUS/Route 823 intersection faces the most significant deterioration, degrading to LOS D during the AM peak hour compared to LOS C under existing conditions. Unsignalized intersections will experience even more severe delays, with the westbound approach at Addington Avenue projected to degrade to LOS F (worst possible) during the PM peak hour. These projections underscore the need for strategic infrastructure investment to maintain the corridor's functionality as regional traffic volumes grow.
+
+**U.S. Route 58: The East-West Corridor**
+
+U.S. Route 58 forms the other major transportation artery of the corridor, running east-west and intersecting US 23 at multiple points. This route connects the Crooked Road communities to the broader Virginia transportation network and markets to the east.
+
+In the City of Danville, the highest traffic volumes on US 58 occur on the eastern side of the city, where AADT reaches 26,000 vehicles per day near the Danville Regional Airport and the Airside and Cane Creek Centre industrial parks. This concentration reflects the route's role in supporting regional economic development and industrial activity. In Pittsylvania County, traffic volumes range from 6,300 to 15,000 vehicles per day, with higher volumes near population centers and lower volumes in rural stretches.
+
+---
+
+#### Railroad Infrastructure and Freight Opportunities
+
+The railroad infrastructure that once served the coal industry remains in place, providing opportunities for freight transportation that could support manufacturing, agriculture, and timber industries. While passenger service has largely disappeared, the rail lines continue to operate, offering efficient movement of bulk commodities over long distances.
+
+**Historical Rail Development**
+
+Three major railroads entered Wise County in 1891—the Norfolk & Western and Louisville & Nashville at Norton and the South Atlantic & Ohio at Big Stone Gap—triggering a 400 percent increase in population over the next three decades. This expansion fundamentally reshaped the region's economy, connecting isolated mountain communities to national and international markets.
+
+The Norfolk & Western Railway, a predecessor to today's Norfolk Southern, originated in Norfolk, Virginia, and expanded southwest to Charlotte, North Carolina. By the end of 1970, the successor Norfolk Southern Railway operated 624 miles of road with 801 miles of track, reporting 710 million ton-miles of revenue freight that year. The railroad's expansion opened southwestern Virginia's coal fields to national markets, with Virginia originating 32 million tons of coal annually at its peak.
+
+**Current Freight Capacity**
+
+Today, Norfolk Southern continues to operate rail lines through the corridor, moving coal, timber, agricultural products, and manufactured goods to markets throughout the eastern United States. Of the 155 million tons of coal, coke, and iron ore originated on Norfolk Southern lines in 2001, Virginia accounted for 32 million tons—the second-largest volume after West Virginia's 49 million tons. This traffic included 20 million tons to domestic and Canadian steel industries, 133 million tons of steam coal to electric utilities, and 11 million tons to other industrial and miscellaneous users. Total coal handled through all system ports in 2001 was 37 million tons.
+
+The rail network continues to serve the region's remaining mining operations while also providing transportation for other industries. The infrastructure that was built to serve coal can be repurposed for agricultural products, timber, manufactured goods, and industrial supplies. For communities seeking to diversify their economies, the rail network offers a competitive advantage in transportation costs and market access.
+
+---
+
+#### Airports and Aviation Services
+
+The corridor's airports provide essential aviation services for business, emergency response, and tourism. While the region lacks major commercial airports, its general aviation facilities connect the region to national transportation networks.
+
+**Lonesome Pine Regional Airport (LNP)**
+
+Lonesome Pine Regional Airport, located approximately three miles northeast of Wise, serves as a prominent public-use general aviation facility for Southwest Virginia. The airport features a single 5,280-foot asphalt runway (06/24) situated at an elevation of 2,685 feet, capable of accommodating various turboprop aircraft and corporate jets.
+
+The airport provides dedicated passenger terminal facilities with a comfortable pilot lounge and specialized flight planning area equipped with modern weather reporting tools. Full-service FBO support is available, including 100LL and Jet-A fueling options, with the terminal typically attended from 9:00 AM to 6:00 PM Monday through Saturday and after-hours fueling available by prior arrangement. Amenities include restrooms, high-speed Wi-Fi, wheelchair accessibility, crew car availability, and Enterprise rental car service with advance notice.
+
+While Lonesome Pine does not host scheduled commercial airline service, it serves as a vital hub for private pilots, corporate charters, and regional administrative flights supporting the area's prominent energy and education sectors. The nearest commercial airports are Tri-Cities Airport (TRI) in Blountville, Tennessee, approximately 55 miles to the south, and West Virginia International Yeager Airport (CRW), about a 2.5-hour drive to the north via US 23.
+
+**New River Valley Airport (PSK)**
+
+New River Valley Airport, located two miles north of Dublin in Pulaski County, serves as Southwest Virginia's primary facility for general aviation. Established in 1962 on approximately 380 acres, the airport features a single asphalt runway (6/24) measuring 6,201 feet by 150 feet, capable of accommodating a variety of aircraft including jets. The runway has weight-bearing capacity for double-wheel gear up to 60,000 pounds.
+
+Owned and operated by the New River Valley Airport Commission, which comprises representatives from Pulaski County, Montgomery County, Giles County, the City of Radford, and the Towns of Dublin, Pulaski, and Christiansburg, the airport serves regional business, commerce, and educational institutions such as Virginia Tech, Radford University, and New River Community College.
+
+The airport offers full-service FBO amenities, including aircraft fueling (100LL and Jet A+), major airframe and powerplant maintenance, hangar and tie-down parking, and flight training. As an unmanned U.S. Customs Service port of entry and Foreign Trade Zone #238, it facilitates international general aviation operations and economic development. The airport operates without a control tower but provides instrument approach procedures such as ILS/LOC and RNAV (GPS).
+
+**Economic Role of General Aviation**
+
+These airports play a critical role in the region's economy. They enable business travel, support emergency services and medical transport, facilitate tourism, and provide connectivity for industries that require rapid transportation of personnel and equipment. The airports' role as gateways to the region makes them essential for economic development efforts that seek to attract new businesses and investment.
+
+The availability of aviation services is particularly important for businesses that require frequent travel to national markets. Companies considering location in the corridor evaluate airport access as part of their site selection process. The region's airports—with their runways capable of handling corporate jets and their full-service facilities—provide a competitive advantage that complements the highway and rail infrastructure.
+
+### Broadband and Communications Infrastructure
+
+#### Current Broadband Access and Gaps
+
+The expansion of broadband infrastructure across the Crooked Road and U.S. Route 23 corridor represents one of the most transformative economic development opportunities in the region's history. High-speed internet has become as essential to modern economic life as electricity and running water—yet for decades, vast stretches of Southwest Virginia remained disconnected from the digital economy. The mountainous terrain that gives the region its distinctive character has also made infrastructure deployment slow, difficult, and expensive, leaving many communities stranded on the wrong side of the digital divide.
+
+The scale of Virginia's broadband challenge has been substantial. Since the creation of the Virginia Telecommunications Initiative (VATI) in 2017, the state has connected over 250,000 rural locations through state and federal broadband funding . VATI provides grants to localities partnered with internet service providers to finance the deployment of high-speed broadband to locations determined to be "unserved"—defined as lacking access to internet speeds of 100 Megabits per second (Mbps) download and 20 Mbps upload . As of 2025, approximately 133,000 addresses across Virginia remain unserved, with the most difficult-to-reach locations concentrated in rural and mountainous areas .
+
+The investment required to bridge this gap has been substantial. VATI projects funded in fiscal years 2022, 2023, and 2024 will provide access to broadband infrastructure to more than 320,000 passings across Virginia . These projects leverage $822.8 million in state and federal funding alongside $1.198 billion in private and local matching funds . To date, these projects have provided broadband access to 155,907 locations, with over 93.4 percent of funded projects offering functionally gigabit (1,000 Mbps) download speeds and over 73.7 percent offering gigabit upload speeds .
+
+Private sector investment has complemented these public efforts. Brightspeed, the nation's third-largest fiber broadband builder, is rapidly transforming Virginia's digital landscape. Once fully deployed, the company's multi-gigabit fiber network will reach more than 177,000 homes and businesses across the state . In communities such as Buena Vista, Collinsville, Galax, Lexington, Martinsville, and Wytheville, fiber connectivity is changing what is possible. Brightspeed has secured more than $16.6 million in federal Broadband Equity Access and Deployment (BEAD) program funding to expand its fiber network to reach another 4,963 locations in Virginia .
+
+Despite these investments, significant gaps remain. Based on 2023 data, approximately 800,000 Virginia households still lack wireline broadband internet—defined as cable or fiber connections that typically provide the fastest speeds with unlimited data . Dr. John Horrigan with the Benton Institute for Broadband and Society told Virginia's Joint Commission on Technology and Science that income is the number one reason some Virginians don't have wireline broadband, with older residents and those living in rural areas also less likely to have access . This means that even when infrastructure reaches a community, affordability can remain a barrier to adoption.
+
+The Appalachian Regional Commission has recognized the critical importance of broadband for economic development in the region. ARC investments support projects that align with five strategic goals, including accelerating Appalachian broadband access. As the commission notes, "Improving access to high-speed internet is vital for strengthening Appalachia's economy. Fast, reliable broadband supports quality health care, education, tourism, business growth and so much more" . While Appalachians' broadband access increased by 12 percentage points in recent years, significant disparities persist between the region and the rest of the nation.
+
+---
+
+#### The Importance of Connectivity for Economic Development
+
+Broadband connectivity has emerged as perhaps the most critical infrastructure for twenty-first-century economic development. For communities along the Crooked Road and U.S. Route 23 corridor, reliable high-speed internet is not merely a convenience—it is a prerequisite for participation in the modern economy. As John Putney, broadband director for Bedford County, observed: "It's quality of life, it's work, it is health care" . This simple observation captures the transformative potential of connectivity across virtually every sector of the regional economy.
+
+**Remote Work and Talent Attraction**
+
+The growth of remote work has fundamentally altered the economic calculus for rural communities. Prior to the COVID-19 pandemic, workers seeking high-paying professional jobs were generally required to live in or near major metropolitan areas. The pandemic demonstrated that many jobs could be performed effectively from anywhere with a reliable internet connection, opening the door for professionals to relocate to areas with lower cost of living and higher quality of life. As Donna Smith, general manager of Citizens Telephone Cooperative in Floyd County, observed: "The housing market in Floyd is just crazy" . This statement reflects a broader trend across rural Virginia, where broadband availability has made remote work possible and attractive.
+
+The implications for the Crooked Road corridor are profound. Communities that invest in broadband infrastructure can compete for remote workers who bring higher incomes, support local businesses, and contribute to tax revenues. These workers often maintain connections to urban professional networks that can benefit the region through business development, investment, and advocacy. The availability of broadband has become a key factor in location decisions for professionals who can work from anywhere.
+
+**Education and Workforce Development**
+
+Broadband connectivity is essential for modern education and workforce development. Students without reliable internet access at home face significant disadvantages in completing homework, conducting research, and developing digital literacy skills. During the COVID-19 pandemic, the lack of broadband access forced many rural students to fall behind as schools moved to online instruction. As Rockbridge County Board of Supervisors Chair Leslie Ayers observed: "Fiber connectivity changes everything; it means students can learn without interruption, small businesses can compete online, and residents can access healthcare and jobs no matter where they live" .
+
+For workforce development, broadband enables access to online training programs, certification courses, and educational resources that can prepare workers for in-demand careers. Community colleges throughout the corridor have expanded their online offerings, but these programs are only effective if students can access them reliably. The NorthStar Digital Literacy program, offered through Southwest Regional Adult Education, provides online courses aimed at helping adults acquire the digital skills needed in today's workplace . Access to such programs depends on the availability of broadband infrastructure.
+
+**Healthcare and Telehealth**
+
+The healthcare applications of broadband connectivity are particularly significant for rural communities that face shortages of medical professionals. Telehealth services allow patients to consult with specialists without traveling long distances, improving access to care while reducing costs. In Wise County, the Health Wagon has begun connecting patients to telehealth diagnosticians using internet provided by Starlink . This example demonstrates how even satellite technology can bridge gaps in healthcare access, though fiber remains the preferred solution for its reliability and speed.
+
+The healthcare sector's reliance on broadband will only increase as telemedicine technologies advance. Remote patient monitoring, video consultations, and digital health records all depend on reliable internet connectivity. For communities seeking to attract and retain healthcare providers, broadband infrastructure is an essential component of the healthcare delivery system.
+
+**Business Development and E-Commerce**
+
+For small businesses and entrepreneurs, broadband access enables participation in the digital economy. E-commerce platforms allow local businesses to reach customers beyond their immediate geographic area. Digital marketing tools enable targeted advertising and customer engagement. Cloud-based business applications reduce costs and improve efficiency. Without reliable internet access, businesses in the Crooked Road corridor are at a competitive disadvantage compared to businesses in connected communities.
+
+The importance of broadband for business development is reflected in the Appalachian Regional Commission's investment strategy. As the commission notes, broadband supports "business growth and so much more,"  making it a foundational investment for economic development throughout the region.
+
+---
+
+#### Strategies for Broadband Expansion
+
+Virginia has developed a comprehensive strategy for expanding broadband access, combining state and federal funding with private sector investment and local partnerships. The Commonwealth's approach has been recognized as a national model, with Ray LaMura, president of the VCTA Broadband Association of Virginia, noting: "Virginia truly has led the way in the nation, not only [in] public policy, but [with the] approach to get it resolved" .
+
+**The Virginia Telecommunications Initiative (VATI)**
+
+VATI serves as the cornerstone of Virginia's broadband expansion strategy. The program provides grants to localities partnered with internet service providers to finance the deployment of high-speed broadband to unserved locations. As of 2025, VATI projects are providing access to broadband infrastructure to more than 320,000 passings across the Commonwealth, leveraging $822.8 million in state and federal funding alongside $1.198 billion in private and local matching funds .
+
+The program's success reflects its structure. By requiring local and private matching funds, VATI ensures that communities have skin in the game and that projects are viable. By targeting unserved areas, the program addresses the market failure that has left rural communities without connectivity. By setting high standards—with over 93 percent of funded projects offering gigabit download speeds —the program ensures that the infrastructure built today will meet the needs of the future.
+
+**The Broadband Equity, Access, and Deployment (BEAD) Program**
+
+The federal BEAD program, created as part of the Infrastructure Investment and Jobs Act of 2021, provides $42 billion to bring high-speed internet access to everyone in the United States . Virginia is using its allocation of BEAD funding to finish the job of attaining universal connectivity, targeting the approximately 133,000 addresses that remain unserved . The Virginia Department of Housing and Community Development anticipates approval of the state's BEAD Final Proposal in Winter 2025, with projects beginning in Fall 2026 .
+
+BEAD funding is particularly important because the remaining unserved locations are the hardest to reach and most expensive to connect. As Tamarah Holmes, director of the DHCD's broadband office, explained: "The low-hanging fruit has already been taken. What's been left in Virginia are the hardest to reach, most expensive locations" . BEAD grants help cover the gap funding that internet providers need to build networks in areas where they otherwise wouldn't see a return on investment.
+
+**Fiber as the Preferred Solution**
+
+Virginia's broadband strategy has emphasized fiber optic infrastructure as the preferred solution for rural connectivity. Fiber provides the fastest speeds, the greatest reliability, and the capacity to meet future demands. Over 93.4 percent of VATI-funded projects offer functionally gigabit download speeds . This emphasis on fiber reflects the recognition that today's investments must support tomorrow's needs.
+
+However, the shift toward fiber has not been without challenges. Federal policy changes under the Trump administration have emphasized satellite technology over fiber, a shift that has drawn criticism from Virginia officials. U.S. Sen. Mark Warner has expressed concern about the reliability, cost, and security of satellite-based internet, noting: "I've got nothing against satellite…but even as a wireless guy, I know fiber is a better long-term solution" . Evan Feinman, Virginia's former chief broadband adviser, was more blunt, criticizing the shift as a move that "mainly benefits Musk" and warning that it would "strand all or part of rural America with worse internet so that we can make the world's richest man even richer" .
+
+**Overcoming Deployment Barriers**
+
+Despite Virginia's progress, significant barriers to broadband deployment remain. The most significant challenge is the "make-ready" effort—preparing existing electric poles for aerial broadband network construction. This process involves ensuring that poles can safely accommodate additional cables, which often requires upgrades that utilities and installers dispute over who should pay . As state Sen. Dave Marsden observed, the question is: "who pays to upgrade the poles: the utilities that own them, or the people attaching broadband fiber?" 
+
+Virginia has taken steps to address this challenge. In 2024, the state allocated $30 million for pole upgrades and created a forum at the Virginia State Corporation Commission to resolve cost disputes between broadband installers and electric utilities . The Federal Communications Commission also set rules to speed up attachment of broadband cable to poles nationwide, effective July 2024 . Nonetheless, delays in approval and added costs mean that some ISPs have opted to go underground with their cables—an approach that can be more expensive and requires right-of-way access with permission from the Virginia Department of Transportation .
+
+Other deployment barriers include supply chain disruptions, labor shortages, railroad crossings, permitting processes for state-owned rights of way, and permitting to cross federally owned lands . VDOT has made progress in streamlining its permit approval process, issuing 4,575 underground fiber permits over the past fiscal year with an average turnaround time of 12.5 days . The agency is working closely with DHCD to improve its overall permit approval process, including prioritizing BEAD and VATI projects.
+
+**Affordability and Adoption**
+
+Beyond infrastructure deployment, Virginia faces the challenge of ensuring that broadband is affordable and that residents have the digital literacy skills to take advantage of connectivity. A study by the Benton Institute for Broadband and Society, analyzing 62,000 address-level samples across ten Virginia localities, found that the cost and accessibility of broadband services remain major barriers for low- and moderate-income households . The study recommended establishing a statewide requirement that ISPs offer a basic 100 Mbps plan for $30 per month, creating targeted tax credits to close residual affordability gaps, and requiring independent data collection on broadband prices and speeds .
+
+Digital literacy programs are also essential to ensure that residents can use the connectivity that infrastructure provides. The Southwest Regional Adult Education program offers the NorthStar Digital Literacy program, which defines basic skills needed to perform tasks on computers and online . The program includes self-guided modules assessing individuals' ability to perform tasks in essential computer skills, essential software skills, and using technology in daily life . Participants can obtain a NorthStar Digital Literacy Certificate, "an important credential for employment, as many entry-level jobs require basic computer skills" .
+
+**Federal and State Coordination**
+
+Virginia's broadband strategy has benefited from strong federal-state coordination, though recent policy shifts have created uncertainty. Democratic U.S. Sens. Mark Warner and Tim Kaine announced $540,000 in federal funding from the Appalachian Regional Commission for Floyd County to expand high-speed broadband, with the funding going to Citizens Telephone Cooperative for a middle mile network expansion serving 285 businesses with 10 Gbps speeds . Similarly, the Appalachian Regional Commission awarded $1.57 million to Forest County for the third phase of its broadband project, constructing seven telecom sites to serve four communities .
+
+These federal investments complement state efforts, ensuring that broadband expansion reaches the most rural and economically distressed communities. The ARC's focus on broadband as a catalyst for economic development reflects the recognition that connectivity is essential for achieving socioeconomic parity with the rest of the nation.
+
+**The Path Forward**
+
+The path forward for broadband expansion in the Crooked Road and U.S. Route 23 corridor involves completing the work of connecting the remaining unserved locations while ensuring that connectivity is affordable and that residents have the skills to use it effectively. The BEAD program will be essential for reaching the hardest-to-connect areas, though the shift toward satellite technology at the federal level creates uncertainty about the nature of that connectivity .
+
+Continued investment in fiber infrastructure, even in remote areas, is the preferred approach for ensuring that connectivity meets the needs of the future. As Rockbridge County Board of Supervisors Chair Leslie Ayers observed: "Bringing fiber to our communities isn't just about faster speeds; it's about creating opportunity and ensuring every community has a fair shot at success in today's digital world" .
+
+The economic development implications of broadband expansion extend far beyond connectivity itself. As Smith noted regarding Floyd County's housing market, broadband availability has transformed the local economy by attracting residents who work remotely and bring higher incomes . This pattern has been repeated across rural Virginia, with broadband enabling a reversal of long-standing population decline in some communities.
+
+For the Crooked Road and U.S. Route 23 corridor, broadband expansion represents an opportunity to build a more diversified and resilient economy. By connecting communities to the digital economy, broadband enables remote work, supports business development, improves access to education and healthcare, and attracts new residents. The investments being made today will pay dividends for generations, ensuring that the region can participate fully in the twenty-first-century economy.
+
+
+### Natural Resources and Environmental Assets
+
+#### Hardwood Forests and Timber Resources
+
+The hardwood forests of Southwest Virginia represent one of the most significant natural assets of the Crooked Road and U.S. Route 23 corridor. These forests have sustained communities for generations, providing timber for construction, furniture, flooring, and musical instruments, while also supporting wildlife habitat, watershed protection, carbon sequestration, and recreational opportunities. The region's forests are not merely an economic resource—they are the defining characteristic of the landscape, the backdrop against which the region's history has unfolded, and the foundation for much of its cultural identity.
+
+The George Washington and Jefferson National Forests encompass a significant portion of the corridor, with the Jefferson National Forest in particular covering extensive areas across the region. These national forests contain approximately 394,000 acres protected by the Roadless Rule, more than any other southeastern state . These roadless areas protect pristine natural landscapes with unparalleled hiking, fishing, and hunting opportunities, while also providing critical habitats for wildlife including black bears and bobcats . The Roadless Rule protects about 545 pristine miles of river in Virginia, safeguarding aquatic species such as trout and hellbender salamanders that require cold, clean water to thrive .
+
+The region's hardwood forests are characterized by species including red oak, white oak, black cherry, walnut, maple, poplar, ash, and hickory. These species have long provided valuable lumber for furniture, flooring, cabinetry, barrels, and musical instruments. A timber supply model and analysis for Southwest Virginia, developed at Virginia Tech, estimated the economic stock supply of primary wood products, recognizing two hardwood products: logs and bolts . The resource analysis indicated an ample supply of red oak small diameter timber available in Southwest Virginia, with feasibility studies showing that processing facilities could be economically viable under appropriate conditions .
+
+The management of these forests has evolved considerably over time. Research conducted in the Jefferson National Forest examined the effects of group selection and clearcut openings on wildlife in Appalachian hardwood forests . The study found that both types of openings had negative impacts on forest-interior bird species, though creating a variety of opening sizes provided benefits for different wildlife species that use early successional habitat . This research underscores the importance of sustainable forest management practices that balance economic objectives with conservation priorities.
+
+The economic significance of the region's forests extends beyond timber production. As the Southwest Virginia Cultural Heritage Foundation has documented, the region's natural assets are central to its cultural identity and economic development strategy . The foundation's work emphasizes the importance of leveraging cultural and natural assets to fuel economic growth, with forests providing the backdrop for outdoor recreation, tourism, and the creative economy that sustains communities along The Crooked Road .
+
+---
+
+#### Agricultural Land and Farming Heritage
+
+Agriculture has been a foundation of the Southwest Virginia economy for more than two centuries, shaping both the landscape and the culture of the Crooked Road corridor. The valleys, rolling pasturelands, and mountain farms that characterize the region have supported generations of families who have cultivated the land, raised livestock, and maintained the agricultural traditions that define Appalachian identity.
+
+The region's agricultural heritage is deeply rooted in its history. Permanent habitation by European Americans began in the mid-eighteenth century, with settlers acquiring land on the waters of the Clinch, Holston, and New rivers . With some notable exceptions along the bottomlands of major waterways, much of the region's land is mountainous with poor soils, making it unsuitable for large-scale plantations . Diversified farming—corn, wheat, beans, and fruit crops—for local consumption was the most common agricultural venture . Some farmers raised high-value crops such as hemp and flax or livestock such as cattle, hogs, and sheep that could be driven on the hoof to market .
+
+This agricultural heritage is preserved at sites throughout the corridor. The Blue Ridge Institute & Museum's Farm is a re-created nineteenth-century Blue Ridge, Virginia-German farmstead where costumed interpreters prepare meals over the open hearth, drive oxen, blacksmith, and carry out household and farm chores of the period . At Ingles Farm in Washington County, visitors can experience the site settled by William and Mary Draper Ingles in the 1750s, which operated as a working farm, ferry, and tavern . The Bush Mill in Scott County takes visitors back to a time when millwrights used the region's abundant natural resources to build overshot, water-powered grist mills .
+
+The region's agricultural traditions persist today, often adapting to contemporary challenges and opportunities. In Wythe County, farmer Charlie Burnett continues to farm with horses on steep mountain land where tractors would be unsafe . Burnett grows oats, puts up hundreds of bales of hay, and hauls wood for fuel on land that has sustained his Scots-Irish family for generations . He has also begun breeding old-style workhorses, recognizing that finding a farm workhorse with the traits of those used by previous generations—thick-bodied, quiet-mannered, big-boned, and docile—has become increasingly difficult .
+
+The growing interest in regenerative agriculture and local food systems has created new opportunities for the region's farmers. As farmers like Charlie Lawson in Tazewell County have discovered, there is increasing demand for food grown without chemicals and without dependence on diesel fuel . Lawson, who learned traditional farming practices from regional experts, now plants and harvests using horse power, producing dozens of quarts of beets, corn, beans, tomatoes, and potatoes . This revival of traditional farming practices, combined with modern marketing and distribution, can support a new generation of agricultural entrepreneurs who value both the heritage and the economic potential of the region's farms.
+
+---
+
+#### Rivers, Streams, and Water Resources
+
+The rivers and streams of the Crooked Road and U.S. Route 23 corridor are among the most biologically significant water resources in the eastern United States. The Clinch and Powell Rivers, which flow from southwestern Virginia through parts of East Tennessee, support unique and nationally significant populations of freshwater mussels and other aquatic fauna . These rivers have been the focus of extensive scientific study and conservation efforts, reflecting their ecological importance and the threats they face from land-use practices, energy extraction, and development.
+
+The Clinch River rises in Southwest Virginia near Tazewell and flows southwest through the Great Appalachian Valley, gathering various tributaries including the Powell River before joining the Tennessee River in East Tennessee . The Clinch and Powell Rivers contain some of the most diverse freshwater mussel assemblages found throughout North America . However, surveys of mussel and fish community structure over past decades have shown a pattern of decline throughout the Powell River and on parts of the upper Clinch that have suggested a connection to changing land-use practices . Localized losses in species richness and declines in population health may result from a combination of stresses including coal mining, other energy extraction practices, agricultural practices, urban development, and increases in hydrologic extremes .
+
+The Eastern Region Initiative on the Clinch (ERIC), a collaborative effort of numerous nonprofit, state, and federal agencies, has been working to address these challenges . The project has supplied a platform of basic hydrologic, biological, geological, and geographic understanding to support process-level studies of ecosystem response to stress . Partner organizations include the U.S. Geological Survey, Office of Surface Mining, U.S. EPA, U.S. Fish & Wildlife Service, U.S. Army Corps of Engineers, Tennessee Valley Authority, Virginia Tech, The Nature Conservancy, and numerous state agencies from Virginia and Tennessee .
+
+Field data collection activities from 2009-2011 focused on an 80-mile reach of the Clinch River from near Cleveland, Virginia, crossing the Virginia-Tennessee state line, to near Sneedville, Tennessee . Monitoring sites at Dungannon, Virginia, and Looney's Gap, Tennessee, provided a comparison between degraded mussel populations upstream and healthier populations downstream, offering opportunities to document statistically significant environmental stressors .
+
+The water resources of the corridor also provide recreational opportunities that support tourism and quality of life. The Clinch River above Clinton, Tennessee, is stocked with rainbow trout and brown trout by the Tennessee Wildlife Resources Agency . The region's streams support fishing, paddling, and wildlife viewing that attract visitors and support local economies. The protection of these water resources is essential not only for ecological reasons but for the economic benefits they provide.
+
+---
+
+#### Wildlife Habitat and Biodiversity
+
+The forests, rivers, and mountains of the Crooked Road and U.S. Route 23 corridor support exceptional biodiversity, including species that are found nowhere else in the world. This biodiversity is both an ecological treasure and an economic asset, supporting hunting, fishing, wildlife viewing, and ecotourism that contribute to the region's economy and quality of life.
+
+The forests of Southern Appalachia are critical habitats with respect to biodiversity, with a large portion of these forests residing on public multiuse lands . Research conducted in the George Washington and Jefferson National Forests examined small-mammal populations at 350 sample points across 157 square kilometers of forested habitat, capturing 3,955 individuals representing 20 species . Species abundance and richness were found to be highest in mesic deciduous forest types, with soil moisture capacity and the proportion of mesic habitat within 100 meters of the sample point important for several species . The study found that at least 73 percent of mesic patches within this forest were less than 25 hectares and separated from other patches by more than 100 meters, indicating that these small patches contain the bulk of the species richness for small mammals in the Southern Appalachian ecotype .
+
+The region's roadless areas provide critical habitats for species that require large expanses of contiguous habitat to thrive. The Beards Mountain Roadless Area in Bath County covers more than 7,500 acres, providing unfragmented habitat for wildlife adjacent to Douthat State Park . The Little River Roadless Area, one of the largest in Virginia, protects more than 27,000 acres of Shenandoah Mountain and boasts unique species such as the Cow Knob Salamander and Shenandoah Mountain Salamander that don't live anywhere else in the world . These areas also have high concentrations of black bears and rare birds, making them popular for mountain biking, hiking, trout fishing, and primitive camping .
+
+The aquatic biodiversity of the region is equally remarkable. The Clinch and Powell Rivers support some of the most diverse freshwater mussel assemblages in North America, with many species endemic to small and isolated stream reaches . These mussels are intolerant to even small changes in water quality and hydrology, making them valuable indicators of ecosystem health . Before being dammed, the Clinch River was a major producer of freshwater mussels and pearls, with the river considered the economic heart of the pearl industry in the late nineteenth and early twentieth centuries .
+
+The conservation of this biodiversity is not merely an environmental priority—it is an economic imperative. The Appalachian Regional Commission has recognized that the region's natural assets, including its wildlife and biodiversity, are central to economic development strategies that emphasize outdoor recreation, tourism, and sustainable resource use . Protecting the region's biodiversity ensures that these economic opportunities can continue for future generations.
+
+---
+
+#### Scenic Beauty and Recreational Opportunities
+
+The scenic beauty of the Crooked Road and U.S. Route 23 corridor is perhaps its most visible and celebrated asset. The region's mountains, forests, rivers, and valleys have attracted visitors for generations, and the development of outdoor recreation and heritage tourism has become a cornerstone of economic development strategy. As the Southwest Virginia Cultural Heritage Foundation has documented, leveraging the region's cultural and natural assets to fuel economic growth has been a central focus of regional development efforts .
+
+The Crooked Road itself has been recognized as one of America's most scenic routes, winding through a landscape so lush and lyrical that it regularly ranks among the nation's most beautiful driving trails . The 330-mile heritage music trail weaves through the misty contours of Southwest Virginia's Appalachian Mountains, linking a network of rural small towns via ten major music hubs and over 60 affiliated venues . The route's scenic beauty is a key part of its appeal, drawing visitors who come to experience both the music and the landscape that gave rise to it.
+
+The region's recreational opportunities are extensive and diverse. The Virginia Creeper Trail, which runs through Damascus, attracts cyclists from throughout the region. The Appalachian Trail passes through Washington County and other parts of the corridor, bringing hikers to communities such as Damascus. The Clinch River and its tributaries support fishing, paddling, and wildlife viewing. The region's national forests and state parks provide opportunities for hiking, camping, hunting, and wildlife observation.
+
+The economic impact of outdoor recreation and tourism in the region is substantial. Tourism spending across Southwest Virginia reached approximately $1.3 billion during 2024, representing a significant economic opportunity . The region's cultural and natural assets work together to attract visitors: the music that defines The Crooked Road is inseparable from the landscape that inspired it, and the communities that preserve this heritage also protect the natural environment that supports it.
+
+The development of outdoor recreation infrastructure has been a priority for regional economic development organizations. The Southwest Virginia Cultural Heritage Foundation has supported transformative investments in outdoor recreation, including riverwalks, competition-grade bike and skate parks, and destination centers . The Clinch River Valley Initiative reflects a commitment to enhancing outdoor access and promoting sustainable tourism, while the partnership with the Blue Ridge Parkway Foundation has enriched local recreation and empowered communities with new resources and economic opportunities .
+
+The scenic beauty and recreational opportunities of the Crooked Road corridor are not merely amenities—they are economic assets that support job creation, business development, and community vitality. As the Foundation's annual report emphasizes: "Our identity—authentic, distinctive, and alive—remains our greatest asset in building a bright and prosperous future for Southwest Virginia" . The region's natural resources, from its hardwood forests to its rivers and streams, from its wildlife to its scenic vistas, provide the foundation for an economic future that honors the past while embracing the possibilities of the present.
+
+
+---
+
+# CHAPTER TWO: THE PATHOS OF ECONOMIC DEVELOPMENT
+
+---
+
+### The Human Dimension of Economic Renewal
+
+#### Understanding the Emotional and Social Aspects
+
+Economic development is often discussed in abstract terms—jobs created, businesses opened, dollars invested, square footage developed. But behind every statistic, every chart, and every strategic plan are real people whose lives are shaped by economic conditions in ways that are deeply emotional and profoundly personal. The pathos of economic development lies in recognizing that communities are not merely collections of buildings and balance sheets; they are networks of relationships, memories, hopes, and fears that define the human experience of place. Understanding this emotional dimension is essential for developing strategies that will not only create economic activity but will also heal, restore, and renew the communities that have endured decades of decline.
+
+The emotional toll of economic dislocation in Southwest Virginia is both profound and well-documented. As Robert Rambo, Clinical Services Director in Dickenson County, explained when discussing the psychological impact of mine closures: "When you've been working your whole life, as most of them had been, and then that's gone, you can get depressed very easily. You can just lose your zest for life" . This description captures the essence of the human cost of economic transition—not merely the loss of income, but the loss of purpose, identity, and meaning that work provides. For generations of families in the Crooked Road corridor, work in coal mines, factories, and on farms was not simply a means of earning a living; it was a defining characteristic of who they were, how they saw themselves, and how they were seen by others.
+
+The decline of foundational industries has created what researchers have described as a "shared sense of depression and stagnation" across rural Virginia communities . This collective emotional state is not simply the sum of individual feelings of sadness or anxiety; it is a community-wide phenomenon that affects social cohesion, civic engagement, and the willingness to invest in the future. When communities experience prolonged economic decline, the psychological impacts extend far beyond the individual, creating a pervasive atmosphere of pessimism that can become self-fulfilling. People who believe their communities have no future are less likely to invest in them, less likely to start businesses, and less likely to encourage their children to stay.
+
+The loss of pride and self-esteem that accompanies unemployment is particularly acute in communities with strong work cultures. As Rambo observed of coal miners who have lost their jobs: "Generally speaking, coal miners hate being on the draw, as they call it. So having to ask for help just kills them. A lot of them just can't bring themselves to do it" . This cultural resistance to seeking assistance—rooted in Appalachian values of self-reliance and independence—means that many families suffer in silence, their struggles invisible to the social service agencies and government programs that might help them. The researcher noted that "when we do get a miner in here to talk to us, things have usually already reached a crisis point" , indicating that the emotional pain is often carried until it becomes unbearable.
+
+The hidden nature of this suffering has significant implications for economic development strategy. Programs and policies that require individuals to admit vulnerability or to navigate bureaucratic systems may be inaccessible to those who most need them. The Appalachian cultural value of self-reliance, while a source of strength in many contexts, can become a barrier to accessing the support that is essential for economic transition. Effective economic development must be sensitive to these cultural dynamics, creating pathways to assistance that respect the dignity and autonomy of individuals and families.
+
+The connection between economic vitality and psychological health extends beyond unemployment to include the broader stresses of economic insecurity. Crystal Hill, a clinical services employee in Dickenson County, noted that "when a big job layoff happens, as far as the men go, there's a real loss of self-esteem, and there's a lot of feeling insecure. As far as the women go, I think, there's all this anxiety about making ends meet" . These gendered responses to economic stress reflect the different roles that men and women have traditionally played in Appalachian families, with men's identities closely tied to their roles as providers and women's concerns focused on the practical challenges of maintaining households under financial strain.
+
+The impact on children is equally significant. Hill explained: "If there is a conflict or problem in the family, the kids know it. They sense it, whether it's financial or has to do with whether Mom and Dad are going to get a divorce. These things go straight to the kids. It can't be helped. They're affected just like their parents. It's hard for them to go to school and say 'My daddy's out of work and my mommy's at her wit's end'" . The intergenerational transmission of economic stress means that the children of families affected by economic decline carry the emotional burden of their parents' struggles, potentially affecting their educational outcomes, mental health, and future economic prospects.
+
+The crisis of confidence that has emerged across the Crooked Road corridor is perhaps the most significant psychological barrier to economic renewal. Communities that have experienced prolonged decline often come to believe that their best days are behind them, that the future holds only more of the same, and that efforts to change course are futile. This loss of hope is particularly damaging because it creates a self-fulfilling prophecy. When people believe their communities have no future, they invest less, work less, and stay less. They send their children away and resign themselves to a diminished existence.
+
+The Appalachian Regional Commission's economic status designations quantify this reality with stark clarity. Lee County, Buchanan County, Dickenson County, and Wise County (combined with Norton City) are all designated as "Distressed"—the commission's most severe economic status classification. Lee County's per capita market income is just $21,818, or 38.2 percent of the U.S. average, with a poverty rate of 27.6 percent . Wise County's per capita market income stands at $23,528, or 41.2 percent of the U.S. average, with an 18.5 percent poverty rate . These numbers represent more than economic deprivation; they represent communities where hope has been eroded by decades of decline.
+
+Yet even in the midst of this despair, there are signs of resilience. As the Coal Community Development Platform developed by Appalachian Voices in partnership with residents from five Southwest Virginia communities demonstrates, local residents have a clear vision for their communities' future . Mary Cromer, a Pound community member and member of the Pound Monuments Across Appalachia Advisory Council, captured this determination when she said: "We have a lot of hard work to do to rebuild our community and make it a strong, resilient place where our kids and their kids can thrive" . This statement reflects the recognition that economic renewal is not simply about attracting new businesses or creating jobs; it is about rebuilding the social fabric and creating communities where future generations can build meaningful lives.
+
+---
+
+#### Communities as Networks of Families and Relationships
+
+The communities of the Crooked Road and U.S. Route 23 corridor are not simply geographic locations; they are intricate networks of families, relationships, and shared history that have been sustained over generations. Understanding these networks is essential for economic development because the success of any strategy depends on the willingness of community members to participate, invest, and commit to the future.
+
+The family structures that have defined Appalachian communities for generations have been both a source of strength and a factor in the region's economic challenges. As Shifflett's study of rural poverty in Virginia documented, the family has historically served as an "adaptive mechanism under economically marginal conditions," filling the gap left by the absence of social welfare institutions . In the absence of formal support systems, families have relied on kinship networks to provide assistance, care, and mutual support. This tradition of family-based mutual assistance continues to characterize the region, with extended families often providing the safety net that formal institutions cannot.
+
+However, the same family structures that have provided resilience in difficult times have also created challenges for economic development. The pattern of intergenerational employment in the same industries—"their fathers and their grandfathers were coal miners, so that's the pattern that's set," as Rambo observed —has meant that when those industries decline, families lose not only their current income but also the expectation of future opportunity. Breaking this pattern requires not only creating new employment opportunities but also helping families envision new possibilities for their children.
+
+The outmigration of younger generations has fundamentally altered the fabric of community life. As the University of Virginia's research on Martinsville documented, population decline creates a cascade of effects: "school closures, medical isolation, and a lack of infrastructure investment and economic development" . The loss of young people means that communities lose not only workers and taxpayers but also the energy, creativity, and entrepreneurial spirit that drive renewal. It means that families are separated, with grandparents remaining in communities where their children and grandchildren no longer live.
+
+The economic challenges facing the region are compounded by the social and health challenges that accompany them. As the ARC Program Development Plan documents, mortality rates for chronic diseases in Appalachian Virginia are significantly higher than in other areas of the Commonwealth. Appalachian Virginia's heart disease mortality rate is 24 percent higher than the national rate and 40 percent higher than the rate in non-Appalachian Virginia. Cancer mortality is 10 percent higher than the national rate, and COPD mortality is 36 percent higher . These health disparities reflect the cumulative effects of economic stress, environmental exposure, and limited access to healthcare.
+
+The connection between economic vitality and health is bidirectional. Poor health limits workforce participation and economic productivity. Economic stress contributes to poor health through stress, inadequate nutrition, and limited access to preventive care. The combination of declining economic opportunities and declining health creates a downward spiral that is difficult to reverse. As the ARC document notes, access to medical care continues to be a major concern, with 17 of 33 Virginia ARC localities designated as Health Professional Shortage Areas .
+
+The impact of grocery costs on families across the region provides another window into the daily struggles that shape community life. According to a No Kid Hungry Virginia poll, 78 percent of Virginians report feeling the higher costs of groceries, and just under half say it has led them to cut back on buying fresh produce and protein . In rural communities like those in Southwest Virginia, 82 percent of respondents reported that groceries are harder to afford than they were one year ago, and 47 percent said they were dealing with at least one sign of food insecurity . As Sarah Steely, Director of No Kid Hungry Virginia, observed: "It affects their ability to stretch their budget and cover all of the costs that they have to take care of. It affects their mental health, it affects the choices that they make when they're in the grocery store, and it affects their ability to put nourishing food on the table for their families" .
+
+The emotional impact of these daily struggles extends beyond the immediate stress of financial insecurity. When families cannot afford to put nourishing food on the table, it affects not only their physical health but also their sense of dignity, their relationships, and their hope for the future. Children who experience food insecurity may struggle to concentrate in school, to develop healthy relationships, and to believe that their circumstances will improve.
+
+The community-level impacts of economic stress are equally significant. As the University of Virginia's research on Martinsville documented, "the loss of identity is a hindrance to innovative planning strategies and entrepreneurship" . Communities that have lost their economic foundations often struggle to develop new visions for the future. The old sense of place, grounded in past years of growth and prosperity, gives way to a shared sense of depression and stagnation. The lack of economic opportunities causes younger residents to move away, further eroding the community's capacity for renewal.
+
+The reversal of this process requires what researchers have called a "positive discovery of former, current, and future assets" . Communities must rediscover the strengths that have sustained them through difficult times and imagine how those strengths can be leveraged for the future. This process of rediscovery is not simply an intellectual exercise; it is an emotional and psychological journey that requires communities to confront their losses while believing in their future.
+
+The importance of community identity and social capital in the revitalization process cannot be overstated. As the University of Virginia researchers note: "While identity shaped through local culture and social capital is not easily measured, it plays a critical role in the vibrancy and attractiveness of a place" . Cultural activity, in particular, is "an expression of shared values expressing a sense of belonging," and the principles of cultural economy "can strengthen the growth and attractiveness of both urban areas and rural communities" .
+
+The Coal Community Development Platform developed by Appalachian Voices reflects this understanding. Developed in partnership with residents from five Southwest Virginia communities—Clinchco, Dante, Dungannon, Pennington Gap, and Pound—the platform is "built by and for Virginia's coalfield communities, with local priorities shaping economic transition rooted in real community needs" . The platform's development process involved over a year of listening sessions and feedback from local residents and leaders, ensuring that the strategies proposed reflect the aspirations and priorities of the communities themselves.
+
+The Tobacco Region Revitalization Commission's work also reflects the importance of community-centered economic development. Since its founding 25 years ago, the Commission has awarded a total of $1.5 billion through nearly 2,500 grants. As Senator Frank M. Ruff, Jr., one of the Commission's founding members, noted: "Our young people deserve opportunities, and our employers need good employees. We need young people to have that opportunity and a reason to remain a part of our communities. Getting them well trained for good paying careers close by will give them that opportunity" . This perspective recognizes that economic development is ultimately about creating the conditions for people to build meaningful lives in the communities they call home.
+
+The human dimension of economic renewal is the foundation upon which all other strategies must be built. As Brad Kreps, director of The Nature Conservancy's Clinch Valley Program, observed: "We all live here, so the work we're doing is deeply personal" . This personal commitment to place—rooted in family, history, and belonging—is the source of the region's resilience and the foundation for its future. Economic development strategies that fail to respect this human dimension will ultimately fail. Strategies that build upon it can succeed, transforming communities from the inside out.
+
+The path forward requires courage, cooperation, and commitment—but it also requires hope. The residents of Southwest Virginia have survived economic dislocation, industrial decline, and the loss of the economic foundations that sustained their communities for generations. They have done so through the strength of their families, the resilience of their communities, and their commitment to the land and culture that define their identity. This is the pathos of economic development: the recognition that the future of the region will be built not by outside investors or government programs alone, but by the people who call it home.
+
+## CHAPTER TWO: THE PATHOS OF ECONOMIC DEVELOPMENT (Continued)
+
+---
+
+### The Pain of Decline
+
+#### Loss of Jobs, Families, and Community Identity
+
+The decline of foundational industries in the Crooked Road corridor has inflicted losses that extend far beyond the economic realm. For communities built on coal mining, manufacturing, and agriculture, the disappearance of these industries has meant the unraveling of a way of life that sustained families and communities for generations. This loss is not simply about the absence of paychecks; it is about the erosion of identity, purpose, and belonging that work provides.
+
+Coal mining in particular has been woven into the fabric of Appalachian life for more than a century. As the journal *Rooted: Loyalty to a Way of Life* describes, for generations of families, mining "was a way of life" that provided not just income but meaning and identity. The work was hard and often dangerous, but it paid a fair wage and allowed men with little formal education to support their families and build communities. This way of life was passed from fathers to sons, creating a pattern of intergenerational employment that shaped family expectations and community structures.
+
+The depth of this connection is reflected in the words of John Robinson, a former miner whose body was broken by decades of work underground. Despite being diagnosed with black lung disease and left with only 60 percent of normal lung capacity, Robinson expressed a sentiment that many miners share: "We've had a good life. Was able to buy my wife a nice vehicle, nice home. Kids had nice things. Coal was good. …But that's the price you pay, because at the end, when it's all said and done, your health is gone. Your breathing is gone. Your joints are wore out. But, I'd do it again….I like coal mining….It was hard when they pulled me out, real hard". This statement captures the paradox of coal mining—the pride and purpose it provided, even as it consumed the bodies of those who performed the work.
+
+The loss of jobs has been devastating in scale. Between 2011 and 2018, Appalachian coal production and employment dropped by 40 and 49 percent respectively, as low-cost fracked natural gas displaced coal in the electricity sector. This economic transition affected not only coal mine workers but also the broader community. Research using individual-level credit data found that "the credit score declines cannot be fully explained by coal mine worker households alone, suggesting that there are meaningful spillovers from the coal decline into the broader Appalachian economy". When the mines close, the effects ripple outward through retail, real estate, healthcare, and every other sector of the local economy.
+
+The outmigration of younger generations has fundamentally altered the demographic structure of communities. In Pike County, Kentucky—a region with similar dynamics to the Virginia corridor—the population has fallen sharply, "down by nearly a third," following the collapse of the coal economy. Those who leave to find jobs elsewhere face a stigma, as one resident described: "If you venture outside of here, as someone from Appalachia, immediately feel defense and shame, like I'm from a lesser part of the country. I'm from -- I'm a dumb hillbilly, and that's what everybody thinks". This stigma compounds the pain of displacement, adding shame to the sorrow of leaving home.
+
+The loss of community identity is perhaps the most profound consequence of economic decline. As sociologist Arlie Hochschild documented in her research on Pike County, residents often express a sense of being forgotten. "I often heard, oh, we kept the lights on. We won World War I. We won World War II. We provided the electricity and energy that helped build the weapons we needed to win that war. And now we're forgotten. That is the basic feeling here," Hochschild observed. This sense of abandonment—of having contributed to the nation's prosperity only to be left behind—creates a deep well of resentment and grief that shapes community responses to economic transition.
+
+#### The Psychological Impact of Economic Contraction
+
+The psychological toll of economic decline in resource-dependent communities has been documented through extensive research. A study examining the impact of boom-and-bust cycles from oil and gas development found that economic bust periods were associated with "a small increase in annual county-level inpatient psychiatric hospitalization rates," with stronger associations among "beneficiaries who identified as White race, resided in rural areas, and lived in a county with the lowest tertile of median household income". The study identified that "associations in the bust period were stronger among the categories for attention disorders, anxiety disorders, and mood disorders," suggesting that economic decline directly contributes to mental health deterioration.
+
+The research on Iowa farmers provides additional insight into how economic distress becomes collective trauma. The study found that farmers "represent a unique population that is chronically exposed to potentially traumatic events and conditions particular to the agricultural industry," including "the farm crisis of the 1980s, decades of extreme weather events, rapidly fluctuating markets, trade wars, rising input costs, farm bankruptcies and foreclosures, and high rates of farmer suicides". This chronic exposure to economic stress creates what researchers describe as "collective trauma"—"psychological effects that are experienced by a group of people in response to shared traumatic conditions".
+
+The specific effects of collective trauma on decision-making are particularly relevant for economic development. The Iowa study found that "impaired behavioral health, including acute and chronic stress, has been found to have an effect on decision making, especially when choices include high levels of uncertainty and/or risk". This finding suggests that communities experiencing economic distress may be less able to make the strategic decisions necessary for economic transition, creating a self-reinforcing cycle of decline.
+
+In the Virginia coalfields, the psychological effects of economic contraction have been observed firsthand by mental health professionals. Robert Rambo, Clinical Services Director in Dickenson County, described the progression of psychological distress following mine closures: "When you've been working your whole life, as most of them had been, and then that's gone, you can get depressed very easily. You can just lose your zest for life". This depression, Rambo explained, is often accompanied by "an increase in alcoholism, and also substance abuse of all kinds, and even more unfortunately, in familial problems like spouse abuse".
+
+The link between economic stress and family violence is particularly troubling. Rambo noted that unemployed miners often engage in "more of what I will call acting-out behaviors in regard to their spouses. We have more battered wives". Crystal Hill, a clinical services employee, observed the broader family impacts: "When a big job layoff happens, as far as the men go, there's a real loss of self-esteem, and there's a lot of feeling insecure. As far as the women go, I think, there's all this anxiety about making ends meet. And the kids are affected too". The children, Hill explained, sense the conflict and stress in their families, making it "hard for them to go to school and say 'My daddy's out of work and my mommy's at her wit's end'".
+
+The financial stress that accompanies job loss compounds the psychological burden. Rambo described the pattern: "Most of the coal miners here, especially the union ones, make really good money. ... And when you lose that, you just can't walk down the street and get another one. You're talking about moving away or going into the service industry and making $8,000-10,000 at best. So a lot of the miners get into a lot of debt and then they're laid off and the financial burden, the stress, the tension, all just become overwhelming". The inability to maintain the lifestyle that mining wages had provided—the "fishing boats and four wheel drive trucks and high-powered rifles and hunting dogs"—adds shame and humiliation to financial hardship.
+
+A study published in the Journal of Financial Economics found that the transition away from coal had particularly severe effects on individuals with lower-middle credit scores, precisely the part of the distribution where access to credit is most sensitive to minor credit score movements. The study also found that "credit score declines and financial distress were largest among older individuals and people with lower-middle credit scores," suggesting that those with the least capacity to weather economic shocks are most severely affected. The effects materialized quickly, with "coal demand shocks taking no more than two years (including the year of a shock) to flow through to credit outcomes".
+
+The economic contraction also created what the study called a "hollowing out" of communities, with reduced "churn (the sum of in- and out-migration)" suggesting "reduced economic activity in the region". Those who moved during the coal decline period "experienced slower post-move credit score recoveries," indicating that even leaving the region did not necessarily improve economic outcomes.
+
+#### Recognizing and Acknowledging Community Suffering
+
+Acknowledging the pain of economic decline is an essential first step in the process of community renewal. Communities that have experienced decades of economic contraction and population loss carry wounds that must be recognized before healing can begin. This recognition requires not only understanding the statistics but listening to the stories of those who have lived through the transition.
+
+The stories of miners and their families reveal the depth of the suffering. Vonda Robinson, whose husband John suffers from black lung disease, has become a relentless advocate for miners and their families. "As long as I have breath in me, I'm going to fight for every coal miner and for every widow, because that's my heart. I live with it every day. As long as I have breath, I'm going to push. I'm going to try". Her advocacy has documented the human cost of the industry—not only the jobs lost but the lives destroyed by occupational disease. "We're tired of seeing 28-year-olds with complicated black lung. We saw a 35-year-old die last week. These people are not going to see their children grow up," she told a rally in Washington.
+
+The health consequences of coal mining extend beyond the miners themselves. Pam Stacy, whose husband "Frog" died of black lung in 2020, described the toll of losing benefits after the coal company appealed his claim. "The DOL told them to repay the benefits they had received. The ruling also meant that future medical treatment would no longer be covered. His health quickly deteriorated". The couple, who would have celebrated their 50th wedding anniversary, were left with the costs of his care and the grief of a preventable death.
+
+The loss of identity and purpose that accompanies economic decline is particularly acute in communities built around a single industry. As Brendan Smith, a former cod fisherman from Newfoundland, told attendees of an Appalachian conference: "Economic transition is about much more than bringing in jobs. ... When the cod grounds shut down, what they did was offer us money. They'd send us a check, we'd beach our boats … We took the money but what we did was lose our sense of purpose. What you find in Newfoundland now is, a fisherman gets a check, buys a brand new beautiful truck and gets up at five in the morning to drive down to the docks and drink himself to death while he wishes he was out fishing". Smith's observation captures the essential truth that work provides meaning beyond wages. "Fishermen, coal miners, iron workers … we're just proud of building, powering, feeding this whole country. So, just transition plans not only have to help us feed our families but also feed our souls".
+
+The experience of Ryan Ward, a fourth-generation coal miner from southwestern Virginia, illustrates both the cultural attachment to mining and the possibility of change. Ward entered the mines after struggling to support his family through other employment, despite having been raised with the expectation that he would avoid the industry. "Out of options and tired of being unable to afford the 'best' for my small family, I went to work in the mines, becoming the fourth generation of my family to face the long days beneath our mountain home". After a fire destroyed his home, Ward re-evaluated his life and "realized that the best life I could give my children wasn't one full of 'things,' but was one of clean health and a simpler path to happiness". He left the mines and eventually attended Berea College, learning to "advocate for change in Appalachia and everywhere resource extraction threatens people's health and happiness".
+
+Acknowledging the psychological impact of economic decline also means recognizing the cultural and political divisions that economic stress can create. As Hochschild documented in Pike County, a once overwhelmingly Democratic region became overwhelmingly Republican as the economy changed. "What's happened, I think, the whole sector of American society has experienced this scary slide downward and has felt, wait a minute, the other sector is going up and we're going down. And they have turned to both parties, Democratic Party, Republican Party, haven't found answers". The political divisions that have emerged in communities like these are symptoms of the deeper wound of economic dislocation.
+
+The divisions are now more visible, according to Reverend Robert Musick, a religious studies instructor at the University of Pikeville: "It's beginning to really start dividing some places that were traditionally neutral grounds. People are just now kind of a little bit hesitant, or maybe they're not having the same type of dialogues that they used to have, because they're just so afraid of hitting a button that people are going to be too hot and bothered about". This breakdown of community dialogue further isolates individuals and makes collective problem-solving more difficult.
+
+The 2025 "holler log" event in Pike County, organized after Hochschild's book was published, demonstrated the possibility of bridging these divisions. Participants from across the political spectrum gathered for seven hours of dialogue about the challenges facing their community, with Hochschild noting that they "agreed that actually a lot of these cuts to services that have happened will hurt this area" and "agreed we ought to get to know each other's cultures respectfully and stop stereotyping each other". As one participant observed, "Solutions I think at this point are not found in the halls of Congress. I think the solutions are people outside of that coming together and saying, OK, how much are we really in disagreement with each other?"
+
+The recognition of community suffering, then, is not only an act of compassion—it is an essential prerequisite for effective economic development. As the experiences of the Virginia coalfields, Pike County, and Newfoundland demonstrate, economic transition is not simply a technical challenge of replacing one industry with another. It is a human challenge of helping communities grieve their losses, maintain their dignity, and rebuild their sense of purpose. The pathos of economic development lies in this recognition, and the strategies that succeed are those that honor the pain of decline while offering hope for renewal.
+
+## CHAPTER TWO: THE PATHOS OF ECONOMIC DEVELOPMENT (Continued)
+
+---
+
+### The Hope of Renewal
+
+#### Resilience, Creativity, and Determination
+
+The communities of the Crooked Road and U.S. Route 23 corridor have demonstrated remarkable resilience in the face of decades of economic decline. The spirit that sustained families through the boom-and-bust cycles of coal mining, that preserved cultural traditions through generations of change, and that maintained community bonds through the challenges of outmigration and population loss remains a powerful force for renewal. This resilience is not simply passive endurance—it is an active, creative determination to build a better future despite the odds.
+
+The grassroots energy that characterizes this resilience is evident in communities throughout the region. As Mary Cromer, a Pound community member and member of the Pound Monuments Across Appalachia Advisory Council, expressed: "We have a lot of hard work to do to rebuild our community and make it a strong, resilient place where our kids and their kids can thrive" . This determination is not waiting for outside solutions; it is rooted in a vision that communities themselves have articulated and are working to achieve.
+
+The Virginia Coal Community Development Platform, developed by Appalachian Voices in partnership with residents from five Southwest Virginia communities, embodies this grassroots determination. The platform is "built by and for Virginia's coalfield communities, with local priorities shaping economic transition rooted in real community needs" . It reflects community ideas shared over listening sessions that identified priorities and challenges facing the region with the goal of creating a "just transition to a diversified, modern economy that's ready for the challenges of climate change" .
+
+The platform consists of five policy priorities that reflect community-generated solutions: investing in Appalachian communities to diversify the economy; ensuring energy affordability and community benefits through renewable energy; increasing access to affordable health care; developing community resilience through investments in flood prevention and emergency management; and addressing abandoned buildings that pose safety and health risks . These priorities demonstrate that communities are not passive recipients of change but active architects of their future.
+
+The resilience of Appalachian communities is grounded in a deep understanding of their own history and the forces that have shaped their circumstances. As Kennedy Caudill, a Civic Fellow in Hazard, Kentucky, observed, many young people have become "so angered that people thought this of us, all across the United States" that they have channeled that anger into constructive action . This determination to challenge stereotypes and build a different narrative is a powerful force for renewal.
+
+The energy and creativity of the next generation is perhaps the most promising source of renewal. In Hazard, the Civic Fellows program, created by a town council member and assistant principal, has empowered local youth to contribute to their hometown's success. As one participant observed, there has "always been people in positions of supervision, for me at least, and in higher up positions and leadership positions that have made me feel welcome and made me feel like my ideas matter, especially as a young person in this town" . This intergenerational partnership—experienced leaders empowering young people to lead—is essential for sustainable renewal.
+
+The determination of communities to tell their own stories is another manifestation of resilience. The "odd cats of Appalachia" branding in Hazard captures "the spirit of openness, quirkiness, and civic creativity that is helping revive" the town . This embrace of local identity, rather than trying to conform to outside expectations, reflects a confidence that the region's distinctiveness is an asset, not a liability.
+
+The economic results of this resilience are becoming visible. In 2025, the Virginia Coalfield Economic Development Authority announced 27 new projects in the region projected to create 189 full-time and 106 part-time jobs, alongside six expansion projects projected to create and retain 369 full-time jobs . These projects represent $58,344,319 in private investment through expansions and $17,364,124 through new projects . The VCEDA approved 59 loans and grants for $18,759,752 in new funding projected to help create and retain 584 full-time and 124 part-time jobs with $180,214,443 in private investment . These figures demonstrate that the region's resilience is translating into tangible economic results.
+
+---
+
+#### Cultural Preservation Through Music, Crafts, and Storytelling
+
+The cultural heritage of the Crooked Road corridor is one of its most powerful assets for economic renewal. The music, crafts, and storytelling traditions that have been preserved through generations are not merely artifacts of the past—they are living expressions of community identity that can support tourism, creative industries, and community cohesion. As the Virginia General Assembly recognized in its resolution commending The Crooked Road, the region's musical traditions have "a significant impact on the cultural and economic landscape," supporting "economic development in Southwest Virginia" .
+
+The Crooked Road: Virginia's Heritage Music Trail represents one of the most successful cultural preservation initiatives in the region. Created in 2004, this 333-mile driving trail links over 60 music venues across Southwest Virginia . The Crooked Road is governed by a nonprofit organization that helps drive tourism to the region, generating approximately $6.4 million in annual spending and nearly $9.2 million in total economic impact when related business and employee spending is included .
+
+The authenticity of The Crooked Road is central to its success. As Executive Director Tyler Hughes explained, "Crooked Road is not an over commercialized, over commodified viewpoint of music in Southwest Virginia. It has allowed our communities to latch onto something that we can be proud of and put on display in an authentic way" . This authenticity—grounded in the region's genuine musical heritage rather than manufactured attractions—has made The Crooked Road a destination for visitors from as far away as the United Kingdom, Brazil, Australia, and Japan .
+
+The Tobacco Region Revitalization Commission has been a significant partner in this effort, providing over $4 million in grants over the years for community signage, economic impact studies, and venue revitalization . Most recently, the commission awarded $50,000 toward revitalizing the Rex Theatre in Galax, a major venue on The Crooked Road . This partnership reflects the recognition that cultural preservation is an economic development strategy, creating jobs and attracting visitors while celebrating regional identity.
+
+The impact extends beyond the music venues themselves. The Floyd Country Store and its Friday Night Jamboree concerts, County Sales record store, and the Galax Old Fiddlers' Convention—which has drawn 30,000 attendees annually since 1935—all contribute to the region's cultural and economic vitality . The Country Cabin II in Norton, the longest continuously running venue along The Crooked Road, has operated since 1938, demonstrating the enduring appeal of heritage music . The Ralph Stanley Museum in Clintwood showcases memorabilia from the legendary singer and banjo player's 60-year career, preserving the legacy of one of the region's most important cultural figures .
+
+Crafts and storytelling traditions are equally important elements of cultural preservation. The Appalachian Forest National Heritage Area (AFNHA) in neighboring West Virginia and western Maryland demonstrates how forest heritage can support economic development through tourism and community pride. AFNHA helps rural communities "grow by sharing and protecting their forest history and culture," establishing "natural, historical, educational, and conservation-based tourism sites to promote economic and community development" . The central Appalachian culture, including "folklife, music, dance, crafts, and traditions," is "inextricably tied to the forest" .
+
+The AFNHA's experience is instructive for the Virginia corridor. By helping communities use "what makes them special—their forests, stories, and traditions—to bring in visitors and support local businesses," AFNHA demonstrates how cultural preservation and economic development can reinforce each other . The organization works with "struggling sites to help them improve their programs and destinations," recognizing that "many communities have valuable natural and cultural resources at their doorstep, but they lack the resources to develop these as tourism destinations" .
+
+The resurgence of traditional crafts and home industries also contributes to cultural preservation and economic development. The Marketing Appalachia's Traditional Community Handcrafts (MATCH) program documented the efforts to promote development through crafts and folk art from 1900 to 1987 . This tradition continues today, with quilt-making, weaving, and other crafts being recognized as both cultural expressions and economic opportunities. The stories preserved in these crafts—of family history, community life, and cultural identity—are as valuable as the objects themselves.
+
+---
+
+#### Community Support and Mutual Assistance
+
+The tradition of mutual assistance is deeply embedded in Appalachian culture. This practice of neighbors helping neighbors has sustained communities through the most difficult times and remains a powerful force for resilience and renewal. The Tri-Cities Mutual Aid & Solidarity Network, serving Northeastern Tennessee, Southwestern Virginia, and surrounding areas, exemplifies this tradition in contemporary form.
+
+The network was "sprung out of organizing for community care at the head of the SARS-CoV-2 pandemic in early 2020" and has continued to "weave scraps of care together from whatever we have ever since" . The organization focuses on "solidarity and networking between existing community projects, programs, movement work and navigating community resources, where we can assess gaps, strengthen supports, and meet needs where the threads run bare" . They maintain free stores of food, supplies, and clothes, facilitate community support, and share skills and resources .
+
+This mutual aid tradition is grounded in a belief in "interdependence"—that communities are stronger when they support one another . As Ryan Eller, executive director of the Appalachia Funders Network, observed: "I was always taught growing up that you cared for your neighbors. And when you go to community events, you are eating with and communing with your neighbors because they're like family" . This ethic of care, Eller suggests, is "born out of the grit and resilience that you have to have when you live in a place that is kind of tough to live in" .
+
+The Appalachian tradition of mutual assistance has evolved to meet contemporary challenges. The CareForward platform, supported by the Wellspring Foundation of Southwest Virginia, connects volunteers and partner organizations with critical needs identified by departments of social services in Grayson, Washington, Russell, and Smyth counties . This mobile technology platform addresses urgent gaps in care for seniors, people with chronic or complex health conditions, individuals with disabilities, and those facing housing instability or social isolation . As Sean McMurray, Executive Director of the Wellspring Foundation, stated: "We believe healthy communities are built when people step up to serve one another" .
+
+The history of mutual assistance in the region is long and deep. During the Great Depression, cooperative extension services and home industry cooperatives helped farmers and homemakers sell their goods locally, providing income "for farm folk and rais[ing] the standard of production" . These cooperatives represented a recognition that communities could sustain themselves through collective action, even in the most difficult economic circumstances.
+
+United Way's 2-1-1 hotline provides another example of community support infrastructure. The free and confidential line connects users with assistance for food, housing, childcare, and other issues . In southern West Virginia, the hotline has been essential as funding losses for SNAP and WIC have created crises for families. Executive Director Trena Dacal noted that "2-1-1 is an especially important resource currently" and that "anyone who needs services who is looking for resources, they can call 2-1-1" .
+
+The Appalachian Funders Network (AFN) represents a regional approach to supporting community resilience and mutual assistance. AFN is a "six-state network across Central Appalachia helping to organize funders of all kinds" with a commitment to "a transition from the coal economy into something in which everybody can thrive" . The network's commitment to the region reflects a recognition that Central Appalachia's people are its greatest asset. As Eller observed: "The fear among my family growing up, for me and all my cousins, was that they knew we might go off to college...But you better not get above your raisin'. My great-grandfather used to say, 'Go, you go to school and you read through them books, but don't forget where you came from. Don't forget who you are'" .
+
+The return of educated young people to communities like Hazard suggests that this ethic is being preserved. Eller notes that "there's an experience, some people have called it the 'brain drain,' of Appalachian folks going elsewhere for school, to go find work. In previous generations, folks tended to come back home. That's now actually what's happening in Hazard. A lot of folks are starting to come back, which is a wonderful, beautiful, intergenerational change" .
+
+---
+
+#### Channeling Hope into Practical Strategies
+
+The hope of renewal in the Crooked Road and U.S. Route 23 corridor is being channeled into practical strategies for economic transformation. These strategies combine cultural preservation, infrastructure development, workforce training, and strategic investment to create a diversified, resilient economy.
+
+The Energy DELTA Lab project in Wise County represents the kind of ambitious vision that is emerging from the region. Led by a nonprofit team, the project seeks to convert approximately 65,000 acres of old coal land into solar power systems and data centers that could help fuel the increasing power demands of the artificial intelligence boom . As Will Payne, who helps manage Energy DELTA Lab, explained, they imagine building "a massive 450-acre Data Center Ridge on top of old mining lands that could be powered and cooled using the billions of gallons of water that naturally replenish below" .
+
+The project builds on the region's unique geological advantages. Unlike in some neighboring areas, the coal fields in Wise County "lack the mineral pyrite," the key culprit in acid mine drainage, making the water suitable for industrial uses . As Payne noted, "the water quality is there. Obviously the cost to use, to circulate this water is low" . The project has already secured support from local governments, with a handful of localities, including Wise County, having "a special tax rate on data centre equipment and resolutions aimed at welcoming regional data centre investments" .
+
+Other innovative projects are already demonstrating the viability of repurposing coal lands. The Mineral Gap Data Center in Wise County came online in 2023, touting itself as "the first abandoned mine land to be converted to solar in the state" . The Nature Conservancy is a partner in a 10 MW solar project in Wise County built on the former Indian Creek Surface Mine, with construction planned to begin soon . Brad Kreps, the Conservancy's Clinch Valley Program director, noted: "Our projects are definitely among the first that are moving forward in central Appalachia" .
+
+The workforce development strategies being implemented across the region reflect a similar practical orientation. The Civic Fellowship program in Hazard, which has been recognized as the most comprehensive city internship in Kentucky, provides young people with real experience in local government while empowering them to contribute to their community's future . This investment in next-generation leadership is essential for sustainable renewal.
+
+The Crooked Road's Artist-in-Residence program, launched in 2021, provides another example of practical support for the creative economy. The program offers a stipend and support to local musicians, helping them develop their careers while contributing to the region's cultural vitality . The heritage music fund offers grants to musicians of up to $500 for professional projects such as recording work, website development, and headshots . These small but strategic investments build the infrastructure for a vibrant creative economy.
+
+The Virginia Coalfield Economic Development Authority's Seed Capital Matching Fund program supports business start-ups throughout the region. In 2025, 26 new business start-ups were supported, projecting a total of 100 full-time and 106 part-time jobs . This program recognizes that entrepreneurship and small business development are essential for a diversified economy.
+
+The broadband expansion underway throughout the corridor represents another practical strategy for channeling hope into action. The federal BEAD program and state VATI investments are bringing fiber connectivity to communities that have long been underserved, enabling remote work, telemedicine, online education, and e-commerce. These investments make it possible for residents to participate in the digital economy without leaving their communities.
+
+The regional cooperation that characterizes these efforts is itself a practical strategy. The "team approach" that VCEDA emphasizes—in which "VCEDA and its economic development allies work towards a common goal for the betterment of the region" —recognizes that communities are stronger when they work together. The collaboration between city and county in Hazard, where leaders "described an unusual partnership and collaboration...that has resulted in a shared vision for revitalization," demonstrates what is possible when communities cooperate .
+
+Hope is not simply a feeling—it is a choice to believe that the future can be different from the past and a commitment to act on that belief. The people of the Crooked Road and U.S. Route 23 corridor are making that choice every day, in their resilience, their cultural preservation, their mutual support, and their practical strategies for renewal. As Ryan Eller observed, "Most people in the mountains understood well that the pharmaceutical companies were preying upon Appalachia in particular because they knew that most of the jobs required physical labor...A lot of folks were lied to. So I think there's a different understanding around addiction and around second chances" . This understanding—rooted in empathy and a commitment to community—is the foundation for the hope of renewal.
+
+## CHAPTER TWO: THE PATHOS OF ECONOMIC DEVELOPMENT (Continued)
+
+---
+
+### Stories of Transformation
+
+The narratives of decline that have long defined the Crooked Road corridor are being rewritten by communities that have refused to accept economic contraction as their permanent fate. From West Virginia's coalfields to the mountain towns of eastern Kentucky, communities are demonstrating that renewal is possible through creativity, collaboration, and an unshakeable commitment to place. These stories of transformation offer powerful models for the Virginia corridor, showing that the path from decline to renewal, while difficult, can be navigated.
+
+#### Appalachian Communities That Have Reinvented Themselves
+
+**Hazard, Kentucky: The "Odd Cats of Appalachia"**
+
+Perhaps no community better exemplifies the spirit of Appalachian renewal than Hazard, Kentucky. Once known as the "Queen City of the Mountains," Hazard saw its thriving downtown diminish alongside the decline of the coal industry and the effects of the opioid crisis . Yet today, the town has become a model for civic renaissance, with its downtown adding 73 businesses between 2018 and 2024 .
+
+The transformation began not with a grand plan or outside intervention, but with the determination of local residents who refused to accept decline. As Luke Glaser, a town council member and assistant principal at Hazard High School, explained, a group of residents organized as InVision Hazard, starting with small events like a float in the annual parade and a party on top of a parking structure for the town's birthday . These gatherings, modest as they were, began the work of changing the narrative—helping people see that downtown was safe, that something was happening, that the future could be different from the past.
+
+The grassroots momentum persuaded city and county leaders to hire a full-time downtown coordinator, Bailey Richards, who brought energy, creativity, and a determination to prove that her position mattered . On her second day, a man told her, "I don't know why they hired you. Nothing's gonna change, nothing's gonna happen" . Richards responded by focusing on "little wins"—pulling weeds on Main Street herself, painting over graffiti, and creating small incentive programs for business owners . She also started installing dozens of miniature ceramic doors on interesting or historic buildings, creating an Easter egg hunt that brought people downtown to look for them . The cumulative effect of these small actions was a growing sense that downtown was alive again.
+
+Central to Hazard's success has been the Civic Fellowship program, created by Glaser in 2019 and described as "The Most Comprehensive City Internship in the State of Kentucky" . The program empowers local youth to contribute to their hometown's success, providing real experience in local government and a sense that their ideas matter. As Kennedy Caudill, a Civic Fellow, observed: "There has always been people in positions of supervision, for me at least, and in higher up positions and leadership positions that have made me feel welcome and made me feel like my ideas matter, especially as a young person in this town" . This investment in the next generation is paying dividends, with Hazard experiencing the return of educated young people who had left for college and careers elsewhere .
+
+The branding that has emerged—"The Odd Cats of Appalachia"—captures "the spirit of openness, quirkiness, and civic creativity" driving renewal . This embrace of Appalachian identity, rather than trying to conform to outside expectations, reflects a confidence that the region's distinctiveness is an asset. As Ryan Eller, executive director of the Appalachia Funders Network, noted: "Hazard has gone all in on embracing 'Appalachian.' Not only have they embraced 'Appalachian,' they've embraced the name Hazard with great pride" .
+
+**Coalfield Development Corporation: A Model for Workforce Transition**
+
+In West Virginia, the Coalfield Development Corporation has created a model for economic transition that could be replicated across the region. Founded with support from The Rockefeller Foundation, Coalfield takes a holistic approach to workforce development: employees work 33 hours of labor each week, attend 6 hours of classwork at a local community college, and participate in 3 hours of personal asset development .
+
+The results have been transformative. Coalfield has helped incubate at least 80 new businesses employing more than 400 workers in West Virginia, resulting in more than $10 million in income for previously unemployed workers and $25 million in new investments . Since its founding, the organization reports having created over 1,000 jobs, supported 91 new businesses, attracted $178 million in new investment, and trained over 3,800 people . The organization's current CEO, Jacob Hannah, has made his "Big Bet" the revitalization of rural Appalachian communities by employing and training local talent to restore dilapidated property, which in turn attracts new businesses, jobs, and economic opportunities .
+
+The Coalfield model demonstrates that workforce development must extend beyond technical skills to address the whole person. By combining employment, education, and personal development, the organization helps workers build not only careers but also stable, fulfilling lives. This approach recognizes that economic transition requires not just new jobs but new ways of thinking about work, identity, and community.
+
+#### Tourism, Manufacturing, and Technology Success Stories
+
+**The Crooked Road: Cultural Tourism as Economic Engine**
+
+The Crooked Road itself represents one of the most successful cultural tourism initiatives in the region. Created in 2004, this 333-mile driving trail links over 60 music venues across Southwest Virginia. The trail generates approximately $6.4 million in annual spending and nearly $9.2 million in total economic impact when related business and employee spending is included. The Tobacco Region Revitalization Commission has recognized this success, providing over $4 million in grants for community signage, economic impact studies, and venue revitalization.
+
+The authenticity of The Crooked Road is central to its success. As Executive Director Tyler Hughes explained, "Crooked Road is not an over commercialized, over commodified viewpoint of music in Southwest Virginia. It has allowed our communities to latch onto something that we can be proud of and put on display in an authentic way." This authenticity has made The Crooked Road a destination for visitors from as far away as the United Kingdom, Brazil, Australia, and Japan.
+
+**Dollywood: Preserving Appalachian Craftsmanship**
+
+In neighboring Tennessee, Dollywood demonstrates how cultural preservation and tourism can reinforce each other. Each year, approximately 3.5 million people visit the Appalachian-themed park, drawn by rides, entertainment, and devotion to Dolly Parton . But in the park's Craftsmen's Valley, artisans work to keep Appalachian skills alive—glassblowers, blacksmiths, leather workers, and candle makers .
+
+As Pete Owens, Dollywood's vice president of marketing and public relations, explained, the park addresses a critical challenge: "Unfortunately, a lot of these long-standing traditional crafts are simply dying away because they don't have anyone that's apprenticing" . Erin Miller, director of the Weaving Department at Berea College, notes that the park's approach distinguishes it from traditional preservation models: "Dollywood is one of the places that does it exceptionally well because they are placing craft in the present and not in the past" . This visibility helps visitors understand that crafts are not just historical artifacts but viable contemporary occupations.
+
+**Solar Development on Former Mine Lands**
+
+The transformation of former mining lands into renewable energy sites represents another model for renewal. The Mineral Gap Data Center in Wise County came online in 2023, touting itself as "the first abandoned mine land to be converted to solar in the state." The Nature Conservancy is a partner in a 10 MW solar project in Wise County built on the former Indian Creek Surface Mine, with construction planned to begin soon. Brad Kreps, the Conservancy's Clinch Valley Program director, noted: "Our projects are definitely among the first that are moving forward in central Appalachia" .
+
+The AMLER program has been instrumental in this transition. Over the past decade, the program has supported more than 300 projects across nine states and tribal nations, creating or sustaining nearly 28,000 jobs and reclaiming thousands of acres of land . In Pennsylvania, the Anthracite Outdoor Adventure Area transformed 88 acres of abandoned mine land into a destination for off-road recreation . In Virginia, more than 2,500 acres of former mine land are being reimagined for wildlife viewing, outdoor recreation, and hunting .
+
+The transformation extends to healthcare infrastructure. In Pikeville, Kentucky, the expansion of the Leonard Lawson Cancer Center was made possible through AMLER funding, treating more than 51,000 patients since opening in 2023 . As Lanny Erdos, acting assistant secretary of lands and mineral management, observed: "AMLER projects are creating jobs, building infrastructure, and opening doors for communities. That is what makes this program so important. It is not just about restoring land; it is about restoring opportunity for coal communities that have powered this country for decades" .
+
+**Manufacturing and Technology Reinvestment**
+
+The Virginia Coalfield Economic Development Authority has been instrumental in attracting new manufacturing and technology investments. Recent successes include Wrap Technologies' $4 million national manufacturing headquarters in Norton, Tate's $6.5 million expansion in Russell County, and VFP's $35 million expansion in Duffield adding 200 employees. The Energy DELTA Lab project in Wise County envisions converting approximately 65,000 acres of old coal land into solar power systems and data centers that could help fuel the increasing power demands of the artificial intelligence boom.
+
+These investments demonstrate that the region can compete for advanced manufacturing and technology businesses when it leverages its assets—available land, infrastructure, workforce, and strategic location.
+
+#### Models for Regional Renewal
+
+**The Power of Locally Led Revitalization**
+
+The most successful renewal efforts share a common characteristic: they are locally led. As the Brookings Institution documented in its 2026 site visit to Eastern Kentucky, "The Commission encountered a region where civic institutions, economic momentum, and locally led recovery efforts run counter to many outside narratives that have long defined Appalachia by its challenges rather than its assets" .
+
+This local leadership takes many forms. In Hazard, the partnership between the city and county has resulted in a shared vision for revitalization, including sharing a downtown coordinator and undertaking joint initiatives that have been instrumental in redeveloping Main Street . In Manchester, Kentucky, the "1 Clay County" organization draws on leaders across sectors to move creatively and nimbly, pursuing a vision that pairs downtown improvements with river access and outdoor recreation .
+
+The importance of next-generation leadership is a recurring theme. In Hazard, the Civic Fellowship program has become a model for how communities can invest in their young people and empower them to contribute to renewal. In West Virginia, the ACT Now coalition, supported by a $62.8 million federal grant, has trained over 300 workers for solar development jobs, with programs serving over 500 businesses and helping create 74 new full-time jobs .
+
+**The Importance of Civic Infrastructure**
+
+The Brookings Commission identified "civic infrastructure" as the architecture of opportunity—the network of schools, health systems, youth programs, employers, and local partnerships that help the younger generation see opportunity in their hometowns . This infrastructure includes both public institutions and the "cross-ideological, cross-racial, cross-class collaboration" that Ryan Eller describes as characteristic of Appalachia .
+
+The Commission emphasized that federal programs and systems often fail to match the realities on the ground. In the 2022 floods that devastated Eastern Kentucky, federal partners were essential to the immediate response, but "cumbersome processes regarding reimbursements, assessments, reporting, infrastructure, and buyouts significantly slowed progress" . The lesson for the Virginia corridor is clear: while federal support is essential, the most effective strategies are those that build on local leadership and community capacity.
+
+**Shifting the Narrative**
+
+A critical element of renewal is shifting the narrative about Appalachia. As Eller explains, "for over a century and a half, there have been very intentional narrative efforts to typecast the region" —narratives that have "prevented people from viewing Appalachia as investible" . These narratives have shaped not only external perceptions but also how Appalachian people view themselves.
+
+The shift in narrative is visible in Hazard. As Stacie Fugate, who was 16 when she first encountered civic leadership in Glaser's classroom, recalled: "I remember just being so angered that people thought this of us, all across the United States, no matter what you put us up against, right? We're a very resilient group of people. We're very intelligent and we've always had to be because the rest of the country isn't coming to save us" . This anger was channeled into action—a determination to build a different future.
+
+The "odd cats of Appalachia" branding represents a conscious choice to embrace identity rather than apologize for it. It reflects what the Brookings Commission identified as "a shared civic identity and participatory civic culture that reshapes narratives and external perceptions" .
+
+**Lessons for the Crooked Road Corridor**
+
+The stories of transformation from across Appalachia offer several lessons for the Crooked Road and U.S. Route 23 corridor:
+
+First, renewal starts small. The little wins—pulling weeds, painting over graffiti, hosting small events—build momentum that leads to larger transformations.
+
+Second, local leadership matters. Communities that take ownership of their future, rather than waiting for outside solutions, are more likely to succeed.
+
+Third, investing in young people pays dividends. Communities that empower the next generation to contribute to renewal are building sustainable capacity for the future.
+
+Fourth, collaboration across sectors is essential. Partnerships between government, business, nonprofits, and community organizations leverage resources and create synergies.
+
+Fifth, cultural preservation is economic development. The authenticity of Appalachian music, crafts, and traditions is an asset that attracts visitors, creates jobs, and builds community pride.
+
+Sixth, federal programs can support renewal when they are designed to be accessible and flexible. Programs like AMLER demonstrate how abandoned mine lands can be transformed into engines of economic opportunity.
+
+Finally, the narrative matters. Communities that tell their own stories—that embrace their identity and celebrate their assets—are more likely to attract investment and retain residents.
+
+The communities of the Crooked Road corridor have the assets, leadership, and determination to follow these examples. The path from decline to renewal is being forged by communities throughout Appalachia. The Virginia corridor can learn from their successes, adapt their strategies, and build a future that honors the past while creating opportunity for generations to come.
+
+
+## CHAPTER TWO: THE PATHOS OF ECONOMIC DEVELOPMENT (Continued)
+
+---
+
+### The Role of Emotion in Investment Decisions
+
+#### How Perceptions and Feelings Influence Business Location
+
+The decision of where to invest capital is rarely the purely rational calculation that economic models often assume. Business owners, entrepreneurs, and investors are influenced by perceptions, feelings, and emotional responses that shape their assessment of opportunities and risks. Understanding this emotional dimension is essential for communities seeking to attract investment and build sustainable economic futures.
+
+The narratives that define a place profoundly influence its investability. As Ryan Eller, Executive Director of the Appalachia Funders Network, explains, "for over a century and a half, there have been very intentional narrative efforts to typecast the region" —narratives that have "prevented people from viewing Appalachia as investible" . The stereotypes that have long characterized Appalachia in popular culture have real economic consequences. "When you are trying to decide where to put a business, who to support with entrepreneurship, and who your emerging leaders are, you often won't go to a place where you inherently view that population as of a certain ilk" .
+
+This dynamic is particularly powerful because it shapes not only external perceptions but also how Appalachian people view themselves and their communities. As Eller observes, the impact of negative narratives "impacts almost every aspect of life and sadly has impacted how Appalachian folk have viewed the prospects of our own future" . Communities that internalize negative narratives may come to believe that investment is futile, that their best days are behind them, and that efforts to change course are unlikely to succeed. This loss of confidence creates a self-fulfilling prophecy that can be difficult to break.
+
+The transformation of Hazard, Kentucky, demonstrates how shifting perceptions can unlock investment potential. The city's embrace of the "odd cats of Appalachia" branding reflects a conscious choice to embrace identity rather than apologize for it. As Kennedy Caudill, a Civic Fellow, explains: "Hazard is weird. We are full weirdness. We are the odd cats of Appalachia, and we want to hear whatever anybody has to say" . This confidence—grounded in an acceptance of local identity rather than a rejection of it—has created a perception of openness and creativity that attracts both visitors and investors.
+
+The experience of Highland County, Virginia, offers another example of how perceptions shape investment. Landdis Hollifield, an economic developer embedded in the county through the Economic Recovery Corps, found that building trust was essential before any investment could take place. "Trust-building isn't a separate step here, it's the work," she observed . Coming from a small town herself, Hollifield understood that meaningful change required sitting down with local officials and just talking—with no agenda, no plan. This patient, relationship-focused approach created the foundation for securing more than $2.4 million in funding for revitalization projects .
+
+The perceptions that influence investment decisions extend beyond communities to include individual business owners. Research on investment behavior has found that psychological factors—including risk perception, confidence, and emotional attachment to place—significantly shape financial decisions. As a study of smallholder farmers in Kenya found, "the perception of investment risk diversification had a significant positive effect on financial capital investment, suggesting that farmers who understood and applied diversification principles were more likely to allocate their resources effectively" . This finding, while from a different context, highlights how perceptions of risk and opportunity shape real economic outcomes.
+
+#### The Importance of Community Confidence
+
+Community confidence—the collective belief that a place has a viable future and that individual efforts to invest and improve it will be rewarded—is both a product and a driver of economic development. Communities that project confidence attract investment; communities that appear hopeless repel it. This dynamic is visible in the contrast between communities that have embraced renewal and those that remain mired in pessimism.
+
+The transformation of Hazard's downtown demonstrates the power of building confidence one step at a time. When Bailey Richards was hired as the city's downtown coordinator, she focused on "little wins"—pulling weeds, painting over graffiti, creating small incentive programs for business owners . The cumulative effect of these small actions was a growing sense that downtown was alive again. The strategy of starting with visible, achievable improvements helped shift perceptions and build the confidence that larger investments required.
+
+Community confidence is often tied to the perception of shared purpose and collective efficacy. The Brookings-AEI Commission on U.S. Rural Prosperity, which visited Eastern Kentucky in 2026, found that "the Commission encountered a region where civic institutions, economic momentum, and locally led recovery efforts run counter to many outside narratives that have long defined Appalachia by its challenges rather than its assets" . The Commission observed "a shared civic identity and participatory civic culture that reshapes narratives and external perceptions" . This collective confidence—grounded in tangible achievements rather than wishful thinking—creates the conditions for sustained investment.
+
+The role of local leadership in building confidence is critical. In Hazard, Mayor Donald "Happy" Mobelini and Perry County Judge Executive Scott Alexander demonstrated an "unusual partnership and collaboration between the city and county that has resulted in a shared vision for revitalization" . This collaboration across jurisdictional boundaries sends a powerful signal that the community is united in its commitment to renewal. When local leaders work together, investors are more likely to believe that their investments will be supported.
+
+The experience of Highland County underscores the importance of confidence-building as a foundation for investment. Hollifield, the economic developer embedded in the county, "understood that the first step toward making change was building trust" . Her background as a former journalist gave her the skills to "read a community—going door to door, sitting in on meetings, listening before proposing" . This trust-building work was essential for securing the funding that followed. As Hollifield emphasizes, "capacity building is what allows funding to actually do its job" .
+
+#### Creating Positive Momentum
+
+Positive momentum is perhaps the most powerful force in economic development. When communities begin to see tangible improvements, confidence grows, which attracts further investment, which creates more improvements, which builds more confidence. Breaking out of the cycle of decline requires creating this upward spiral. The stories of communities that have achieved renewal demonstrate how positive momentum can be generated, even from very small beginnings.
+
+The concept of "momentum" was central to Hazard's revitalization. Luke Glaser, the teacher and council member who helped organize the InVision Hazard group, noted that it "started with small things like an event, a float in the annual parade" . These modest gatherings began the work of changing the narrative—helping people see that downtown was safe, that something was happening, that the future could be different from the past. The grassroots momentum persuaded city and county leaders to invest in a full-time downtown coordinator, creating institutional capacity that enabled the revitalization to accelerate .
+
+One of Richards' most creative strategies for creating momentum was the "tiny doors" project. She started building miniature ceramic doors and "putting them all over downtown," creating an Easter egg hunt that brought people downtown to look for them . What began as a small, quirky project attracted increasing attention, with more people making doors until "there was probably 60 or 70 of them around" . Richards' insight was that "you gotta make people at least look at and appreciate the stuff that they already have in order to get them to accept and love what there is about their town" . By getting people to look at downtown's assets, she created the momentum for larger investments.
+
+The transformation of the old bus station into a performing arts center exemplifies how momentum can overcome obstacles. The building had been vacant for years, with previous attempts to redevelop it stymied by high costs. Richards recalls the turning point: she was talking with business owners from neighboring counties when "one of them pointed out: you know, these improvements are really only suggestions" . The realization that they didn't have to do everything the architects recommended transformed the project from a $1.3 million impossibility into a $250,000 reality . The ability to adapt, to see assets rather than challenges, to find creative solutions to barriers—these are the elements that create momentum.
+
+The success of Hazard's revitalization has created a virtuous cycle of investment. Between 2018 and 2024, Main Street added 73 businesses . Each new business attracted more foot traffic, which made the street more attractive to other entrepreneurs. The civic fellowship program invested in young people, who then returned to contribute to their community's success. As Eller notes, "I've talked to folks from Hazard in midtown Manhattan that were working on Broadway, working as attorneys, working in the United Nations, all of whom want to or have already come back to Hazard because Hazard invested in them" .
+
+The creation of positive momentum requires intentionality—a conscious effort to build community confidence and reshape narratives. As the Brookings Commission observed, Hazard has "gone all in on embracing 'Appalachian'" . This embrace, rather than an attempt to distance the community from its identity, has created a sense of pride and possibility that attracts both residents and investors. As Stacie Fugate, who returned to Hazard to direct InVision, recalled: "I remember just being so angered that people thought this of us...We're a very resilient group of people. We're very intelligent and we've always had to be because the rest of the country isn't coming to save us" . This anger was channeled into action—a determination to build a different future.
+
+---
+
+### Building Trust and Collaboration
+
+#### The Foundation of Successful Economic Development
+
+Trust is the currency of successful economic development. Without trust—between local officials and community members, between public and private sectors, between communities and investors—development efforts are likely to falter. The stories of communities that have achieved renewal demonstrate that trust-building is not a separate step but the foundation of all effective economic development work.
+
+The experience of Highland County illustrates the centrality of trust. Hollifield, the embedded economic developer, found that "the first step toward making change was building trust, so she sat down with local officials and just talked—with no agenda, no plan" . This approach reflects an understanding that trust cannot be imposed or accelerated; it must be earned through genuine engagement, transparent communication, and demonstrated commitment. Hollifield's background as a journalist had taught her to "read a community," to listen before proposing, to understand the concerns and aspirations of residents .
+
+The Appalachian tradition of mutual assistance provides a cultural foundation for trust-building. As Eller notes: "I was always taught growing up that you cared for your neighbors. And when you go to community events, you are eating with and communing with your neighbors because they're like family" . This ethic of care, grounded in a recognition of interdependence, creates a basis for collaboration that extends beyond economic development. It reflects what researchers have described as the "cross-ideological, cross-racial, cross-class collaboration" that characterizes Central Appalachia .
+
+The partnership between UVA and Appalachian communities exemplifies how institutional relationships can build trust and capacity. The Tadler Program on Impact Investing in Appalachia has provided $2.5 million worth of pro bono economic development support services, helping communities secure more than $22 million in revenue . UVA students have contributed some 17,000 hours of pro bono support to rural economic development efforts . Dana Cronkhite, Dickenson County's Director of Economic Development, describes the value: "One of the biggest barriers in local government, especially in rural communities, is capacity. Having individuals who are not only capable, but also willing to assist at a high level creates a type of support that is hard to fully describe" .
+
+Trust also extends to the relationship between communities and investors. As the Henrico County model demonstrates, communities that can demonstrate that they are good stewards of investment are more likely to attract future funding. Henrico County used revenue from data centers to seed a $60 million Affordable Housing Trust Fund, creating a virtuous cycle where economic development supports community investment . The county's approach "shows how a county can turn a potential liability—rapid data center growth—into a community asset" .
+
+#### Open Communication and Shared Decision-Making
+
+Open communication and shared decision-making are essential for building the trust that supports economic development. Communities that feel heard, respected, and included in decision-making are more likely to support and participate in development efforts.
+
+The communication strategies used in Hazard demonstrate the power of transparency and inclusion. Glaser, the teacher who helped organize InVision Hazard, started by showing students "all of these stereotypes that the outside world thought about Appalachians and thought about Eastern Kentuckians" . He didn't just present information; he "ended with, let's find a problem in our community that we can solve" . This approach—acknowledging the challenges while empowering people to address them—built trust and created a sense of shared ownership.
+
+In Manchester, Kentucky, the "1 Clay County" organization draws on leaders across sectors to "move creatively and nimbly" in pursuing a shared vision that "pairs downtown improvements with river access, outdoor recreation, and tourism-oriented projects" . This cross-sectoral approach ensures that multiple perspectives are represented in decision-making and that the community has a shared sense of direction. The organization's success reflects the importance of inclusive governance structures that extend beyond formal government institutions.
+
+The Brookings Commission observed that communities with strong civic infrastructure—"the network of schools, health systems, youth programs, employers, and local partnerships that help the younger generation see opportunity in their hometowns" —are better positioned for economic development . This infrastructure creates channels for communication and collaboration that enable communities to respond effectively to challenges and opportunities.
+
+The University of Virginia's work in the region exemplifies the importance of communication that respects local knowledge and priorities. Richard and Donna Tadler, whose philanthropy created the program, describe it as "helping to build partnerships by listening to leaders, community members, entrepreneurs, and investors about what they needed to rebuild the regional economy" . This listening-first approach ensures that UVA's support is responsive to community needs rather than imposing external solutions.
+
+#### Demonstrating Commitment to Community Interests
+
+Trust is built through demonstrated commitment—actions that show that the interests of the community are being prioritized. Communities that have seen their needs exploited by extractive industries or ignored by distant policymakers are understandably skeptical of development promises. Demonstrating genuine commitment is essential for overcoming this skepticism.
+
+The Coalfield Development Corporation's model demonstrates commitment through action. The organization's approach—33 hours of labor, 6 hours of classwork, and 3 hours of personal asset development each week—reflects a holistic commitment to workers' well-being . This approach has helped incubate at least 80 new businesses employing more than 400 workers, resulting in more than $10 million in income for previously unemployed workers and $25 million in new investments . The organization's commitment to long-term workforce development demonstrates that its interests align with those of the community.
+
+The Virginia Coalfield Economic Development Authority's work reflects a similar commitment to community well-being. VCEDA's loans and grants support businesses that create jobs and strengthen the regional economy. In 2025, the authority approved 59 loans and grants for $18,759,752 in new funding projected to help create and retain 584 full-time and 124 part-time jobs with $180,214,443 in private investment . This investment represents a tangible commitment to the region's future.
+
+Demonstrating commitment also means recognizing and addressing the social challenges that accompany economic transition. The Manchester model, which combines residential treatment, mental health care, employment connections, transitional housing, and follow-up with graduates, reflects an understanding that economic development cannot be separated from community health and well-being . This holistic approach demonstrates commitment to the whole community, not just economic metrics.
+
+The commitment to youth is a particularly powerful demonstration of community investment. Hazard's Civic Fellowship program gives young people real experience in local government and a sense that their ideas matter. As Caudill observed: "There has always been people in positions of supervision... and in higher up positions and leadership positions that have made me feel welcome and made me feel like my ideas matter" . This investment in the next generation signals that the community is committed to its future.
+
+---
+
+### The Emotional Rewards of Renewal
+
+#### Young People Seeing Futures in Their Hometowns
+
+Perhaps the most powerful emotional reward of economic renewal is the transformation of how young people see their hometowns. Communities that were once viewed as places to escape become places to return to, to invest in, and to build lives. This shift in perception represents not just an economic gain but a profound psychological and emotional transformation.
+
+The return of young people to Hazard reflects this transformation. As Eller notes, "There's an experience, some people have called it the 'brain drain,' of Appalachian folks going elsewhere for school, to go find work. In previous generations, folks tended to come back home. That's now actually what's happening in Hazard. A lot of folks are starting to come back, which is a wonderful, beautiful, intergenerational change" . Young people who left for college and careers are choosing to return, bringing their education, skills, and energy back to their hometowns.
+
+The Civic Fellowship program has been central to this transformation. By giving young people meaningful roles in local government, Hazard has created a sense of ownership and belonging that persists beyond the program. As Caudill observed, the program made him feel that "my ideas matter, especially as a young person in this town" . This feeling of being valued and heard creates an emotional connection that makes returning home a positive choice rather than a fallback.
+
+The emotional impact extends beyond those who return to those who stay. When young people see their peers choosing to stay, to invest, to build careers, it challenges the narrative that leaving is the only path to success. As Fugate recalled: "I remember just being so angered that people thought this of us...We're a very resilient group of people. We're very intelligent and we've always had to be because the rest of the country isn't coming to save us" . This anger was channeled into action—a determination to build a different future.
+
+The psychological benefits of seeing opportunity at home cannot be overstated. Young people who believe they can build meaningful lives in their hometowns are more likely to invest in their communities, participate in civic life, and contribute to local economic development. This creates a virtuous cycle: young people invest, the community improves, more young people stay, the community improves further. The reversal of "brain drain" represents both an economic gain and an emotional liberation.
+
+#### Parents Watching Children Grow Up with Opportunities
+
+For parents, the emotional rewards of economic renewal are deeply personal. The ability to watch children grow up with opportunities—to pursue careers, build families, and contribute to their communities—represents a fulfillment of hopes that economic decline had seemed to foreclose.
+
+The psychological impact of seeing children leave has been a source of profound pain for families throughout the Crooked Road corridor. Parents who have watched their children go to college and never return have experienced a loss that extends beyond the absence of their children. The departure represents the loss of family continuity, of legacy, of the expectation that children will carry on the work of their parents and grandparents.
+
+When economic renewal creates opportunities for young people to stay, it restores this hope. The Tobacco Region Revitalization Commission's Talent Attraction Program, which provides student loan repayment for recent graduates who live and work in the region, has attracted more than 200 new residents to fill in-demand jobs in fields like IT, engineering, and STEM education . Each young person who returns to the region represents not just a workforce gain but a family restored.
+
+The emotional reward extends to grandparents and extended family members. The rural Appalachian tradition of extended family networks, where multiple generations live close by and support each other, depends on young people staying. When young people leave, these networks are strained. When they return, the family can reconnect, and the traditions of mutual support and care that have sustained Appalachian families for generations can continue.
+
+The Coalfield Development Corporation's approach recognizes the importance of family in workforce development. By providing not just jobs but education and personal development, the organization helps workers build stable, fulfilling lives that can support families. This holistic approach reflects an understanding that economic development is ultimately about enabling people to build meaningful lives in the communities they call home.
+
+#### Restoration of Community Pride
+
+The restoration of community pride is both a result and a driver of economic renewal. Communities that have been stigmatized, stereotyped, and written off experience a profound sense of shame and diminished self-worth. When renewal demonstrates that these communities can succeed, it restores pride and confidence.
+
+The transformation of Hazard's narrative demonstrates this process. The city's embrace of the "odd cats of Appalachia" branding reflects a conscious choice to reject shame and embrace identity. As Caudill explains: "It doesn't matter in Hazard what you look like, what you do like. There's always a seat at the table and we wanna listen to you" . This openness and confidence represents a fundamental shift from a community that had been defined by its challenges to one that defines itself by its assets.
+
+The physical transformation of downtown Hazard has been central to restoring pride. When buildings that had been vacant for years become spaces for performances, when empty storefronts are replaced by thriving businesses, when public spaces are beautified and activated, it sends a powerful message: this community is alive, this community is valued, this community has a future. The pride that comes from seeing a place transformed is tangible and contagious.
+
+The restoration of pride also involves telling the community's own story. William Ney, writing about Eastern Kentucky's renewal, observes: "The truth is, Appalachia doesn't need elegies—it needs investment, partnership, and respect. We don't need outsiders explaining us; we need neighbors believing in us" . Communities that tell their own stories, that assert their own identity, that refuse to accept the narratives imposed on them, are communities that have restored their pride.
+
+The experience of Manchester, Kentucky, shows how pride can be built through cultural and recreational initiatives. Local leaders are pursuing a vision that "pairs downtown improvements with river access, outdoor recreation, and tourism-oriented projects to connect the town to statewide tourism routes" . These initiatives create a sense of possibility and pride that extends beyond economic metrics. They demonstrate that the community has assets worth celebrating and investing in.
+
+#### The Legacy Beyond Financial Returns
+
+The deepest emotional reward of economic renewal is the legacy it creates—the sense that the work done today will benefit future generations, that the community will survive and thrive beyond the current moment. This legacy represents the fulfillment of the Appalachian ethic of stewardship and care that has sustained communities through the most difficult times.
+
+The investment in youth represents perhaps the most powerful legacy-building effort. Programs like Hazard's Civic Fellowship ensure that the next generation has the skills, confidence, and connections to continue the work of renewal. As Eller observes: "I think we've got those pockets all over the mountains. It just takes a generation of leaders deciding that instead of being gatekeepers of our physical assets, we are going to be folk who embrace and inspire the next generation to envision what Appalachia will become" .
+
+The restoration of civic infrastructure—schools, health systems, employers, local partnerships—creates a legacy of institutional capacity that will serve the community for generations. As the Brookings Commission observed, this infrastructure "helps the younger generation see opportunity in their hometowns" . By investing in this infrastructure, communities are building the foundation for their own renewal.
+
+The legacy of economic renewal extends beyond the community to its impact on the broader narrative of Appalachia. When communities demonstrate that they can succeed, they challenge the stereotypes that have long defined the region. As Ney writes: "Eastern Kentucky isn't a monument to what was lost—it's a living proof of what can be found again" . This legacy—the proof that Appalachia can thrive—has implications far beyond the Crooked Road corridor.
+
+The emotional rewards of renewal—young people seeing futures in their hometowns, parents watching children grow up with opportunities, the restoration of community pride, the creation of a lasting legacy—are what ultimately make economic development worthwhile. These rewards represent the fulfillment of the hopes and dreams that have sustained communities through decades of decline. They are the reason that communities have continued to fight for their future, even when the odds seemed insurmountable.
+
+
+# CHAPTER THREE: ADVICE FOR ECONOMIC ADVISORS
+
+---
+
+### Understanding the Local Context
+
+#### Listening to Residents, Business Owners, and Community Leaders
+
+The most fundamental principle of effective economic development in rural communities is that solutions must be locally led. As Scott Andes, a professor of practice at Carnegie Mellon University and former senior advisor at the U.S. Economic Development Administration, emphasizes, greater flexibility through a place-based approach supports rural innovation by empowering authentic local leadership and broader participation . This means that economic advisors must begin not with plans and proposals, but with genuine listening—understanding the concerns, aspirations, and knowledge of the people who live and work in the communities they seek to serve.
+
+The Economic Recovery Corps (ERC), a program launched through a cooperative agreement between the EDA and the International Economic Development Council, provides a compelling model for this approach. The program embeds experienced economic development professionals in rural places where local capacity to plan and pursue investment is often limited . Early indicators show the program is succeeding: in its first year, host organizations with ERC fellows secured over $135 million in new funding, with over $93 million going to rural-centered hosts . This represents a substantial return on the program's initial $30 million investment. The ERC's emphasis on bringing experienced professionals for long-term, immersive engagements goes beyond the short-term technical assistance of most federal capacity-building programs .
+
+The listening-first approach is not just a philosophical preference—it is a practical necessity. As Nicole Wadsworth, a nationally recognized economic development consultant, explains: "To be successful in economic development, you need vision, resilience, and the ability to build communities. You have to know how to sit at a kitchen table and listen" . This boots-on-the-ground approach has helped communities unlock grant funding, revitalize downtowns, create local jobs, and strengthen infrastructure. Whether negotiating major industrial site deals or supporting a local fire station, the strategy is the same: engage people, back ideas with data, and stay focused on outcomes that matter .
+
+The Appalachian Regional Commission's POWER (Partnerships for Opportunity and Workforce and Economic Revitalization) Initiative exemplifies how federal programs can support locally led development. The POWER Initiative offers federal grant funding for projects that help Appalachian coal communities expand local and regional economies by creating high-quality, in-demand jobs, attracting new sources of private investment, and providing comprehensive workforce services and skills training . Since its creation 10 years ago, ARC's collective POWER investments are projected to have created or retained nearly 54,000 jobs and prepared nearly 170,000 workers and students for new opportunities in advanced manufacturing, entrepreneurship, tourism, agriculture, and other growing industries . The program's success reflects a commitment to letting communities articulate their own priorities and strategies.
+
+The importance of listening extends to understanding the distinctive character of each community. As the Federal Reserve Bank of Richmond's research on rural economies emphasizes, "The path to economic growth looks different for each community. Some have found success in their proximity to growing metropolitan areas, while others have attracted residents and businesses with natural amenities" . Economic advisors cannot simply import models from other places; they must understand the unique collection of needs, opportunities, and assets that each community possesses. This requires what Wadsworth describes as the "willingness to listen to farmers, teachers, veterans, employees, and local business owners" .
+
+The barriers to effective listening are significant. As the Brookings Institution notes, rural governments often lack economic development specialists, grant writers, and access to other expertise to put together and manage new projects and economic ventures . When rural localities get access to such expertise, it is often based on relatively short-term, project-centered philanthropic grants or similar support from state governments . Among rural-serving applicant organizations to the ERC, more than 82 percent reported that the communities they represent have historically struggled to access federal, state, and philanthropic support for local or regional development efforts . Economic advisors must be aware of these capacity constraints and work to build durable capacity that will persist beyond their involvement.
+
+The Virginia Rural Center's Rural Virginia Opportunity Dashboard, launched at the Southwest Virginia Economic Forum at the University of Virginia's College at Wise, provides a tool that supports this listening-informed approach. The dashboard provides comprehensive, data-driven insights into critical sectors such as demographics, housing, education, business, and health, featuring interactive asset maps that highlight essential infrastructure and community resources . As Senator Creigh Deeds, Chairman of the Senator Frank M. Ruff, Jr. Center for Rural Virginia, noted: "Rural Virginia is rich in potential, and this dashboard will serve as a vital tool for stakeholders looking to drive positive change. By providing detailed insights and resources, we aim to help communities recognize their strengths and identify opportunities for growth" . The dashboard also includes a Rural Resource Index, a searchable tool for identifying funding opportunities at the local, state, and federal levels .
+
+#### Learning About Local History, Culture, and Aspirations
+
+Effective economic development requires deep understanding of a community's history, culture, and aspirations—not as an academic exercise, but as a foundation for strategies that will resonate with residents and build on existing strengths. Communities that have experienced decades of economic decline carry wounds that must be recognized before healing can begin. Advisors who do not understand this history risk proposing solutions that seem disconnected from community experience or that inadvertently dismiss the value of what already exists.
+
+The history of resource extraction in the Appalachian region has created both economic dependency and cultural pride. As Scott Andes, who grew up in economically distressed Southeast Texas, observes, the question of why some places grow and others don't has long fascinated him: "Why is it that I can go 150 miles west of my hometown, and things are going great, but not in East Texas or northwestern Louisiana?" . This question of why some regions thrive while others struggle requires understanding the historical forces that have shaped different outcomes—including the concentration of high-paying service industries in metropolitan areas and the structural economic forces that have left rural regions behind.
+
+The cultural assets of the Crooked Road corridor are not merely historical artifacts but living resources that can support economic development. The Appalachian Regional Commission's emphasis on leveraging local assets is reflected in the POWER Initiative's support for projects that strengthen manufacturing, entrepreneurship, and tourism . The ARISE (Appalachian Regional Initiative for Stronger Economies) program similarly emphasizes collaborative projects that support regional business and industry and develop new opportunities across multiple economic sectors . These programs recognize that cultural and economic development are intertwined—and that the most effective strategies build on what communities already have.
+
+Understanding local aspirations is as important as understanding history. The University of Virginia's research on Martinsville documented how "the loss of identity is a hindrance to innovative planning strategies and entrepreneurship" . Communities that have lost their economic foundations often struggle to develop new visions for the future. The reversal of this process requires what researchers have called a "positive discovery of former, current, and future assets" . Economic advisors can facilitate this process of discovery by helping communities articulate what they value, what they want to preserve, and what they hope to become.
+
+The Richmond Fed's Investing Rural America Conference, held in Roanoke, Virginia, highlighted the importance of community engagement in identifying solutions. Community leaders from across the district shared strategies for building new affordable housing, expanding access to child care, and creating microtransit solutions to enable rural residents without a car to access jobs and appointments . One theme that emerged from the conference was the importance of community engagement: "Solutions that work engage stakeholders across the community" . This finding underscores that economic development is not a technical exercise but a human endeavor that requires broad participation.
+
+The Coalfield Development Corporation's model, supported by The Rockefeller Foundation, demonstrates the power of understanding local culture and aspirations. The organization's holistic approach—employees working 33 hours of labor each week, attending 6 hours of classwork at a local community college, and participating in 3 hours of personal asset development—reflects an understanding that workforce development must address the whole person, not just skills . Since its founding, Coalfield has created over 1,000 jobs, supported 91 new businesses, attracted over $178 million in new investment, and trained over 3,800 people . This success is rooted in an approach that respects local culture and builds on community assets.
+
+The Virginia Rural Center's dashboard supports this understanding by providing communities with data about their own characteristics. The dashboard was "developed in collaboration with the Virginia Tech Center for Geospatial Information Technology and Chandler Vaughan," ensuring that communities have access to high-quality information about their assets and challenges . As Kristie Proctor, Executive Director of the Virginia Rural Center, explained: "The Rural Virginia Opportunity Dashboard was built with and for our communities. It brings together critical data and resources in one place, giving leaders the insights they need to plan for the future and make a real difference locally" .
+
+#### Tailoring Approaches to Unique Community Characteristics
+
+One-size-fits-all approaches to economic development consistently fail in rural areas because they ignore the distinctive characteristics that make each community unique. Successful strategies are tailored to local conditions, building on existing assets and addressing specific gaps. As the Appalachian Regional Commission's POWER Initiative demonstrates, the most effective federal programs are those that provide flexibility for communities to pursue their own priorities .
+
+The Rural Virginia Opportunity Dashboard provides a tool for tailoring approaches by helping communities identify their specific needs. The platform features interactive asset maps that highlight essential infrastructure and community resources, helping local leaders visualize opportunities and challenges in their regions . By providing detailed insights and resources, the dashboard "aims to help communities recognize their strengths and identify opportunities for growth" .
+
+The Economic Recovery Corps model demonstrates how tailoring approaches works in practice. Fellows are not assigned with pre-set mandates but work alongside host staff to shape and execute strategic economic development initiatives tailored to local priorities. These priorities might include strengthening small business ecosystems, advancing regional workforce plans, expanding housing development, or helping communities navigate and access public funding . The program's flexibility is particularly important given that "the civic infrastructure in low-capacity places can vary so widely" .
+
+The Brookings Institution's analysis of the ERC program reveals the diversity of rural needs. Among the 40 rural-centered ERC hosts, 18 identified economic development as their top priority, 11 prioritized improving quality of life, seven focused on workforce development, and three listed e-connectivity or broadband as their primary objective . These varied priorities reflect the different starting points and aspirations of different communities. Economic advisors must be prepared to address whichever combination of priorities their community identifies.
+
+The importance of tailoring approaches is also reflected in the ARC's ARISE (Appalachian Regional Initiative for Stronger Economies) program, which funds collaborative projects involving at least two Appalachian states. Since ARISE was established in 2022, ARC has invested $179 million in 67 projects to support the development of new economic opportunities across all 13 Appalachian states . To date, ARISE investments are projected to have created or retained over 22,300 jobs and prepared nearly 16,000 workers and students for new opportunities in broadband development, workforce education, and manufacturing . The program's multi-state focus recognizes that economic regions often cross state boundaries and that collaboration across jurisdictions can amplify impact.
+
+---
+
+### Assessing Community Assets
+
+#### Natural Resources: Forests, Agricultural Land, Water, Minerals
+
+The Crooked Road corridor is rich in natural resources that can support economic development if managed sustainably. Hardwood forests, agricultural land, water resources, and remaining mineral deposits each offer unique opportunities for economic activity. Understanding these resources—and the challenges to their sustainable use—is essential for effective economic development.
+
+The region's forests are among its most significant assets. The George Washington and Jefferson National Forests encompass significant portions of the corridor, containing approximately 394,000 acres protected by the Roadless Rule . These forests provide timber for construction, furniture, flooring, and musical instruments, while also supporting wildlife habitat, watershed protection, carbon sequestration, and recreational opportunities. Sustainable forest management can generate continuous economic returns while protecting environmental values.
+
+Agricultural land supports diversified farming operations that produce beef cattle, dairy, poultry, hay, corn, and specialty crops. The region's climate and soils are suited to crops that command premium prices in specialty markets. The growing interest in regenerative agriculture and local food systems has created new opportunities for farmers who can capture value through processing, branding, and direct marketing. Agricultural heritage sites throughout the corridor preserve and interpret this tradition, attracting visitors and supporting agritourism.
+
+Water resources in the region are among the most biologically significant in the eastern United States. The Clinch and Powell Rivers contain some of the most diverse freshwater mussel assemblages found throughout North America. These rivers provide opportunities for recreation, fishing, and wildlife viewing while also supporting agriculture and industry. Protecting water quality is essential for both ecological and economic reasons.
+
+Remaining mineral deposits, including coal and natural gas, continue to contribute to the regional economy. As the Virginia Coalfield Economic Development Authority's research demonstrates, the coal industry remains hugely important, with approximately a 9.9 percent total economic impact. However, the long-term economic future of the region depends on diversifying beyond resource extraction—a transition that requires careful planning and investment.
+
+#### Built Infrastructure: Highways, Railroads, Utilities, Industrial Buildings
+
+The region's built infrastructure provides the foundation for economic activity. Highways, railroads, utilities, and industrial buildings represent significant investments that can support new economic development if maintained and adapted appropriately.
+
+U.S. Route 23 and U.S. Route 58 form the primary highway arteries of the corridor. These roads connect communities to regional markets, interstate highways, and major population centers. The highway's significance extends beyond Virginia's borders, as US 23 is part of Corridor B of the Appalachian Development Highway System, designed to enhance economic development by improving access and reducing travel times across state lines.
+
+Railroad infrastructure that once served the coal industry remains in place, providing opportunities for freight transportation that could support manufacturing, agriculture, and timber industries. While passenger service has largely disappeared, the rail lines continue to operate, offering efficient movement of bulk commodities over long distances.
+
+Public utilities, including electricity, water, and natural gas, provide essential services for residential, commercial, and industrial development. However, many systems require modernization to meet the demands of the twenty-first-century economy. Reliable electrical service is essential for modern manufacturing and technology businesses. Clean water and wastewater systems support public health and economic development.
+
+Industrial buildings throughout the corridor represent valuable assets. Many buildings constructed during the coal boom era remain available for reuse. These buildings often have industrial infrastructure—including electrical capacity, rail access, and loading facilities—that can support new manufacturing and logistics operations. Adaptive reuse of these buildings can be a cost-effective alternative to new construction.
+
+#### Human Capital: Skilled Workers, Entrepreneurs, Educators
+
+The region's workforce represents one of its greatest assets. Workers who have spent decades in manufacturing, mining, and agriculture possess practical knowledge, mechanical ability, and a strong work ethic that employers value. These skills can be adapted to modern manufacturing, construction, and technology industries.
+
+Entrepreneurs throughout the region have demonstrated creativity and determination in building businesses despite economic challenges. The Virginia Coalfield Economic Development Authority's Seed Capital Matching Fund program supports business start-ups throughout the region, reflecting the recognition that entrepreneurship and small business development are essential for a diversified economy. In 2025, 26 new business start-ups were supported through the program, projecting a total of 100 full-time and 106 part-time jobs.
+
+Educators throughout the corridor play a critical role in workforce development. Community colleges, including Mountain Empire Community College, Virginia Highlands Community College, Southwest Virginia Community College, and Wytheville Community College, are creating direct pathways from education to employment by offering hands-on, career-focused education. These institutions produced thousands of high-demand credentials in the 2023-2024 academic year, with programs in nursing, welding, electrical technology, and other fields achieving high pass rates on licensure exams.
+
+The challenge of human capital is not quality but retention. As the Federal Reserve Bank of Richmond notes, educational attainment tends to be lower in rural places, and rural residents may have fewer opportunities to learn about and prepare for higher education . Fewer local opportunities for work can also diminish the incentives to invest in human capital . Economic advisors must consider both how to develop local talent and how to create opportunities that encourage talent to stay.
+
+#### Cultural Assets: Musical Heritage, Crafts, Traditions
+
+The cultural heritage of the Crooked Road corridor is one of its most powerful assets for economic development. The music, crafts, and storytelling traditions that have been preserved through generations are living expressions of community identity that can support tourism, creative industries, and community cohesion.
+
+The Crooked Road: Virginia's Heritage Music Trail represents one of the most successful cultural preservation initiatives in the region. Created in 2004, this 333-mile driving trail links over 60 music venues across Southwest Virginia. The trail generates approximately $6.4 million in annual spending and nearly $9.2 million in total economic impact when related business and employee spending is included. The authenticity of The Crooked Road is central to its success, attracting visitors from as far away as the United Kingdom, Brazil, Australia, and Japan.
+
+Crafts and storytelling traditions are equally important elements of cultural preservation. The resurgence of traditional crafts—quilt-making, weaving, and other folk arts—has created new economic opportunities while preserving cultural heritage. These crafts are recognized as both cultural expressions and economic opportunities, with the stories preserved in them being as valuable as the objects themselves.
+
+#### Institutional Resources: Schools, Hospitals, Community Organizations
+
+Institutional resources provide the infrastructure for community life and economic development. Schools, hospitals, and community organizations offer essential services, employ local residents, and contribute to the social fabric that makes communities attractive places to live and work.
+
+Schools throughout the corridor play a central role in community life. They educate the next generation, employ local residents, and serve as gathering places for community events. Strong schools are essential for attracting and retaining families with children. However, declining enrollment due to population loss has forced many schools to consolidate or close, removing community anchors and making it harder to attract young families.
+
+Hospitals and healthcare providers are essential for community health and economic development. They provide employment, attract healthcare professionals, and offer services that residents need. However, 17 of 33 Virginia ARC localities are designated as Health Professional Shortage Areas, reflecting the challenges of maintaining adequate healthcare access in rural communities. The Appalachian Regional Commission has identified access to medical care as a continuing major concern.
+
+Community organizations—including churches, service clubs, economic development organizations, and nonprofit agencies—provide the civic infrastructure that supports economic development. Organizations like the Appalachian Regional Commission, Virginia Coalfield Economic Development Authority, and local chambers of commerce help coordinate economic development efforts, leverage resources, and advocate for the region's interests. These organizations are essential for building the collaboration and trust that successful economic development requires.
+
+#### Geographic Advantages: Proximity to Markets and Transportation
+
+The Crooked Road corridor benefits from geographic advantages that can be leveraged for economic development. Its location within a day's drive of major population centers makes it accessible for tourism and logistics. Its transportation infrastructure—highways, railroads, airports—connects the region to markets throughout the eastern United States.
+
+Proximity to the Tri-Cities metropolitan area in Tennessee provides access to regional employment, services, and transportation networks. The Washington-Baltimore corridor is within a day's drive, making the region accessible for tourism and business travel. The railroad infrastructure that once served the coal industry can support manufacturing, agriculture, and timber products.
+
+The region's geographic advantages extend beyond transportation. Its climate, soils, and terrain are suited to agriculture and forestry. Its natural beauty and cultural heritage attract visitors. Its available land and affordable housing make it attractive to remote workers and retirees. These geographic advantages provide the foundation for a diversified economy.
+
+The challenge is to leverage these advantages while addressing the disadvantages of rural location—including distance from major markets, limited workforce, and infrastructure constraints. The Appalachian Regional Commission's ARISE program addresses this challenge by supporting collaborative projects across multiple states . By working together, communities across the region can overcome the limitations of individual localities and build regional economic strength.
+
+---
+
+### Identifying Gaps and Opportunities
+
+#### Inadequate Broadband Infrastructure
+
+Broadband access has become one of the most critical infrastructure gaps in rural communities across the Crooked Road corridor. As of 2025, approximately 133,000 addresses across Virginia remain unserved, with the most difficult-to-reach locations concentrated in rural and mountainous areas. The COVID-19 pandemic highlighted these gaps as students, workers, and businesses struggled to connect. The lack of broadband limits remote work, education, healthcare, and business development, creating a significant barrier to economic growth.
+
+The investment required to bridge this gap has been substantial. The Virginia Telecommunications Initiative (VATI) projects funded in fiscal years 2022, 2023, and 2024 will provide access to broadband infrastructure to more than 320,000 passings across Virginia. These projects leverage $822.8 million in state and federal funding alongside $1.198 billion in private and local matching funds. However, affordability remains a barrier even where infrastructure exists. The Benton Institute for Broadband and Society found that income is the number one reason some Virginians don't have wireline broadband, with older residents and those living in rural areas also less likely to have access.
+
+The federal BEAD (Broadband Equity, Access, and Deployment) program provides an opportunity to address remaining gaps. Virginia is using its allocation of BEAD funding to target the approximately 133,000 addresses that remain unserved. The Virginia Department of Housing and Community Development anticipates approval of the state's BEAD Final Proposal in Winter 2025, with projects beginning in Fall 2026. Economic advisors should help communities navigate these funding opportunities and advocate for broadband expansion.
+
+#### Limited Access to Capital
+
+Access to capital is one of the most persistent barriers to business development in rural communities. Traditional banks are often reluctant to lend to businesses in economically distressed areas. Venture capital is highly concentrated in a few large cities, with more than half of U.S. venture capital offices located in San Francisco, Boston, and New York . This creates a financing gap that limits entrepreneurship and business growth.
+
+The Appalachian Regional Commission's POWER Initiative provides federal grant funding for projects that help coal communities expand local and regional economies, attract new sources of private investment, and provide comprehensive workforce services and skills training . Since its creation, POWER investments are projected to have created or retained nearly 54,000 jobs and prepared nearly 170,000 workers for new opportunities . The program has invested $485 million in 564 projects to help revitalize 365 Appalachian counties .
+
+The Virginia Coalfield Economic Development Authority's Seed Capital Matching Fund program provides another source of capital for business start-ups. In 2025, 26 new business start-ups were supported through the program. Community Development Financial Institutions (CDFIs) also play an important role in serving underserved markets. Economic advisors should help businesses navigate these financing options and develop strong applications.
+
+#### Insufficient Workforce Training
+
+Workforce training gaps limit the region's ability to attract and retain businesses. Low educational attainment rates constrain the types of businesses that can locate in the region. The skills gap identified by employers includes both technical and soft skills. An "awareness gap"—potential workers not knowing what careers are available—is a particular challenge that requires systematic career education and exposure .
+
+The Appalachian Regional Commission's POWER Initiative addresses workforce training through projects that provide comprehensive workforce services and skills training . Since its creation, POWER investments have prepared nearly 170,000 workers and students for new opportunities in advanced manufacturing, entrepreneurship, tourism, agriculture, and other growing industries . Community colleges throughout the corridor offer training programs that address local workforce needs.
+
+The Coalfield Development Corporation's model demonstrates the importance of holistic workforce development. The organization helps incubate new businesses, provides on-the-job training, and supports personal development. Since its founding, Coalfield has created over 1,000 jobs, supported 91 new businesses, attracted over $178 million in new investment, and trained over 3,800 people . Economic advisors should consider how to adapt this model for the Virginia corridor.
+
+#### Weak Business Support Services
+
+Business support services—including technical assistance, marketing support, and business counseling—are often limited in rural communities. Entrepreneurs may struggle to access the expertise they need to start and grow businesses. This limits business creation and reduces business survival rates.
+
+The Economic Recovery Corps program provides a model for addressing this gap by embedding experienced economic development professionals in rural communities . In its first year, ERC fellows helped host organizations secure $135.6 million in new funding . This demonstrates how targeted technical assistance can unlock significant investment.
+
+The Virginia Rural Center's Opportunity Dashboard provides a tool for identifying business support resources. The Rural Resource Index is a searchable tool for identifying funding opportunities at the local, state, and federal levels . By making it easier to find and access resources, the dashboard helps businesses and communities overcome the barriers created by limited support services.
+
+#### Inadequate Housing Options
+
+Housing presents both opportunities and challenges for the Crooked Road corridor. While median home values are significantly below state and national averages, making the region attractive to remote workers and retirees, some communities face housing shortages that constrain growth. In Bristol, for example, there were only 2.77 months of housing inventory in November 2024, well below the balanced market level of approximately six months.
+
+The Federal Reserve Bank of Richmond's research identifies housing as a barrier to economic growth in rural settings . While housing is generally more affordable outside cities, around a quarter of rural households spend more than 30 percent of their gross income on housing . Rural housing is also older on average, and vacancy rates tend to be higher than in cities. However, this greater presence of abandoned and dilapidated properties can complicate efforts to refresh and expand the housing supply .
+
+Economic advisors should help communities develop strategies for addressing housing challenges, including workforce housing development, housing rehabilitation, and adaptive reuse of abandoned properties. The Coalfield Development Corporation's model of employing local talent to restore dilapidated property demonstrates one approach to this challenge .
+
+#### Limited Entrepreneurship Culture
+
+Entrepreneurship culture—the collective belief that starting a business is a viable path to economic success—is often limited in communities that have depended on large employers. The loss of identity that accompanies economic decline can be a hindrance to innovative planning strategies and entrepreneurship . Breaking this pattern requires exposing residents to entrepreneurial role models and providing support for business creation.
+
+The Appalachian Regional Commission's POWER Initiative supports entrepreneurship through projects that help coal communities create new economic opportunities . Coalfield Development Corporation has incubated at least 80 new businesses employing more than 400 workers . These examples demonstrate that entrepreneurship can flourish in the region when the right support systems are in place.
+
+Economic advisors should help communities build entrepreneurship culture through business education, mentorship programs, networking opportunities, and incubation and acceleration programs. The goal is to create an environment where starting a business is seen as a normal and achievable path to economic success. This requires both practical support and cultural change—helping communities see themselves as places where new businesses can succeed.
+
+## CHAPTER THREE: ADVICE FOR ECONOMIC ADVISORS (Continued)
+
+---
+
+### Designing Programs That Work
+
+Effective economic development programs are not created in isolation—they emerge from deep understanding of local context, genuine engagement with community needs, and a commitment to continuous improvement. The lessons from successful rural development initiatives across the country offer practical guidance for economic advisors working in the Crooked Road and U.S. Route 23 corridor. These lessons emphasize that program design must prioritize practicality, accessibility, flexibility, accountability, and collaboration.
+
+#### Practicality: Addressing Real Needs
+
+Programs that succeed are those that address real, identified needs rather than abstract concepts or external priorities. As the Federal Reserve Bank of Richmond's Rural Investment Collaborative found, success starts with building on strengths, and "the type of community asset is less important than how the asset is leveraged" . The Richmond Fed's Community Investment Training works with rural leaders to identify projects that build on local assets: natural resources, infrastructure, relationships, and skills. By focusing on assets, communities can begin to take action while continuing to build local capacity .
+
+The Appalachian Regional Commission's POWER Initiative evaluation reinforces this principle. Stakeholder analysis revealed that the most significant changes occurred when programs addressed multiple levels simultaneously: providing job and career opportunities at the individual level, helping businesses increase revenue or decrease costs at the organizational level, and supporting increased economic opportunities and improved quality of place at the community level . This multi-level approach reflects the reality that economic development is not a single intervention but a coordinated effort across multiple dimensions.
+
+Practicality also means designing programs that can generate revenue and attract capital investment. The Richmond Fed found that projects that benefited most from investment training "needed multiple types of capital and had the potential for generating revenue" . Main Street revitalization, tourism infrastructure, and workforce housing projects have clear opportunities for loans, tax credits, private investment, and revenue generation. Even community-centered projects can incorporate revenue-generating uses like shared workspaces, leased space for partners, and service fees .
+
+The Virginia Coalfield Economic Development Authority's approach exemplifies practical program design. In 2025, VCEDA approved 59 loans and grants totaling $18,759,752 in new funding for projects across all seven counties in its region, projected to help create and retain 584 full-time and 124 part-time jobs and attract $180,214,443 in private investment . The projects funded included infrastructure development, telehealth, workforce development, tourism development, and entrepreneurship—each addressing a specific, identified need in the community .
+
+#### Accessibility: Easy to Find, Understand, and Use
+
+Programs that are difficult to access—whether because of complicated applications, unclear eligibility requirements, or slow processes—will fail to reach the communities they are designed to serve. As Scott Andes, former Program Director at the Economic Development Administration, observed in designing the Recompete pilot program, funders often keep applicants in the dark. His approach was different: "tell people what matters" .
+
+Andes and his team implemented several strategies to improve accessibility. They limited lengthy forms and similar submission burdens, recognizing that rural leaders with multiple responsibilities often lack the time to navigate complex applications. They implemented a two-phase competition that allowed finalists to receive one-on-one feedback on their applications and connect them with experts and other supports . They were transparent about what parts of the process were important and what weren't—for example, telling applicants not to spend significant time on environmental regulations at the initial phase. As Andes explained, "I felt as long as we were transparent with everyone (about what mattered to our decisionmaking), we could help them understand what parts of the process were important and what weren't" .
+
+The Rural Virginia Opportunity Dashboard, launched at the Southwest Virginia Economic Forum at the University of Virginia's College at Wise, provides a model for accessibility at the state level. The dashboard provides comprehensive, data-driven insights into critical sectors such as demographics, housing, education, business, and health, featuring interactive asset maps and a Rural Resource Index—a searchable tool for identifying funding opportunities at the local, state, and federal levels . By making it easier to find and access resources, the dashboard helps communities overcome the barriers created by limited support services.
+
+The growing momentum for rural-focused federal legislation further reflects the importance of accessibility. The proposed GREATER Act (Growing Regional Entrepreneurship and Access To Economic Resilience Act) would direct the Small Business Administration, Appalachian Regional Commission, and Delta Regional Authority to coordinate activities to expand rural entrepreneurship in Appalachia . Similarly, the proposed RISE Act (Rural Innovation and Small Business Expansion Act) would require these agencies to enter into a memorandum of understanding to carry out activities within the Appalachian region and Delta region to expand rural entrepreneurship and support small business concerns . These legislative efforts recognize that coordination across agencies can reduce fragmentation and make programs more accessible to rural communities.
+
+#### Flexibility: Adapting to Changing Circumstances
+
+Rural economic development is inherently unpredictable. Markets shift, federal policies change, and community circumstances evolve. Programs that are rigid and inflexible are ill-suited to the realities of rural development. As Andes emphasized, the EDA is effective precisely because "it is very flexible. They can do lots of creative things, and they're able to fund new things. So, it is an ideal agency for policy innovation" .
+
+The Build Back Better Regional Challenge, which Andes helped create, exemplified this flexibility. The goal was to help regions of all shapes and sizes "make a transition from potentially low-wage and low-skilled sectors and industries to medium- and high-skilled industries and sectors" . Rather than prescribing specific industries or approaches, the program allowed communities to develop their own strategies based on local conditions and priorities. The program invested enough in each place "that we could do a generation's worth of economic development in five years" .
+
+The Economic Recovery Corps model similarly demonstrates the value of flexibility. ERC fellows are not assigned with pre-set mandates but work alongside host staff to shape and execute strategic economic development initiatives tailored to local priorities, which might include strengthening small business ecosystems, advancing regional workforce plans, expanding housing development, or helping communities navigate and access public funding . This flexibility is particularly important given that "the civic infrastructure in low-capacity places can vary so widely" .
+
+The Richmond Fed's experience with the Rural Investment Collaborative reinforces the importance of adaptability. When projects lost their site control or encountered other barriers, participants who had learned flexible approaches were able to "pivot to a new project or make significant changes to their proposals to fit other locations" . This ability to adapt, rather than abandoning the effort entirely, is a hallmark of successful rural development.
+
+#### Accountability: Measuring Results and Adjusting
+
+Accountability—measuring results and adjusting strategies based on evidence—is essential for program effectiveness. The POWER Initiative's evaluation approach demonstrates how accountability can be implemented in ways that support learning and improvement. ARC's evaluation included both quantitative tracking of outputs and outcomes and qualitative collection of stories of change from grantees . Through a process called "most significant change" (MSC), evaluators solicited stories of change from POWER grantees and partners, which were then reviewed and selected by fellow grantees and ARC staff .
+
+The results of this participatory evaluation were revealing. POWER stakeholders submitted 72 stories representing 44 unique projects. The most significant changes identified by stakeholders included providing job and career opportunities and skill-building at the individual level; helping businesses increase revenue or decrease costs and improving organizational capacity at the business level; and supporting increased economic opportunities and improved quality of place at the community level . The evaluation also found that grantees with closed projects had already exceeded many cumulative (initiative-level) targets, even though grantees have up to three years after project close to achieve their full targets .
+
+The proposed Innovation and Empowerment for Startups Act would require similar accountability measures. The legislation would require grant recipients to submit reports on use of grant amounts and the effect of programs or services provided on small business concerns . The Administrator would be required to implement monitoring and evaluation procedures and report to Congress on activities and outcomes associated with grants . This emphasis on accountability reflects a broader recognition that public investment requires evidence of impact.
+
+The importance of data-driven decision-making is also reflected in the Rural Virginia Opportunity Dashboard. The dashboard provides comprehensive, data-driven insights that help communities "recognize their strengths and identify opportunities for growth" . By providing access to reliable data, the dashboard enables communities to make informed decisions about economic development strategies and to track progress over time.
+
+#### Collaboration: Involving Multiple Partners
+
+The most successful economic development programs involve multiple partners—government agencies, private sector businesses, nonprofit organizations, educational institutions, and community organizations. The "team approach" that VCEDA emphasizes—in which "VCEDA and its economic development allies work towards a common goal for the betterment of the region" —is essential for leveraging resources, sharing risks, and building momentum.
+
+The Build Back Better Regional Challenge demonstrated the power of collaboration. The challenge required regions to develop coalitions that could present persuasive plans for economic transformation. The winners "really crossed the spectrum," including both hub-and-spoke models with urban cores and rural areas and exclusively rural winners such as the Coalfield Development/ACT NOW Coalition in West Virginia . As Andes noted, the key question was not whether a region was urban or rural, but "How persuasive is your plan, and how good is your coalition? What are the underlying economics? Do we think this is a good return on taxpayer dollars?" .
+
+The Innovation and Empowerment for Startups Act recognizes the importance of collaboration by defining eligible entities as those that provide services to small business concerns owned and controlled by women and rural small business concerns . Eligible entities include accelerators that have a demonstrated track record of successfully assisting entrepreneurs, providing mentorship, facilitating access to capital, and fostering connections . This recognition of the importance of ecosystem-building reflects the understanding that economic development is not a solo endeavor.
+
+The Appalachian Community Capital model demonstrates how collaboration across organizations can support small business growth in underserved regions. ACC raises funding and directs it to its member Community Development Financial Institutions (CDFIs) across the Appalachian region, in 13 states and 423 counties, to provide financial assistance to entrepreneurs and small business owners . Since opening its doors in 2013, ACC has partnered with more than 30 member institutions to finance new businesses and revitalize local economies. In 2022, ACC received a $10 million investment from the Ford Foundation and more recently received $500 million from the EPA's Clean Communities Investment Accelerator .
+
+---
+
+### Developing Entrepreneurial Support Systems
+
+Entrepreneurial support systems are the infrastructure that enables new businesses to start, grow, and succeed. These systems include business education, technical assistance, networking opportunities, incubation and acceleration programs, and access to markets. Building these systems requires investment, coordination, and a commitment to supporting entrepreneurs through the challenges of starting and growing a business.
+
+#### Business Education: Workshops, Classes, Mentoring
+
+Business education provides entrepreneurs with the knowledge and skills they need to succeed. This education can take many forms—workshops, classes, mentoring, and coaching—and should be tailored to the needs of different types of entrepreneurs at different stages of business development.
+
+The Coalfield Development Corporation's model demonstrates the importance of holistic education in workforce and business development. The organization's approach—employees working 33 hours of labor each week, attending 6 hours of classwork at a local community college, and participating in 3 hours of personal asset development —reflects an understanding that entrepreneurs need not only business skills but also personal development and support. Since its founding, Coalfield has created over 1,000 jobs, supported 91 new businesses, attracted over $178 million in new investment, and trained over 3,800 people .
+
+The Dickenson County Community Business Launch program exemplifies how business education can be integrated into broader entrepreneurial support systems. A $42,500 grant from the Virginia Coalfield Economic Development Authority to the Dickenson County Industrial Development Authority is being used to develop a small business incubator space at the Dickenson Center for Education and Research . The program will allocate funds to provide comprehensive support to businesses, including training, workshops, and meetings, as well as covering participant curriculum fees, workbooks, facilitators, and staff support . The program, expected to launch in spring 2026, will include a business pitch competition with monetary support and free incubator space for one year for the winners .
+
+The Innovation and Empowerment for Startups Act would provide $1.25 billion in grants to eligible accelerators and incubators that provide services to women-owned and rural small business concerns . Eligible uses of funds include providing consulting, training, shared facilities and resources, assistance with access to capital, workshops, seminars, networking events, individual consultations, educational opportunities on topics such as marketing strategy, public relations, website marketing, social media, business planning, and financial planning . This legislative recognition of the importance of business education reflects a broader understanding that entrepreneurs need not just financing but also knowledge and skills.
+
+Mentoring is a particularly valuable form of business education. As the Entrepreneurial Ecosystem Building Playbook notes, mentorship "is not about replicating your own path but guiding someone else's" . Mentors who have experience starting and growing businesses can provide practical advice, connections, and encouragement that help entrepreneurs navigate the challenges of business ownership. The "authentic, relationship-centered support" that mentors provide is essential for entrepreneurial success .
+
+#### Technical Assistance: Consulting for Specific Challenges
+
+Technical assistance provides entrepreneurs with specialized expertise to address specific business challenges. This assistance can include help with business planning, financial management, marketing, legal issues, technology adoption, and other areas where entrepreneurs may lack expertise.
+
+The Appalachian Community Capital model demonstrates how technical assistance can be integrated with financing. ACC and its member CDFIs provide "financial planning and general management support" to the businesses they finance . For CoreTrans, a trucking company based in Somerset, Kentucky, the relationship with Kentucky Highlands Investment Corporation "goes back more than 20 years and offers far more than just financial support" . The relationship with the CDFI has been "a partner of ours since day one," providing the kind of ongoing support that helps businesses navigate challenges .
+
+The VCEDA Seed Capital Matching Fund program provides another model for technical assistance. In 2025, 26 new business start-ups were supported by grants from the program, projecting a total of 100 full-time and 106 part-time jobs . While the program provides financial support, the application process itself—requiring business planning, financial projections, and market analysis—builds entrepreneurial skills. This integration of financing with technical assistance helps ensure that businesses are not just funded but set up for success.
+
+Technical assistance for technology adoption is increasingly important for rural entrepreneurs. The Productivity Enhancing Technology Experience Kits (PETE-Kits) project demonstrated how hands-on technology experience can build the skills and confidence needed for entrepreneurship . The PETE-Kits, which include technologies such as long-range radios, wireless network protocols, microprocessors, cameras, sensors, and more, were designed "to quickly raise rural students' and community members' awareness of different types of SCTs [smart and connected technologies] and how they might be relevant for life in a rural environment" . The project found that the combination of technology literacy education and entrepreneurial training substantially enhanced preparedness of rural individuals for participation in the digital economy .
+
+#### Networking Opportunities: Connecting Entrepreneurs with Peers
+
+Networking opportunities connect entrepreneurs with peers, mentors, investors, and potential customers. These connections are essential for business success, providing access to information, support, and opportunities that would otherwise be unavailable.
+
+The Economic Development Administration's Build to Scale Venture Challenge supports networking and ecosystem-building. Red Wing Ignite, a grantee of the program, received $2 million to expand access to startup programs for rural and diverse founders through regional coordination . The project aims to "build a robust, diverse network for mentors and investors ready to help scale regional startups" across an eleven-county region . This recognition of the importance of networks reflects the understanding that entrepreneurial ecosystems are built on connections.
+
+The Rural Investment Collaborative's Community Investment Training brings rural leaders together to learn, share experiences, and build networks . The program has trained 42 leaders to date, with external partners awarding $389,000 to support the development of their projects . The training provides not just knowledge but also connections—participants become part of an alumni network with opportunities to apply for additional resources . This ongoing connection helps sustain the momentum of rural development efforts.
+
+The proposed GREATER Act and RISE Act would support networking by directing the Appalachian Regional Commission, Delta Regional Authority, and Small Business Administration to coordinate activities to expand rural entrepreneurship . This coordination across agencies would help connect entrepreneurs with resources and opportunities that might otherwise be fragmented and difficult to access.
+
+#### Incubation and Acceleration: Workspace and Intensive Support
+
+Incubation and acceleration programs provide entrepreneurs with workspace, shared resources, and intensive support that can help them launch and grow their businesses. These programs reduce the barriers to entrepreneurship by providing the infrastructure that entrepreneurs need to succeed.
+
+The Dickenson County small business incubator project provides a model for incubation in the region. A $42,500 grant from VCEDA is being used to "make improvements to 3,200 square feet of unused space at the DCER and for workforce and small business development and training" . The incubator is expected to house five businesses and provide comprehensive support services, including training, workshops, and meetings . The program will include a business pitch competition component with monetary support and free incubator space for one year for the winners .
+
+The VCEDA Seed Capital Matching Fund program has supported 26 new business start-ups in the region, projecting a total of 100 full-time and 106 part-time jobs . While not all of these businesses require physical incubator space, the program provides the financial support that helps entrepreneurs get started. The program's success—creating jobs and investment in the region—demonstrates the importance of supporting entrepreneurship at all stages.
+
+The Innovation and Empowerment for Startups Act would provide grants to eligible accelerators and incubators that provide services to women-owned and rural small business concerns . The legislation defines eligible incubators as entities that "offer shared resources and services for startup businesses, which may include office space, consultants, mentors, technical support, and access to capital" . This recognition of the importance of incubators reflects the understanding that entrepreneurs need more than financing—they need the support infrastructure that helps businesses grow.
+
+#### Access to Markets: Finding Customers Locally, Regionally, and Nationally
+
+Access to markets—finding customers for products and services—is essential for business success. Rural entrepreneurs often face challenges in reaching customers because of geographic isolation, limited local markets, and lack of connections to broader markets. Entrepreneurial support systems must help entrepreneurs identify and reach customers at multiple levels.
+
+The PETE-Kits project demonstrated how technology can help rural entrepreneurs access broader markets. By building skills in smart and connected technologies, the program enabled participants to "improve productivity and wellbeing" through participation in the digital economy . Participants who developed technology skills could pursue remote work or entrepreneurial opportunities that connected them to customers beyond their local communities. The "aspirations to adapt SCTs to entrepreneurship" were a critical component of the program's success .
+
+The Appalachian Community Capital model supports market access by providing the financing that businesses need to expand and reach new customers. CoreTrans, a trucking company supported by ACC member Kentucky Highlands Investment Corporation, was able to replace and update more than 30 trucks with a loan, allowing them to "fulfill a year's worth of much-needed purchases at one time" . With more fuel-efficient trucks and newer technology, the company reduced breakdowns and costly delays, improving service to customers .
+
+The VCEDA Seed Capital Matching Fund program supports market access by helping businesses get started and grow. The 26 new business start-ups supported by the program in 2025 represent a diverse range of businesses that will serve customers locally, regionally, and nationally . By providing the capital that entrepreneurs need to launch their businesses, the program helps create the conditions for market development.
+
+The Brookings Institution's research on inclusive development in rural towns emphasizes the importance of linking local businesses to broader regional growth strategies. The "community-centered economic inclusion" model works by "embedding economic inclusion for often-disinvested rural areas within larger regional investment strategies" . This approach ensures that rural businesses can benefit from regional growth rather than being isolated from it. Each of the three Indiana towns participating in the Learning Lab identified economic inclusion districts with strong assets that could be leveraged for regional economic growth .
+
+## CHAPTER THREE: ADVICE FOR ECONOMIC ADVISORS (Continued)
+
+---
+
+### Financing Business Development
+
+Access to capital is one of the most persistent barriers to business development in rural communities. Traditional banks are often reluctant to lend to businesses in economically distressed areas, and venture capital is highly concentrated in a few large cities. However, a diverse array of financing options exists for businesses in the Crooked Road corridor—from federal loan programs and community development financial institutions to grants and innovative impact investing vehicles. Understanding this landscape is essential for economic advisors seeking to help entrepreneurs access the capital they need to start and grow businesses.
+
+#### Traditional Bank Loans
+
+Traditional bank loans remain the most common source of financing for established businesses. Banks provide term loans for equipment purchases, real estate acquisition, and working capital, as well as lines of credit for ongoing operational needs. For businesses with strong credit histories and collateral, bank loans offer competitive interest rates and predictable repayment terms.
+
+However, traditional bank lending can be challenging in rural communities. Banks may be reluctant to lend to businesses in economically distressed areas, and the absence of local bank branches can make it difficult to build the relationships that facilitate lending. The recent increase in interest rates has also created challenges, with some projects "just getting stalled as a result" of higher borrowing costs . Economic advisors should help businesses prepare strong loan applications and identify banks that have experience lending in rural areas.
+
+The role of traditional banking in rural communities extends beyond commercial lending. Community banks often serve as the financial backbone of small towns, providing not only loans but also deposit services, financial advice, and community leadership. Preserving and strengthening these institutions is essential for rural economic development. Advisors should encourage local banks to participate in SBA-guaranteed lending programs, which reduce bank risk and enable lending to businesses that might not otherwise qualify.
+
+#### Small Business Administration (SBA) Guaranteed Loans
+
+The U.S. Small Business Administration (SBA) provides loan guarantee programs that reduce bank risk and enable lending to businesses that might not otherwise qualify for conventional financing. These programs are particularly valuable in rural communities where traditional lending may be limited.
+
+The SBA's Economic Injury Disaster Loan (EIDL) program provides working capital loans to small businesses, small agricultural cooperatives, and most private nonprofit organizations that have suffered economic losses due to declared disasters . These loans can be up to $2 million with interest rates of 4 percent for small businesses and 3.25 percent for private nonprofit organizations, with terms up to 30 years . Interest does not accrue, and payments are not due, until 12 months from the date of the first loan disbursement .
+
+In the Crooked Road corridor, SBA disaster declarations have been triggered by drought and excessive heat, making EIDL loans available to eligible businesses across the region . The declaration includes primary counties throughout Southwest Virginia, including Dickenson, Buchanan, Russell, Tazewell, Wise, and many others, as well as contiguous counties . For businesses affected by these conditions, SBA loans can be "a lifeline for eligible small businesses," helping rural communities "bounce back and thrive after a disaster strikes" .
+
+The Virginia Small Business Financing Authority (VSBFA) complements federal SBA programs by offering state-sponsored loan guarantees, a cash collateral program, child care financing programs, and a small business microloan program . These programs provide additional options for Virginia businesses seeking financing. Economic advisors should help businesses navigate the requirements of both federal and state programs and determine which options best fit their needs.
+
+#### Microfinance
+
+Microfinance provides small loans to entrepreneurs who need limited capital to start or grow their businesses. These loans are typically smaller than traditional bank loans—often under $50,000—and may have more flexible qualification requirements. Microfinance is particularly valuable for businesses that are too small or too new to qualify for bank financing.
+
+In the Crooked Road corridor, the Virginia Small Business Financing Authority's microloan program provides small loans to businesses that might not qualify for conventional financing . These loans can be used for equipment purchases, business expansion, and operational costs . For businesses seeking smaller amounts of capital, microloans can be an accessible alternative to larger loan programs.
+
+The VCC (Virginia Community Capital) model demonstrates how community development financial institutions can provide microfinance alongside larger loans. Founded in 2006 and seeded with $15 million from the state government, VCC provides credit and financial services for underserved populations . The organization has helped finance projects that have created or retained more than 14,000 jobs and established more than 12,000 affordable housing units . This holistic approach to community development finance demonstrates the potential for microfinance to support broader economic revitalization.
+
+#### Community Development Financial Institutions (CDFIs)
+
+Community Development Financial Institutions (CDFIs) are specialized financial institutions that serve underserved markets and communities. CDFIs provide loans, investments, and financial services to businesses and organizations that might not otherwise have access to capital. In the Crooked Road corridor, CDFIs have become essential partners in economic development.
+
+Freedom First Credit Union is "the largest member-owned Community Development Financial Institution in Southwest Virginia" . Founded in 1956, the organization has grown to over 60,000 members, assets of over $1 billion, and 12 branch locations in the Roanoke and New River Valleys and Greater Lynchburg . As a CDFI, Freedom First ensures that members' money is "being reinvested in their community" . This reinvestment approach is central to the CDFI model—funds are not simply extracted from communities but recycled through local lending and investment.
+
+Virginia Community Capital (VCC) provides another example of the CDFI model in action. Founded in 2006 and seeded with $15 million from the state government, VCC has grown to $559 million in total assets under management . The organization provides credit and financial services for underserved populations, financing projects ranging from solar energy and food access to affordable housing . Since its inception, VCC has helped finance projects that have created or retained more than 14,000 jobs and established more than 12,000 affordable housing units .
+
+The CDFI model recognizes that "to rebuild a broken economy, you must have multiple layers of interventions" . In communities like Hazard, Kentucky, this means a combination of housing organizations that build houses and connect people to low-interest loans, credit counseling organizations that help people improve their credit ratings, and other support services that address the full spectrum of community needs . As one participant in a University of Virginia impact investing course observed, "It's viable to invest in these communities where you can also make your money. Therefore, it being a viable investment in the traditional financial sense, it's also an amazing investment in the social sense" .
+
+The Appalachian Community Capital (ACC) model extends the CDFI approach across the entire Appalachian region. ACC raises funding and directs it to member CDFIs across 13 states and 423 counties . Since opening its doors in 2013, ACC has partnered with more than 30 member institutions to finance new businesses and revitalize local economies. In 2022, ACC received a $10 million investment from the Ford Foundation and more recently received $500 million from the EPA's Clean Communities Investment Accelerator. Clyde Cornett, executive vice president and CFO of VCC, is a founding director of ACC and has served on its board for a decade .
+
+The impact investing approach is not without its challenges. As Stephanie Randolph, who teaches impact investing at the University of Virginia's Batten School, explains: "Community and economic development are messy and policy is messy. But they must work together, especially in economically distressed communities. The textbook approaches do not easily translate into reality" . The complexity of community development financing requires patient capital and a willingness to work through challenges that traditional investors might avoid.
+
+#### Grants
+
+Grants provide funding that does not need to be repaid, making them particularly valuable for businesses and communities with limited capacity to take on debt. In the Crooked Road corridor, grants are available from federal, state, and local sources for a wide range of purposes, including business development, workforce training, infrastructure, and community revitalization.
+
+The Virginia Coalfield Economic Development Authority (VCEDA) is a primary source of grant funding in the region. In 2025, VCEDA approved millions of dollars in grants for projects across its seven-county region. Recent grants include a $200,000 workforce training grant to the Mountain Empire Community College Foundation, a $50,000 grant for signage at the Lonesome Pine Regional Business and Technology Park, a $20,000 grant for upgrades at the Dickenson Center for Education and Research, and a $42,500 grant to develop a small business incubator space at the Dickenson Center . These grants support a wide range of economic development activities, from infrastructure and tourism development to workforce training and entrepreneurship.
+
+The USDA Value-Added Producer Grant (VAPG) program provides grants to agricultural producers seeking to turn raw commodities into more profitable finished products . The program provides up to $250,000 to cover half the cost of a project, including working capital or funding for feasibility studies . In West Virginia, recent VAPG grants have supported mushroom processing improvements, market expansion for berry farms, vegetable processing and packaging, and bison meatball production and marketing . Similar opportunities exist for agricultural producers in the Virginia corridor.
+
+Local grant programs can also make a significant difference. Botetourt County's small business grant program, supported by Google and the county, offers grants ranging from $2,000 to $6,000 . In its first year, the program distributed approximately $36,000, reaching 16 businesses. In its second year, expanded funding allowed the program to reach approximately 30 businesses . Businesses have used grants for signage, marketing initiatives, and equipment purchases such as vacuum sealers for meat processing . Bryant Orchards Farm Market used its grant for signage that significantly increased foot traffic, with owner Kelsey Bryant reporting: "The grant I know is working because we have customers that come in all the time and say, 'How long have you been here? We never knew you were here'" .
+
+For economic advisors, helping businesses and communities identify and apply for grants is an essential service. The Rural Virginia Opportunity Dashboard provides a Rural Resource Index, a searchable tool for identifying funding opportunities at the local, state, and federal levels. Advisors should help potential grantees develop strong applications, demonstrating how their projects align with grant program goals and will generate measurable benefits.
+
+#### Venture Capital
+
+Venture capital provides equity investment for high-growth businesses with the potential for significant returns. While venture capital is concentrated in a few major cities, specialized funds focus on rural and underserved markets. In the Crooked Road corridor, venture capital has played a role in supporting technology and innovation businesses, though it remains a limited source of financing for most businesses.
+
+The Meritus Ventures and Southern Appalachian Fund demonstrate the potential for venture capital in rural Appalachia. Together, these funds raised approximately $53 million and invested equity and debt in 16 companies, which attracted almost $300 million of aggregate investment . The companies are located in rural and/or low-income areas throughout central and southern Appalachia and have created more than 400 jobs to date . These funds also provided more than $4 million of technical and operational assistance to portfolio companies, demonstrating the importance of non-financial support for rural businesses .
+
+Three Roots Capital, founded in 2016 as a 501(c)(3) certified Community Development Financial Institution (CDFI), makes debt and equity investments in companies in predominantly low-income areas of East Tennessee and the broader Appalachian region . The organization has raised more than $88 million and has deployed and committed approximately $48 million to companies in Tennessee and Kentucky . The TennesSeed Fund, launched in 2019, provides evergreen seed-stage investment focused on proof-of-concept opportunities in Tennessee-based companies .
+
+The experience of AppHarvest, a now-bankrupt greenhouse startup that attracted significant venture investment, offers a cautionary tale about the challenges of scaling agricultural businesses in Appalachia . The company, which was pitched as a solution to the declining coal industry, was described by investor JD Vance as "a pretty perfect elucidation" of investment thesis—matching economic trends with new technology . Within three years, however, the company filed for bankruptcy . This experience underscores the risks inherent in venture investing, particularly in sectors and regions where proven business models may not exist.
+
+For economic advisors, the venture capital landscape in the region suggests that while equity investment is available, it is concentrated in a few specialized funds and requires businesses to meet high standards of growth potential and management capability. Advisors should help businesses understand the venture capital market and determine whether pursuing equity investment is appropriate for their stage of development and business model.
+
+#### Crowdfunding
+
+Crowdfunding allows businesses to raise small amounts from many investors through online platforms. This approach has become increasingly accessible to rural businesses, enabling them to reach customers and investors beyond their local communities. Crowdfunding can take several forms, including rewards-based crowdfunding (donors receive products or perks), equity crowdfunding (investors receive ownership stakes), and debt crowdfunding (investors receive repayment with interest).
+
+The University of Virginia's impact investing course highlighted how communities in Appalachia are using multiple layers of financing, including crowdfunding and community-based investment vehicles, to support local businesses . In Hazard, Kentucky, for example, students learned about a housing organization that helps build houses and connects people to low-interest loans, as well as organizations that provide credit counseling to people with poor credit ratings . These community-based financing approaches are often more accessible to businesses that may not qualify for traditional loans.
+
+For economic advisors, crowdfunding represents an opportunity to help businesses access capital while also building customer relationships and community support. Successful crowdfunding campaigns require compelling storytelling, effective marketing, and a strong network of supporters. Advisors can help businesses prepare for crowdfunding by refining their business models, developing marketing materials, and building the social media presence that drives campaign success.
+
+However, crowdfunding also carries risks. Campaigns that fail to reach their funding goals may damage a business's reputation. The fees charged by crowdfunding platforms can be significant, and the time required to manage a campaign can be substantial. Advisors should help businesses weigh these considerations and determine whether crowdfunding is appropriate for their needs.
+
+The diversity of financing options available in the Crooked Road corridor—from traditional bank loans and SBA guarantees to CDFIs, grants, venture capital, and crowdfunding—provides a robust toolkit for supporting business development. However, navigating this complex landscape requires expertise, patience, and a willingness to match businesses with the financing sources that best fit their needs. As the Virginia coalfields demonstrate, the most effective approach often involves multiple layers of intervention, with different financing sources addressing different needs and stages of business development.
+## CHAPTER THREE: ADVICE FOR ECONOMIC ADVISORS (Continued)
+
+---
+
+### Creating a Business-Friendly Environment
+
+A business-friendly environment is not created by a single policy or program—it emerges from the interplay of streamlined regulations, affordable utilities, available buildings, a skilled workforce, and quality of life that together create conditions where businesses can start, grow, and thrive. For communities in the Crooked Road and U.S. Route 23 corridor, building this environment requires addressing long-standing challenges while leveraging the region's distinctive assets.
+
+#### Streamlined Regulations
+
+Reducing regulatory burdens is a priority for small business owners across Virginia. As Delegate Kim Taylor, a small business owner herself, observed: "As a small business owner, I've seen firsthand how decisions in Richmond impact our bottom line" . The National Federation of Independent Business (NFIB) has emphasized the importance of preserving the 20 percent federal small-business income deduction and simplifying compliance burdens for Main Street businesses .
+
+Virginia's commitment to regulatory reform has contributed to its recognition as America's Top State for Business by CNBC in 2024 and 2025 . The ranking measured all 50 states on 128 different metrics in 10 key categories of competitiveness, with Virginia receiving high marks for business-friendly policies . The Commonwealth has implemented significant tax changes, including one-time rebates of up to $200 for individuals, an increased standard deduction, and a refundable Earned Income Tax Credit worth 20 percent of the federal amount . These reforms benefit small business owners who file through personal income tax returns and reduce effective tax rates across income levels.
+
+In 2024, the Virginia General Assembly also passed legislation establishing the Virginia Business Ready Permitting Program, designed to fast-track approvals for transformational economic development projects and eliminate major delays . This program complements the Virginia Business Ready Sites Program (VBRSP), which pre-certifies sites by partnering with localities, utilities, and state agencies to streamline permitting and set the stage for smooth construction .
+
+For economic advisors working in the Crooked Road corridor, helping communities streamline local regulations—zoning, permitting, and licensing—is an essential service. Local governments can reduce barriers to business development by simplifying application processes, reducing fees, and ensuring that approval timelines are predictable and reasonable.
+
+#### Affordable Utilities
+
+Access to reliable, affordable utilities—electricity, water, natural gas, and broadband—is essential for business development. Throughout the Virginia Appalachian region, infrastructure challenges persist, particularly regarding water and sewer services. The Virginia Department of Housing and Community Development administers the Indoor Plumbing Program, funded with federal HOME Investment Partnerships Program funds and state general funds, primarily serving low- to moderate-income households lacking complete functional plumbing . Distressed counties are eligible to receive up to $700,000 per project in ARC funding to address residential infrastructure needs, and similar amounts may be used to construct or expand infrastructure to industrial sites for economic development projects that will result in job creation .
+
+The Virginia Growth and Opportunity (GO Virginia) program has recognized that site development and infrastructure are essential building blocks for sustaining and accelerating the growth of traded industry clusters . Since the program's inception, GO Virginia has awarded $110.3 million in funding for 263 projects across the Commonwealth, leveraging matching funds of more than $125.5 million . Recent projects include a $94,400 investment to evaluate industrial sites across Floyd, Giles, Montgomery, and Pulaski counties to identify infrastructure gaps and advance sites through the Virginia Business Ready Sites Program tiers .
+
+The Virginia Business Ready Sites Program has been particularly important for addressing site readiness challenges. The program identifies and prepares potential industrial sites of at least 100 acres—or 50 acres in western, mountainous regions—and has awarded more than $200 million in grants over the past two years . These funds help develop infrastructure and secure approvals to enable speed to market, a top priority for companies establishing new facilities . To date, 44 sites have received development grants, and more than 10,000 jobs have been announced on sites that benefited from the program .
+
+For economic advisors, helping communities identify and apply for infrastructure funding is essential. The Rural Virginia Opportunity Dashboard provides a Rural Resource Index, a searchable tool for identifying funding opportunities at the local, state, and federal levels . Advisors should help communities prioritize infrastructure investments that will support business development, including utility extensions, road improvements, and broadband expansion.
+
+#### Available Buildings
+
+The availability of suitable buildings and sites is a critical factor in business location decisions. Throughout the Crooked Road corridor, industrial buildings constructed during the coal boom era remain available for reuse. These buildings often have industrial infrastructure—including electrical capacity, rail access, and loading facilities—that can support new manufacturing and logistics operations. Adaptive reuse of these buildings can be a cost-effective alternative to new construction.
+
+GO Virginia's focus on site development and infrastructure reflects the recognition that available buildings and sites are essential for attracting investment. The Site Advancement Strategy project in the New River Valley, for example, is updating and expanding upon the 2019 Virginia Business Ready Sites Program assessment by evaluating industrial sites across multiple counties . The project will identify infrastructure gaps, environmental constraints, and site development needs, providing a clear path for advancing sites through the VBRSP tiers . Each locality will select one priority site for evaluation, contributing to a regional portfolio of industrial properties that vary in site readiness and infrastructure needs .
+
+The city of Danville's Coleman Site provides a model for site development in the region. The 158-acre industrial site, owned by the Industrial Development Authority, has received a $2.33 million grant from the Tobacco Region Revitalization Commission to establish an 80-acre graded pad . This grading will ensure site-readiness, streamlining the construction process and accelerating development timelines for large-scale industrial and manufacturing clients. The site is the only rail-served site available for development in the city and is in close proximity to available utility infrastructure, including abundant natural gas, fiber, sewer, and electric capacity . Once grading is completed, the site will become one of the Commonwealth's larger pad sites with rail access—significantly boosting its appeal to heavy industrial prospects .
+
+For economic advisors, helping communities assess and develop available buildings and sites is an essential service. Advisors should help communities inventory available properties, identify infrastructure and permitting requirements, and develop strategies for marketing sites to potential businesses.
+
+#### Skilled Workforce
+
+A skilled workforce is perhaps the most important factor in business location decisions. Virginia has been recognized for its workforce development efforts, with the Virginia Talent Accelerator Program ranked the No. 1 Customized Workforce Training Program in the U.S. by Business Facilities in 2023 and 2024 . The program combines custom recruitment marketing, direct candidate outreach, and training support. Since launching in 2020, the program has helped secure nearly 13,000 jobs .
+
+For the Crooked Road corridor, workforce development presents both challenges and opportunities. Educational attainment in the Virginia Appalachian region lags behind state averages, with the percentage of persons with a high school diploma for the state at 89 percent compared to 38 percent having a bachelor's degree or higher . However, the region is home to respected two-year and four-year colleges, including the University of Virginia's College at Wise, Virginia Tech, and community colleges throughout the corridor .
+
+The Appalachian Regional Commission's POWER Initiative has supported workforce development projects throughout the region. The New River/Mount Rogers Workforce Development Area Consortium Board received $1,494,000 for a Pathways to a Strong and Healthy Region project, focusing on unifying resources and services that support individuals with substance abuse disorder . The project serves 350 workers in recovery and 30 workers in the healthcare and human services sectors, as well as 150 businesses .
+
+The Dickenson County Community Business Launch program provides a model for local workforce development. A $42,500 grant from the Virginia Coalfield Economic Development Authority is being used to develop a small business incubator space at the Dickenson Center for Education and Research . The program includes training, workshops, and meetings, as well as a business pitch competition component with monetary support and free incubator space for one year for the winners.
+
+For economic advisors, helping communities develop workforce training programs that align with employer needs is essential. Advisors should help businesses identify training resources, develop apprenticeship programs, and connect with educational institutions. They should also help communities address barriers to workforce participation, including childcare, transportation, and healthcare access.
+
+#### Quality of Life
+
+Quality of life—the factors that make a community attractive to residents and workers—is increasingly important in business location decisions. The Appalachian Regional Commission has identified quality of life as a strength of the Virginia Appalachian region, noting the region's unique natural and cultural heritage, strong work ethic, and growing pride in the region .
+
+The region's quality of life assets include its natural beauty, outdoor recreation opportunities, cultural heritage, and low cost of living. The Crooked Road's music heritage, the Virginia Creeper Trail, the Clinch River, and the region's national forests all contribute to the quality of life that attracts residents and visitors. The availability of affordable housing—a significant advantage compared to urban areas—supports workforce attraction and retention.
+
+However, quality of life challenges persist. The Appalachian Regional Commission has identified the lack of affordable and accessible healthcare, affordable housing, and adequate childcare as weaknesses in the region . The HB854 Statewide Housing Study found that since 2008, the housing production rate lags far behind population growth in Virginia, and approximately 25,000 new homes will be needed annually until 2040 to meet projected housing demand . In Southwest Virginia, the need for more affordable housing options is "more apparent than ever" .
+
+Health disparities are also significant. Appalachian Virginia's heart disease mortality rate is 24 percent higher than the national rate and 40 percent higher than the rate in non-Appalachian Virginia. Cancer mortality is 10 percent higher than the national rate, and COPD mortality is 36 percent higher . Access to medical care continues to be a major concern, with 17 of the 33 Virginia ARC localities designated as Health Professional Shortage Areas .
+
+For economic advisors, helping communities address quality of life challenges is an essential part of creating a business-friendly environment. Advisors should help communities develop strategies for affordable housing, healthcare access, and childcare availability. They should also help communities leverage their quality of life assets for talent attraction and retention.
+
+---
+
+### Building Private-Public Partnerships
+
+Private-public partnerships are the foundation of successful economic development in the Crooked Road and U.S. Route 23 corridor. These partnerships leverage resources, share risks, and create synergies that no single entity could achieve alone. As Governor Glenn Youngkin observed: "Economic development is a team sport" . The most effective partnerships involve collaboration across government, private sector, nonprofit organizations, universities, and community organizations.
+
+#### Leveraging Resources and Sharing Risks
+
+The GO Virginia program exemplifies how public-private partnerships can leverage resources for economic development. Since its inception to June 30, 2023, GO Virginia has awarded $110.3 million in funding for 263 projects across the Commonwealth, leveraging matching funds of more than $125.5 million in additional funding from public and private sources . GO Virginia projects require the participation of two or more localities and matching funds from non-state sources, incentivizing regional collaboration and efficient use of resources . More than 275 unique local co-funders, including 175 localities, 48 school divisions, and 29 local and regional economic development organizations, have participated in funded projects since program inception .
+
+The Appalachian Regional Commission's POWER Initiative has similarly leveraged resources for economic diversification. A 2020 announcement of six grants totaling more than $3.9 million for Virginia included $1.5 million for site improvements at the Commonwealth Crossing Business Centre in Henry County, which will strengthen this key business site and support the transition to a more diverse manufacturing economy . The projects attracted $110 million in leveraged private investment, as well as a match of $81.5 million in public and private funds .
+
+The National Innovation Quarter (National IQ) demonstrates how large-scale public-private partnerships can catalyze innovation and economic growth. Led by Founding Partners including Amazon, Northrop Grumman, SAIC, the Virginia Innovation Partnership Corporation, Virginia Tech, and local economic development organizations, National IQ provides a place-based platform that brings together leaders from industry, academia, entrepreneurship, and government . The initiative leverages a rare concentration of assets, including proximity to federal decision-makers, access to a highly educated workforce, and a rapidly growing mix of technology, housing, and cultural amenities .
+
+#### Government and Private Sector Collaboration
+
+Virginia's approach to economic development has been characterized by consistent collaboration across political leadership. As the Area Development article notes: "Virginia's commitment to reducing risk and accelerating project success transcends politics. Whether led by Democrats or Republicans, the Commonwealth has consistently delivered a best-in-class business climate" . This consistency has been recognized with Virginia being named State of the Year by Business Facilities in 2024 .
+
+The Virginia Business Ready Sites Program exemplifies how government and private sector collaboration can reduce risk for investors. The program pre-certifies sites by partnering with localities, utilities, and state agencies to streamline permitting and set the stage for smooth construction . Site readiness was a decisive factor in major projects such as the LEGO Group's sustainably designed manufacturing plant, now under construction in Chesterfield County's Meadowville Technology Park .
+
+The Virginia Business Ready Permitting Program, established in early 2024, builds on this model by fast-tracking approvals for transformational economic development projects and eliminating major delays . Together, these programs demonstrate how government can reduce risk and accelerate project success through proactive engagement with the private sector.
+
+The Lab-to-Launch initiative, announced in August 2025, represents a new model for university-industry-government collaboration. Developed through a statewide collaboration between the Virginia Innovation Partnership Corporation and Virginia's six R1 research universities, the initiative creates Virginia's first-ever standardized Fast-Track License agreement to commercialize university research . Startups that spin off from universities using the Fast-Track License are eligible for a grant award of up to $50,000 toward upfront out-of-pocket university commercialization costs . The initiative also includes an Entrepreneur-in-Residence program to connect industry experience with technical knowledge and a digital database for university IP to make it easier for industry partners to access university innovation pipelines .
+
+#### Nonprofit and Business Partnerships
+
+Nonprofit organizations have played a critical role in economic development throughout the Crooked Road corridor. The Virginia Coalfield Economic Development Authority, the Appalachian Regional Commission, and the Tobacco Region Revitalization Commission have all provided significant funding and technical assistance for economic development projects.
+
+The Health Wagon in Wise County provides an example of how nonprofit organizations can address both health and economic challenges. A $793,500 ARC POWER grant established a substance abuse treatment program that complements the region's existing services . The project is expected to serve 75 patients in its first year with the expectation that it will serve approximately 150 patients each year in the future .
+
+Nonprofit organizations also support entrepreneurship and small business development. The Center for Rural Virginia received $39,755 for the Virginia Rural Leaders Institute, which strengthens civic leadership development for rural communities by convening community leaders over a series of sessions . The project delivers a robust curriculum that includes leadership, community, and economic development competencies, with the first cohort graduating 30 leaders and creating a statewide rural network .
+
+#### University and Industry Connections
+
+Universities throughout the region play an essential role in economic development through research, workforce training, and commercialization. The University of Virginia's College at Wise, Virginia Tech, and the region's community colleges all contribute to economic development efforts.
+
+The Lab-to-Launch initiative, supported by Virginia's six R1 research universities—George Mason University, Old Dominion University, the University of Virginia, Virginia Commonwealth University, Virginia Tech, and William & Mary—represents a significant commitment to university-industry collaboration . The initiative aims to double the number of startups that spin out annually from Virginia's research universities and propel technology breakthroughs into the marketplace .
+
+The Virginia Innovation Partnership Corporation has been a catalyst for university-industry connections. VIPC's Virginia Invests program partners with venture capital funds to invest in Virginia startups. Veteran Ventures Capital, a VIPC Virginia Invests fund partner dedicated to investing in veteran-led tech startups, relocated its headquarters to Virginia in recent years .
+
+#### Community Organizations and Employers
+
+Local community organizations and employers are essential partners in economic development. The Appalachian Regional Commission's strengths assessment for the region identified "tradition of regional cooperation and progressive local elected leadership" and "excellent LDDs" as strengths . The Commission also noted the presence of "strong, well-respected two-year and four-year colleges" and a "collaborative and committed healthcare community" .
+
+The POWER Initiative grants demonstrate the importance of local partnerships. The New River/Mount Rogers Workforce Development Area Consortium Board project involves partnerships with Eagles Nest Regeneration and Ballad Health to serve workers in recovery and businesses . The LENOWISCO Planning District Commission's broadband feasibility study involves convening stakeholders across a 13-county region of Kentucky, Tennessee, and Virginia .
+
+The Virginia Public-Private Education Facilities and Infrastructure Act of 2002 (PPEA) provides the legal framework for these partnerships. The Act recognizes that "there is a public need for timely acquisition, design, construction, improvement, renovation, expansion, equipping, maintenance, operation, implementation, or installation of education facilities, technology infrastructure and other public infrastructure" and that "there are inadequate resources to develop new education facilities...for the benefit of citizens of the Commonwealth" . The Act encourages private entities to develop or operate qualifying projects, serving the public purpose of facilitating the timely development or operation of such projects .
+
+For economic advisors, the lesson is clear: effective economic development requires building and sustaining partnerships across sectors. Advisors should help communities identify potential partners, develop collaborative strategies, and leverage resources through partnership models like GO Virginia and the POWER Initiative.
+
+## CHAPTER THREE: ADVICE FOR ECONOMIC ADVISORS (Continued)
+
+---
+
+### Measuring Impact and Adjusting Strategy
+
+#### Number of Businesses Assisted
+
+Measuring the number of businesses assisted is a foundational metric for evaluating economic development programs. This metric captures the reach of programs and provides a baseline for understanding their impact on the regional economy. In the Crooked Road corridor, the Virginia Coalfield Economic Development Authority (VCEDA) has demonstrated how systematic tracking of business assistance can document program effectiveness and guide future investments.
+
+Since the creation of its Seed Capital Matching Fund in 2017, VCEDA has approved funding for 230 businesses, projected to create a total of 1,714 full- and part-time jobs within five years. These businesses span diverse sectors, including manufacturing, alternative energy, information technology, construction trades, and tourism. The program's success in reaching entrepreneurs across the region is reflected in the 26 new business start-ups supported by grants in 2025 alone.
+
+The POWER Initiative of the Appalachian Regional Commission has demonstrated the value of tracking businesses assisted across a broader geographic scope. Since 2015, ARC has funded 564 projects under the POWER Initiative, empowering Appalachian communities to expand or create new economic opportunities. These projects have supported businesses across 365 Appalachian counties, with collective investments projected to have created or retained nearly 54,000 jobs. The sheer scale of this assistance reflects the program's reach and the importance of systematic measurement.
+
+For economic advisors, tracking the number of businesses assisted is not merely an administrative task—it is essential for demonstrating program effectiveness, securing continued funding, and identifying which types of businesses and sectors are being reached. The Virginia Rural Center's Opportunity Dashboard, launched in 2025, provides a tool for communities to track business assistance and other economic indicators, featuring interactive asset maps that highlight infrastructure and community resources. As the Center's report notes, the dashboard "brings together critical data and resources in one place, giving leaders the insights they need to plan for the future".
+
+#### Jobs Created
+
+Jobs created is perhaps the most visible and politically significant metric of economic development success. When businesses open or expand, jobs follow—and those jobs provide income, tax revenue, and economic stability for communities. Measuring jobs created requires careful tracking of both new positions and retained positions, distinguishing between full-time and part-time employment.
+
+VCEDA's 2025 annual report provides a model for how this measurement can be conducted systematically. In 2025, the organization approved 59 loans and grants totaling $18,759,753 in new funding for projects projected to help create and retain 584 full-time and 124 part-time jobs. This represents one of the highest funding years in VCEDA's history. The report also documents that since the Seed Capital program began in 2017, total investment by supported businesses in a five-year period is projected to be $14 million.
+
+The POWER Initiative evaluation has documented even larger-scale job creation. Since 2015, POWER investments are projected to have created or retained nearly 54,000 jobs and prepared nearly 170,000 workers and students for new opportunities. The evaluation found that grantees with closed projects have already exceeded many cumulative targets, even though grantees have up to three years after project close to achieve their full targets.
+
+The importance of distinguishing between full-time and part-time employment is reflected in the data. VCEDA tracks both categories separately, with the 2025 projects projected to create 584 full-time and 124 part-time jobs. This distinction matters for understanding the quality of employment being created and for assessing the economic impact on families and communities.
+
+For economic advisors, tracking jobs created requires establishing clear counting rules, distinguishing new from retained jobs, and ensuring that jobs are counted only when they actually materialize. The VCEDA model—tracking both announced and closed projects, with projections updated as projects progress—provides a practical approach.
+
+#### Investment Generated
+
+Investment generated—both public and private—is a key metric for understanding the economic impact of development programs. When public dollars leverage private investment, the return on taxpayer investment can be substantial. Tracking investment requires documenting both public funds disbursed and private capital attracted.
+
+The Appalachian Regional Commission has demonstrated the power of leverage through the POWER Initiative, with investments attracting $110 million in leveraged private investment, as well as a match of $81.5 million in public and private funds. This leverage ratio—where public investment attracts additional private and public resources—is a key indicator of program effectiveness.
+
+VCEDA's 2025 projects illustrate a similar leverage dynamic, with 59 loans and grants totaling $18.8 million projected to generate $180.2 million in private investment. This means that each dollar of VCEDA funding is projected to attract approximately $9.60 in private investment—a substantial return on public investment. Since VCEDA was formed in 1988, the region has seen the creation of tens of thousands of jobs, billions in private investment, the economic diversity index of the region has improved by more than 250 percent, and the region's unemployment rate has been cut by at least half.
+
+The seed capital program's impact is particularly notable. A 2021 study conducted by Virginia Tech researchers found that VCEDA's first $1 million in local seed capital funding generated $34.2 million in economic impact, delivering $9.4 million in wages. This documented return on investment provides powerful evidence for continued funding and program expansion.
+
+For economic advisors, tracking investment generated requires documenting both public funding sources (including federal, state, and local) and private investment. The Virginia Business Ready Sites Program provides a model, with more than 10,000 jobs announced on sites that have benefited from the program.
+
+#### Business Survival Rates
+
+Business survival rates—the percentage of businesses that remain operating over time—provide insight into the quality and sustainability of businesses being created. High survival rates suggest that programs are supporting viable businesses; low survival rates may indicate that more support is needed or that businesses are being launched prematurely.
+
+The Seed Capital Matching Fund program has achieved remarkable survival rates. More than 90 percent of the businesses survive their first two years, well above the national rate. This high survival rate reflects the program's structure, which requires applicants to work with Small Business Development Centers at Mountain Empire and Southwest Virginia community colleges to develop business plans, conduct market research, and identify matching funds.
+
+The POWER Initiative evaluation has also documented business survival through qualitative methods. Through a process called "most significant change" (MSC), evaluators solicited stories of change from POWER grantees and partners, with 72 stories submitted representing 44 unique projects. These stories documented business outcomes including helping businesses increase revenue or decrease costs and improving organizational capacity.
+
+For economic advisors, tracking business survival rates requires establishing a baseline and monitoring businesses over time. The VCEDA model of requiring business planning and market research before funding likely contributes to the high survival rates observed. Advisors should consider similar requirements when designing business support programs.
+
+#### Revenue Growth
+
+Revenue growth is a key indicator of business health and economic impact. When businesses increase revenue, they generate more tax revenue, can hire more employees, and contribute more to the local economy. Tracking revenue growth requires collecting financial data from businesses over time.
+
+The POWER Initiative evaluation documented revenue growth through stories from grantees. Businesses that received POWER support reported increasing revenue or decreasing costs, improving their ability to meet the needs of employers in the community, and building organizational skill to ensure effectiveness and resilience. These qualitative findings complement the quantitative metrics tracked by the program.
+
+The West Virginia Community Development Hub's community coaching program provides another model for tracking revenue growth. The Hub, celebrating 15 years of operation, helps communities locate and obtain local, regional, and federal funding resources for various projects. The evaluation of this program, conducted through interviews, story maps, interactive GIS maps, and site visits, documents the revenue impacts of the Hub's work.
+
+For economic advisors, tracking revenue growth requires establishing systems for collecting financial data from businesses in a consistent and reliable manner. Challenges include privacy concerns, the administrative burden on businesses, and the difficulty of attributing revenue growth to specific programs rather than market conditions.
+
+#### Participant Satisfaction
+
+Participant satisfaction provides insight into whether programs are meeting the needs of the businesses and communities they serve. High satisfaction suggests that programs are well-designed and effectively delivered; low satisfaction may indicate that improvements are needed.
+
+The POWER Initiative's participatory evaluation approach demonstrates how participant satisfaction can be integrated into program assessment. Through the "most significant change" (MSC) process, stakeholders submitted stories of change that were reviewed and selected by fellow grantees and ARC staff. This participatory approach ensures that the perspectives of program participants inform the evaluation, providing qualitative evidence of satisfaction and impact.
+
+The Appalachian Regional Commission has also used surveys and interviews to understand the successes and challenges POWER grantees have experienced. This feedback has been used to identify technical assistance needs and improve program implementation.
+
+For economic advisors, measuring participant satisfaction requires establishing regular feedback mechanisms—surveys, interviews, focus groups—that capture both quantitative ratings and qualitative insights. The University of Virginia's work in the region provides a model, with students contributing 17,000 hours of pro bono support to rural economic development efforts and helping communities secure more than $22 million in revenue.
+
+#### Continuous Improvement
+
+Continuous improvement—the process of using measurement data to refine and improve programs—is essential for effective economic development. Programs that are static and unchanging are unlikely to meet the evolving needs of communities and businesses. The economic development organizations that have achieved the greatest impact are those that have built learning and adaptation into their operations.
+
+The POWER Initiative's third-party evaluation exemplifies how continuous improvement can be built into program design. ARC secured Chamberlin/Dunn as a third-party evaluator beginning in Fiscal Year 2019 to understand the successes, challenges, and lessons learned through implementation. This evaluation includes both quantitative tracking of outputs and outcomes and qualitative collection of stories of change. The evaluation findings are used to inform program refinement and technical assistance.
+
+VCEDA's annual report demonstrates continuous improvement through the evolution of its programs. Since the Seed Capital Matching Fund program was created in 2017, it has expanded and refined its approach, with 230 businesses now approved for match funding. The requirement that applicants work with Small Business Development Centers to develop business plans has been maintained and strengthened, reflecting learning about what contributes to business success.
+
+The Start Small Campbell Grant program provides another model for continuous improvement. The program, which offers grants to small businesses, has tracked outcomes and lessons learned, with program staff noting that "thinking critically about the 8-10 prompts we ask for, such as seeing how you compare with your competitors, the qualities of your team that will bring success, even pricing of goods and services is just a good idea anyway". The program has evolved based on this learning, with workshop registration numbers from Campbell County businesses more than doubling in the first year the grant was offered.
+
+The Virginia Rural Center's Opportunity Dashboard reflects a commitment to continuous improvement through data-driven decision-making. The dashboard provides comprehensive insights into demographics, housing, education, business, and health, with interactive asset maps and a Rural Resource Index for identifying funding opportunities. By making data accessible and actionable, the dashboard enables communities to track progress and adjust strategies over time.
+
+For economic advisors, continuous improvement requires establishing feedback loops: tracking outcomes, collecting stakeholder input, analyzing results, making adjustments, and tracking the effects of those adjustments. This requires patience and a willingness to acknowledge that programs may need to change based on what is learned.
+
+---
+
+### Long-Term Commitment
+
+#### Understanding That Economic Development Takes Time
+
+Economic development in rural communities is a long-term endeavor. The challenges that communities face—population decline, limited infrastructure, educational deficits—are the product of decades of disinvestment and structural change. The solutions to these challenges will also take decades to implement. Understanding this timeline is essential for economic advisors, funders, and community leaders.
+
+The lessons from the Appalachian Regional Commission's experience are instructive. Since its creation in 1965, ARC has worked to improve economic conditions in Appalachia. While the region as a whole has made progress—the poverty rate in Appalachia is only fifty percent of what it was in 1965—many rural counties in central Appalachia have not followed suit. In 1990, the poverty rate in rural counties in central Appalachia was still almost twenty-seven percent. This persistence of poverty despite decades of investment reflects the depth of the challenges facing the region.
+
+The VCEDA experience demonstrates the timeline for meaningful economic transformation. Formed by the Virginia General Assembly in 1988, VCEDA has worked for more than three decades to enhance and diversify the economy of the seven-county, one-city coalfield region. During this time, the region has seen the creation of tens of thousands of jobs, billions in private investment, the economic diversity index of the region improved by more than 250 percent, and the region's unemployment rate cut by at least half. These results were not achieved quickly—they required decades of sustained effort.
+
+Research on the energy transition in coal country underscores the challenge. A study published in the Journal of Financial Economics found that between 2011 and 2016, coal mining employment declined by over 50 percent in Appalachia, producing sharp earnings and employment losses in coal-dependent communities. The study found "no statistically detectable change in postsecondary awards, enrollment, or institutional finances" in response to the coal shock, indicating that distressed regions affected by the transition away from legacy energy sectors face significant challenges in adapting to structural change. This finding suggests that without expanded educational investments, the adjustment process may be slow and painful.
+
+The persistence of challenges despite investment does not mean that investment is futile. Rather, it reflects the complexity of the challenges facing the region—and the need for sustained, long-term commitment.
+
+#### Patience, Persistence, and Resilience
+
+Patience, persistence, and resilience are essential qualities for those engaged in rural economic development. The work is difficult, the progress is slow, and the setbacks are frequent. Without patience, economic developers may abandon strategies before they have time to work. Without persistence, they may not overcome the obstacles that inevitably arise. Without resilience, they may not recover from the disappointments that are part of any long-term endeavor.
+
+The experience of Welch, West Virginia, offers a powerful example of what patience and persistence can achieve. Welch, located in McDowell County, is the eighth poorest county in the nation, with unemployment topping 10 percent and 40 percent of the population living below the poverty line. James Madison University has approached the challenge of revitalizing Welch with a commitment to sustainability, applying a long-term approach that is changing the paradigm of volunteerism and pursuing "a sustainable, permanent, transformative relationship that produces long-term civic health in the community instead of a 'get in, do a job and get out' philosophy".
+
+The university's commitment has been deep and enduring. Since the initial trip to Welch, efforts have continued for years and are planned to continue for at least another three to five years. The program includes practicum experiences for students, collections of books for Welch schools, renovation of housing, restoration of apartments following a fire, and plans for student teachers to work in Welch schools. One student volunteer reflected the patience required: "Fifty volunteers can come in and rebuild a building, but what about the people that live in the building? Sustained efforts have a positive domino effect".
+
+The NationSwell discussion on rural investment provides additional insights into the patience required. As participants noted, rural communities often face persistent gaps in philanthropic investment, infrastructure, and long-term capital, even as they are critical to the nation's economic, cultural, and civic future. Effective investment requires treating rural communities not simply as "hard-to-reach places" but as "distinct cultural ecosystems with their own histories, norms, and relationship structures".
+
+Participants emphasized that success in rural communities often shows up "more meaningfully as share of need met, not total number served" because "a smaller absolute number can represent a far deeper level of transformation". This perspective challenges the traditional philanthropic metrics that privilege large urban markets, recognizing that impact in rural communities is measured differently.
+
+#### Persevering Through Setbacks and Disappointments
+
+Setbacks and disappointments are inevitable in rural economic development. Businesses that were expected to create jobs may locate elsewhere. Grants that were anticipated may not materialize. Programs that were designed carefully may not achieve their intended outcomes. Persevering through these disappointments—learning from them, adapting, and continuing to work—is essential for long-term success.
+
+The response of the Appalachian Regional Commission to the POWER Initiative evaluation reflects this approach. The evaluation was designed to help ARC and its stakeholders "learn from program implementation successes and challenges; identify technical assistance needs; and report on the qualitative impact of investments made, to date, with POWER funds". This learning orientation acknowledges that some aspects of programs will not work as intended—and that the goal is to learn and adapt.
+
+The persistence of challenges in the Virginia coalfields despite decades of effort reflects the need for continued perseverance. Even after decades of work by VCEDA and its partners, the region still faces significant economic challenges. In 2025, while VCEDA projects created 584 full-time and 124 part-time jobs, the region's population continued to decline, and poverty rates remained elevated. These ongoing challenges require continued effort.
+
+The NationSwell participants emphasized that "rural communities of color sit at the sharpest edge of underinvestment" and that "any serious conversation about equitable place-based investment must confront that layered exclusion directly". This recognition of persistent challenges—even as progress is made—is essential for perseverance.
+
+The West Virginia Community Development Hub's experience provides a model for perseverance. The Hub, now celebrating 15 years of operation, is the only statewide community economic development organization in West Virginia. Its purpose is to help communities locate and obtain local, regional, and federal funding resources for various projects. During the past few months, countless organizations have seen financial cuts from the federal government, especially towards community development programming. Yet the Hub continues its work, building on its experience and adapting to changed circumstances.
+
+For economic advisors, perseverance requires a clear-eyed understanding of the challenges, a commitment to the long-term, and the resilience to continue working even when progress is slow and setbacks are frequent. It also requires building relationships and networks that can sustain the work through difficult periods. As the NationSwell participants noted, "partner with rural communities as 'test kitchens,' but also fund them beyond the pilot"—recognizing that sustainable change requires long-term support, not just short-term experimentation.
+
+The ultimate measure of success in rural economic development is not whether every program works perfectly or every goal is achieved. It is whether, over time, communities become more resilient, more prosperous, and more hopeful. This requires patience, persistence, and resilience—and a commitment to persevering through setbacks and disappointments.
+
+# CHAPTER FOUR: STRATEGIC GROWTH OF EXISTING CORPORATIONS
+
+---
+
+## Manufacturing Sector Modernization
+
+The manufacturing sector of the Crooked Road and U.S. Route 23 corridor represents one of the region's most significant economic assets. For generations, manufacturing facilities throughout Southwest Virginia have provided stable employment, generated tax revenue, and contributed to the economic vitality of communities. The skills developed through decades of manufacturing work—precision, safety awareness, quality orientation, and mechanical aptitude—remain valuable assets that can support a modernized industrial base. However, the sector faces substantial challenges: aging equipment, global competition, workforce transitions, and the need to adopt new technologies. Strategic modernization of existing manufacturing capabilities offers the most direct path to job creation and economic growth.
+
+### Metal Fabrication
+
+Metal fabrication has been a cornerstone of the region's manufacturing sector for decades. Companies throughout the corridor produce fabricated metal products including structural steel, tanks, specialized equipment, and custom components. These businesses have developed skilled workforces, established supply chains, and cultivated customer relationships that provide a foundation for growth. The industry's presence across multiple communities—from Bristol to Norton—creates opportunities for regional coordination and supply chain development.
+
+The modernization of metal fabrication involves the integration of computer numerical control (CNC) equipment, robotic welding systems, automated material handling, and digital design tools. These technologies improve precision, reduce waste, and increase throughput. For economic advisors, supporting metal fabrication modernization means helping companies identify appropriate technologies, access financing for equipment upgrades, and train workers in new skills. The Virginia Coalfield Economic Development Authority's loan programs, combined with state workforce development initiatives, can support this transition.
+
+### Telecommunications Equipment
+
+The region has historically produced telecommunications infrastructure components, including equipment for telephone networks, fiber optic systems, and wireless communications. This industry has benefited from the region's skilled workforce and established manufacturing infrastructure. The expansion of broadband networks—both regionally and nationally—creates significant opportunities for telecommunications equipment manufacturers.
+
+Modernization in this sector involves the adoption of advanced manufacturing technologies, including automated assembly, precision testing, and quality management systems. The transition to 5G and fiber optic networks requires components that meet exacting specifications, creating opportunities for manufacturers that can achieve high quality standards. Economic advisors should help telecommunications equipment manufacturers connect with broadband expansion projects and access the technology investments needed to remain competitive.
+
+### Utility Structures
+
+Companies in the region produce poles, towers, and components for electrical and telecommunications utilities. This industry has been a stable source of employment, with demand driven by infrastructure investment and grid modernization. The growing emphasis on renewable energy, grid resilience, and broadband expansion creates additional demand for utility structures.
+
+Modernization opportunities include the adoption of automated fabrication, advanced materials, and design optimization tools. The industry's connection to infrastructure investment makes it well-positioned for growth, provided companies can maintain competitiveness through technology adoption and workforce development.
+
+### Cell Tower Fabrication
+
+Cell tower fabrication has emerged as a specialized manufacturing capability in the region. Companies produce towers and components for telecommunications infrastructure, serving markets throughout the eastern United States. The expansion of 5G networks and rural broadband creates significant demand for cell tower components.
+
+Modernization involves the adoption of robotic welding, automated fabrication, and quality management systems. The industry's connection to telecommunications infrastructure investment provides growth opportunities for companies that can maintain quality and competitiveness.
+
+### Heavy Equipment
+
+Manufacturers in the region produce equipment for construction, mining, and agriculture. These products require skilled fabrication, assembly, and testing. The industry has been affected by the decline of coal mining but also sees opportunities in infrastructure investment and renewable energy development.
+
+Modernization includes the adoption of advanced manufacturing technologies, including automated fabrication, robotic assembly, and digital design. Economic advisors should help heavy equipment manufacturers diversify their customer base and invest in the technologies needed to compete in new markets.
+
+### Precision Machining
+
+Precision machining companies produce components for various industries, including aerospace, defense, medical devices, and automotive. These businesses require skilled workers, advanced equipment, and rigorous quality management. The industry offers opportunities for higher-value manufacturing that can support employment growth.
+
+Modernization involves the adoption of multi-axis machining, automated inspection, and digital manufacturing tools. The industry's connection to high-value markets creates opportunities for companies that can achieve the quality standards required by customers. Economic advisors should help precision machining companies access training, technology, and market connections.
+
+---
+
+## Strategies for Manufacturing Growth
+
+### Modernization Assistance: Robotics, Automation, Digital Manufacturing
+
+The modernization of manufacturing facilities requires investment in new technologies and workforce training. Robotics can automate repetitive tasks, improve precision, and reduce injury risks. Automation systems can integrate production processes, improve quality control, and increase throughput. Digital manufacturing tools—including CAD/CAM software, simulation, and production management systems—can improve design, planning, and operations.
+
+The integration of lowL and related technologies into manufacturing processes offers significant opportunities. As demonstrated in the Algorithmic Movement framework, embedded systems and robotics can be programmed using modern systems languages that provide both safety and performance. The lowL compiler's support for inline assembly, hardware builtins, and SIMD operations makes it suitable for industrial robotics applications where deterministic performance is essential.
+
+Recent research has shown that general-purpose large language models can support the modification of industrial robot programs using domain-specific languages like ABB's RAPID. In a study involving an SME, a midsized LLM (Llama 3.1 70B) achieved near-perfect accuracy (approximately 99%) on low-complexity tasks such as argument modification and high accuracy (approximately 91%) on moderately complex tasks like adding offset instructions, provided it was given multiple attempts. This suggests that AI-assisted robotic programming could be accessible to SMEs without expensive retraining, using prompt engineering alone.
+
+The R2C (Room to Chessboard) framework demonstrates how large language models can be enabled to function as low-level action planners by mapping environmental states onto grid-based representations. This allows LLMs to generate precise low-level coordinates and guide robots in a manner akin to playing chess, creating a unified "brain-body" system capable of handling complex instructions while producing specific actions. Such frameworks could be adapted to manufacturing environments where robots must navigate and manipulate objects in dynamically changing workspaces.
+
+Economic advisors should help manufacturers access technology assessment resources, financing for equipment upgrades, and workforce training programs. The Virginia Coalfield Economic Development Authority's loan programs, combined with state and federal workforce development initiatives, can support modernization efforts. The Virginia Talent Accelerator Program, ranked the No. 1 Customized Workforce Training Program in the U.S., provides training support for companies investing in the region.
+
+### Product Development Support for Emerging Markets
+
+Manufacturers that can develop new products for emerging markets are better positioned for long-term growth. Emerging market opportunities include renewable energy components (solar mounting systems, wind turbine components, energy storage equipment), electric vehicle infrastructure (charging stations, battery components), and broadband equipment (fiber optic components, wireless infrastructure).
+
+The region's existing manufacturing capabilities—metal fabrication, precision machining, and assembly—can be applied to these emerging markets. Manufacturers that can adapt their capabilities to meet new market demands can achieve growth without requiring entirely new facilities or workforces.
+
+Economic advisors should help manufacturers identify emerging market opportunities, access product development resources, and connect with potential customers. The Virginia Innovation Partnership Corporation (VIPC) supports technology commercialization and product development. University partnerships, including Virginia Tech and the University of Virginia's College at Wise, can provide research and development support.
+
+### Supply Chain Development with Regional Suppliers
+
+Developing regional supply chains can reduce costs, improve reliability, and create new business opportunities. Manufacturers that source components and materials from regional suppliers can reduce transportation costs, improve response times, and strengthen the regional economy. Regional suppliers benefit from stable demand and reduced marketing costs.
+
+Supply chain development requires identifying gaps in the regional supply chain, connecting manufacturers with potential suppliers, and helping suppliers develop the capabilities needed to meet manufacturer requirements. The Virginia Coalfield Economic Development Authority's business development programs can support supply chain development through networking events, supplier directories, and technical assistance.
+
+### Workforce Development and Training Programs
+
+Manufacturing workforce development is essential for industry growth. Workers need skills in robotics, automation, digital manufacturing, and quality management. Training programs must address both technical skills and soft skills such as problem-solving, teamwork, and communication.
+
+Industrial control systems use domain-specific languages (DSLs) that are tightly coupled to the automation domain. IEC 61131-3 standard languages are used for PLC programming, while robot programming languages like RAPID (ABB) and KRL (KUKA) are used for industrial robot programming. These languages are designed considering the unique characteristics of the automation domain, and they facilitate operations that need to be performed by manufacturers. Community colleges throughout the region offer manufacturing training programs that can incorporate instruction in these domain-specific languages where relevant equipment is available.
+
+Economic advisors should help manufacturers connect with training resources, develop apprenticeship programs, and access workforce development funding. The Virginia Talent Accelerator Program provides customized training for new and expanding companies. The Appalachian Regional Commission's POWER Initiative supports workforce development projects that address specific regional needs.
+
+### Export Assistance for National and International Markets
+
+Exporting allows manufacturers to grow beyond local markets, increasing revenue and employment. However, many manufacturers lack the knowledge and resources needed to enter export markets. Export assistance programs can help manufacturers identify market opportunities, navigate regulations, and develop export strategies.
+
+The Virginia Economic Development Partnership (VEDP) provides export assistance through its international trade division. Services include market research, trade missions, and export training. The U.S. Department of Commerce's International Trade Administration provides similar services through its network of export assistance centers.
+
+Economic advisors should help manufacturers access export assistance resources and develop export strategies. The region's location within a day's drive of major population centers and its access to rail and highway transportation provide advantages for exporters.
+
+### Succession Planning for Family-Owned Businesses
+
+Many manufacturing businesses in the region are family-owned, and succession planning is essential for continuity. Without adequate planning, businesses may close when owners retire, eliminating jobs and economic activity. Succession planning involves identifying successors, transferring ownership, and ensuring business continuity.
+
+Economic advisors should help business owners access succession planning resources, including legal and financial advisory services. The Virginia Small Business Development Center network provides business counseling that can support succession planning. The Coalfield Development Corporation's model of incubating new businesses and supporting workforce transition offers lessons for succession planning.
+
+---
+
+## Leveraging Robotics and AI for Existing Corporations
+
+### The Role of Low-Level Action Planning
+
+Research has demonstrated that while large language models excel at high-level planning (task decomposition), they face challenges in directly controlling robots by generating precise low-level actions. This limitation arises from LLMs' strength in high-level conceptual understanding but their inability to handle spatial perception effectively. The Room to Chessboard (R2C) framework addresses this by enabling LLMs to not only comprehend complex instructions but also produce actionable, low-level plans through a novel semantic representation that maps environmental states onto a grid-based chessboard.
+
+For manufacturing companies in the region, this means that AI-driven robotic control could become more accessible. Rather than requiring specialized robotics engineers to program every movement, plant managers could potentially issue natural language instructions that are translated into precise actions through frameworks like R2C. The ability to use LLMs as both high-level and low-level planners reduces the need for expensive specialized training and enables quicker adaptation to changing production requirements.
+
+### Robotics Integration Challenges in Manufacturing
+
+Industrial control systems are generally safety critical, event-driven, physically distributed, and control heterogeneous equipment. To be useful in a real industrial environment, a control system must be reliable, efficient, robust, and simple. Efficiency is needed to ensure that the controller is not overtaken by the system it controls. Robustness allows maximal control even in case of hardware failure. Simplicity is of main importance to allow strong monitoring and easy maintenance or upgrades.
+
+Domain-specific languages are preferred over general-purpose programming languages for automation because of the uniqueness of the requirements. Different manufacturers use different languages—ABB industrial robots use RAPID, KUKA uses KRL, and PLCs use IEC 61131-3 standard languages. While some functionalities supported by robot programming languages are the same, they differ in syntax. For economic advisors, this means that training programs and technology adoption strategies must account for the specific equipment manufacturers present in the region.
+
+### Robotics Research and Development Opportunities
+
+Recent research challenges the intuitive notion that robotic locomotion requires high-frequency control. Studies have demonstrated robust and dynamic robot locomotion with learned motion controllers executing at as low as 8 Hz, with robots achieving high heading velocities of 1.5 m/s over uneven terrain and resisting external perturbations. Low-frequency policies were found to be less sensitive to actuation latencies and variations in system dynamics, to the extent that successful sim-to-real transfer was possible even without dynamics randomization or actuation modeling.
+
+This finding is particularly significant for the Crooked Road corridor because it suggests that robotics adoption may not require the most expensive, high-frequency control systems. Lower-frequency controllers, which can be implemented on simpler hardware, may be sufficient for many manufacturing applications. This reduces the barrier to entry for smaller manufacturers and aligns with the region's existing workforce capabilities.
+
+The development of generalist robot policies that can generalize across diverse tasks and environments is an active area of research. Frameworks like RT-H (Action Hierarchies using Language Motion) leverage low-level language abstractions to stitch together diverse sources of data, while intermediate representations such as bounding boxes, language-conditioned motions, and trajectory traces help bridge the gap between vision-language models and physical execution.
+
+### Low-Cost Space Technology and Automation
+
+Innovations in low-cost, autonomous systems are creating new possibilities that could benefit the region's manufacturing sector. Advances in electronics and computation have enabled smaller and cheaper automated systems for applications ranging from manufacturing to logistics to space exploration. Technologies developed for low-cost spacecraft—including attitude-control and formation-flying capabilities without relying on expensive conventional sensors or actuators—could inform the development of cost-effective automation solutions for the corridor's manufacturers.
+
+---
+
+## Agricultural Business Development
+
+### Beef Cattle Operations
+
+Beef cattle operations have been a foundation of the regional economy for generations. Pasture-based production is well-suited to the region's climate and terrain. Improving genetics, nutrition, and grazing management can increase productivity and profitability. Marketing branded beef products can capture additional value and create stable demand.
+
+Modernization opportunities include precision livestock management (sensors, data analytics), rotational grazing systems, and value-added processing (custom meat processing, branded products). The growing demand for locally sourced, grass-fed beef creates market opportunities for producers who can meet quality standards.
+
+### Dairy Farms
+
+Dairy farms throughout the region produce milk for fluid consumption and processing. Specialty dairy products—including cheese, yogurt, and butter—command premium prices and can increase farm income. Modern facilities improve productivity and animal welfare.
+
+Modernization opportunities include automated milking systems, precision feeding, and value-added processing. The growing demand for artisanal and locally produced dairy products creates market opportunities for producers who can achieve quality standards.
+
+### Poultry Production
+
+Poultry production provides income for many farms in the region. Broiler and egg production benefit from the region's climate and transportation access. Modern poultry facilities improve productivity and animal welfare. Value-added poultry products—including processed and branded products—can capture additional value.
+
+### Hay and Forage
+
+Hay and forage production supports livestock operations throughout the region. Improving hay quality and developing markets for premium hay can increase farm income. The growing demand for high-quality forage in equine and dairy markets creates opportunities.
+
+### Specialty Crops
+
+Specialty crops—including vegetables, berries, orchards, and vineyards—command premium prices in fresh and processed markets. The region's climate and soils are suited to crops that can be marketed as locally grown, organic, or specialty products. The growing demand for local and sustainable food creates market opportunities.
+
+---
+
+## Strategies for Agricultural Growth
+
+### Value-Added Processing
+
+Value-added processing—turning raw agricultural products into finished goods—captures more economic value within the region. Processing facilities can create jobs, support farm income, and strengthen the regional economy. Examples include meat processing, dairy processing, fruit and vegetable processing, grain milling, and specialty food production.
+
+The development of processing facilities requires investment in equipment, facilities, and workforce training. The USDA Value-Added Producer Grant program provides funding for feasibility studies and working capital. The Virginia Coalfield Economic Development Authority's loan programs can support processing facility development.
+
+### Market Development and Access
+
+Developing markets for regional agricultural products requires marketing, branding, and distribution. Local food systems, farmers markets, institutional purchasing, and direct-to-consumer sales can increase farm income. Branding that emphasizes local production and regional identity adds value.
+
+### Technology Adoption: Precision Agriculture
+
+Precision agriculture uses satellite navigation, soil sensors, drones, weather monitoring, and automated equipment to improve crop yields while reducing fuel, fertilizer, and water consumption. These technologies improve productivity and reduce costs. The integration of lowL and embedded systems can support precision agriculture applications, including automated irrigation, variable rate application, and equipment automation.
+
+### Conservation Practices
+
+Conservation practices protect soil, water, and wildlife while improving long-term productivity. Practices include no-till farming, cover cropping, rotational grazing, and buffer strips. Conservation improves soil health, reduces erosion, and protects water quality.
+
+### Diversification and Agritourism
+
+Diversification—adding new enterprises to farm operations—can spread risk and increase income. Agritourism—including farm visits, events, and educational activities—can attract visitors and generate income. Examples include farm stays, tours, workshops, and festivals.
+
+### Cooperative Purchasing and Marketing
+
+Cooperative purchasing and marketing can reduce costs and increase market power. Cooperatives allow farmers to purchase inputs at lower prices and market products more effectively. Examples include purchasing cooperatives, marketing cooperatives, and shared equipment.
+
+---
+
+## Timber and Forestry Business Development
+
+### Sustainable Forest Management
+
+Sustainable forest management maintains forest health and productivity over the long term. Practices include replanting, thinning, pest management, and soil conservation. Sustainable management ensures that forests continue to provide timber, wildlife habitat, water protection, and recreational opportunities.
+
+### Processing Expansion: Sawmills and Engineered Wood
+
+Expanding processing capacity—including sawmills, engineered wood products facilities, and specialty manufacturing—captures more economic value from regional forests. Processing creates jobs and supports timber markets. Engineered wood products—including cross-laminated timber and glue-laminated timber—create new market opportunities.
+
+### Technology Adoption: GIS and Inventory Management
+
+Geographic information systems (GIS) and inventory management software improve forest planning and resource management. GIS allows forest owners to map resources, plan harvests, and monitor conditions. Inventory management tracks timber volumes, species, and quality.
+
+### Market Development for Hardwood Products
+
+Developing markets for hardwood products—including furniture, flooring, cabinetry, and musical instruments—creates demand for regional timber and supports processing. The region's hardwoods are valued for their quality and characteristics. Musical instrument manufacturing, in particular, offers opportunities to connect forestry with the region's cultural heritage.
+
+### Carbon and Conservation Markets
+
+Carbon and conservation markets provide income for forest owners who maintain forests rather than harvesting. Carbon markets compensate forest owners for carbon sequestration. Conservation easements provide payment for protecting forests from development.
+
+---
+
+## Technology Company Support
+
+### Broadband Expansion and Connectivity
+
+Broadband expansion is essential for technology company growth. Access to reliable, high-speed internet is a prerequisite for most technology businesses. The expansion of broadband throughout the region—supported by state and federal programs—creates opportunities for technology companies.
+
+### Incubation and Acceleration Programs
+
+Incubation and acceleration programs provide workspace, shared services, and intensive support for technology businesses. These programs reduce barriers to technology business development and improve success rates. The region's community colleges and economic development organizations can support incubation and acceleration.
+
+### Talent Development and Workforce Training
+
+Technology businesses need workers with skills in software development, cybersecurity, artificial intelligence, and data analytics. Talent development programs must prepare workers for these careers. Community colleges and universities throughout the region offer technology training programs. The lowL compiler and AlgorithmicOS framework create opportunities for workforce training in systems programming and embedded systems development, particularly in robotics and industrial automation applications.
+
+### Innovation Centers and Research Partnerships
+
+Innovation centers and research partnerships support technology development and commercialization. The Virginia Innovation Partnership Corporation (VIPC) provides funding and support for technology commercialization. University partnerships—including Virginia Tech and the University of Virginia—provide research and development support.
+
+### Business Networks and Connections
+
+Technology businesses benefit from connections with peers, mentors, investors, and customers. Business networks and connections support learning, collaboration, and business development. The region's technology businesses can benefit from networking events, professional associations, and online communities.
+
+---
+
+## Tourism and Hospitality Business Development
+
+### Heritage Tourism Marketing
+
+Heritage tourism—travel focused on cultural and historical attractions—is a growing sector that aligns with the region's assets. The Crooked Road, heritage music venues, historic downtowns, and cultural events attract visitors interested in Appalachian heritage. Marketing heritage tourism requires branding, promotion, and visitor services.
+
+### Outdoor Recreation Facilities
+
+Outdoor recreation—including hiking, biking, fishing, hunting, and wildlife viewing—attracts visitors and supports local economies. The region's forests, rivers, and trails provide recreational opportunities that can be developed for tourism. Investment in trails, parks, and facilities can attract visitors and support local businesses.
+
+### Music Festivals and Cultural Events
+
+Music festivals and cultural events attract visitors and generate economic activity. The region's musical heritage provides a foundation for festivals that draw visitors from throughout the region and beyond. Events such as the Bristol Rhythm and Roots festival and the Galax Old Fiddlers' Convention demonstrate the potential of music-based tourism.
+
+### Infrastructure Improvements
+
+Tourism infrastructure—including lodging, dining, and visitor services—is essential for attracting and accommodating visitors. Improving infrastructure can increase visitor spending and support tourism business development. Examples include hotels, restaurants, visitor centers, and interpretive facilities.
+
+### Workforce Training in Hospitality
+
+Hospitality workforce development is essential for tourism business growth. Workers need skills in customer service, food service, and management. Training programs can prepare workers for hospitality careers and improve service quality.
+
+---
+
+## Construction and Housing Development Support
+
+### Workforce Development for Construction Trades
+
+Construction trades workforce development is essential for housing and infrastructure development. Workers need skills in carpentry, electrical work, plumbing, and related trades. Training programs can prepare workers for construction careers and support housing development.
+
+Modernization opportunities include modular construction, panelized systems, 3D-printed housing, and cross-laminated timber. These innovative construction methods can reduce costs and improve quality. The integration of lowL and embedded systems in construction—including smart home systems and building automation—creates opportunities for workforce training in technology-enabled construction.
+
+### Innovation Adoption: Modular and Panelized Construction
+
+Modular and panelized construction can reduce costs and improve quality while addressing housing shortages. Manufacturing housing components in factories improves precision and reduces waste. The region's manufacturing capabilities can support modular construction production.
+
+### Permit Streamlining
+
+Streamlining permitting processes can reduce barriers to housing development. Efficient permitting encourages development and supports workforce growth. Local governments can reduce approval times and simplify application processes.
+
+### Financing Assistance for Housing Projects
+
+Access to financing is essential for housing development. Financing assistance can support workforce housing, senior housing, and mixed-use downtown redevelopment. The Virginia Housing Development Authority provides financing for affordable housing. The Virginia Coalfield Economic Development Authority provides loans for economic development projects.
+
+### Quality of Life Improvements
+
+Quality of life improvements—including good schools, recreational opportunities, and public services—attract residents and support housing development. Communities that invest in quality of life are more attractive to residents and businesses.
+
+---
+
+## Supply Chain Development
+
+### Supplier Mapping and Gap Identification
+
+Supplier mapping identifies gaps in the regional supply chain and opportunities for local suppliers. Understanding what businesses buy and where they buy it reveals opportunities for local suppliers. Supplier mapping can be done through surveys, interviews, and data analysis.
+
+### Supplier Development and Technical Assistance
+
+Supplier development helps local businesses become suppliers for regional companies. Technical assistance can help suppliers meet quality standards, improve operations, and develop new capabilities. Supplier development reduces costs and improves reliability for manufacturers.
+
+### Business Linkage Programs
+
+Business linkage programs connect businesses with potential suppliers. Events, directories, and online platforms facilitate connections between buyers and suppliers. Linkage programs reduce search costs and create business relationships.
+
+### Institutional Procurement Policies
+
+Institutional procurement policies that favor local suppliers can support regional business development. Schools, hospitals, and governments can purchase from local businesses, supporting the regional economy. Procurement policies can be designed to encourage local purchasing while maintaining quality and cost standards.
+
+### Shared Services and Collaborative Infrastructure
+
+Shared services and collaborative infrastructure reduce costs for multiple businesses. Examples include shared warehousing, logistics, maintenance, and administrative services. Shared services can support business development and improve efficiency.
+
+---
+
+This chapter has examined the strategic growth of existing corporations across multiple sectors: manufacturing, agriculture, timber, technology, tourism, and construction. Each sector offers opportunities for modernization, workforce development, and market expansion. The common thread across all sectors is the need for coordinated investment, strategic planning, and partnership across the public and private sectors. The region's existing businesses provide the foundation for economic growth, and supporting their expansion offers the most direct path to job creation and community vitality.
+
+# CHAPTER FIVE: STRATEGIC GROWTH OF THE FOOD INDUSTRY
+
+---
+
+The food industry of the Crooked Road and U.S. Route 23 corridor represents a convergence of the region's agricultural heritage and its potential for modern economic growth. The valleys, rolling pasturelands, and mountain farms that characterize Southwest Virginia have sustained agricultural production for generations, creating a knowledge base, workforce, and infrastructure that can support expanded production, value-added processing, and market development. The food industry is undergoing a fundamental transformation nationally, moving from an era of physical scale to an era of intelligence-led growth. As the global food system faces structural change driven by shifting consumer demands, supply chain pressures, and new technologies, companies that can connect manufacturing scale with data, artificial intelligence, and deep consumer insights will define the next decade's winners. This transformation creates significant opportunities for the Crooked Road corridor to leverage its agricultural assets, processing infrastructure, and emerging technology capabilities to build a competitive and resilient food industry .
+
+---
+
+## Agricultural Production
+
+### Beef Cattle: Expansion, Genetics, Rotational Grazing
+
+Beef cattle operations have been a foundation of the regional economy for generations. Pasture-based production is well-suited to the region's climate and terrain. In Wise County, the 2022 Census of Agriculture reported 617 head of cattle and calves with a sales value of $617,000, representing a significant portion of the county's agricultural economy. The region's cattle producers benefit from the Virginia Quality Assured Marketing Program, operated by the Abingdon Feeder Cattle Association, which has marketed over 1,300 tractor trailer loads of feeder calves since 2005, resulting in over $10.4 million in added value. The estimated added value per calf through the VQA Marketing Program is approximately $102.93.
+
+Expansion opportunities include improving genetics through selective breeding programs, implementing rotational grazing systems to improve pasture health and productivity, and adopting precision livestock management technologies. The Abingdon Feeder Cattle Association's New Beef Builder Initiative, a cost-share program serving producers across 12 Southwest Virginia counties, assists participants with the purchase of cattle handling and management equipment including chutes, scales, and alleys. These improvements ensure safe and humane handling while increasing efficiencies that result in increased revenues.
+
+**lowL, AI, and Robotics Integration:** Precision livestock management can be enhanced through lowL-powered embedded systems that monitor individual animal health, estrus cycles, and feeding behavior using sensors such as rumination collars, temperature boluses, and weight scales. AI models can analyze this data to predict calving dates, detect illness early, and optimize rotational grazing schedules based on pasture conditions. Automated herding and sorting systems using robotics can reduce labor requirements and improve animal welfare by enabling low-stress handling. The integration of autonomous ground vehicles for pasture monitoring and fence inspection can further enhance operational efficiency.
+
+### Dairy: Milk Production and Specialty Products
+
+Dairy production has been a significant agricultural activity in the region, with the potential for expanded processing and value-added products. The Duchess Dairy operation in Wythe County demonstrates the potential for dairy processing expansion in the region. For more than four generations, the Huffard family has raised registered Jersey cattle to produce milk on their dairy farms. In 2010, the family formed Duchess Dairy Products and began processing and bottling milk from their herds.
+
+Today, Duchess Dairy produces approximately 7,000 gallons of traditional and flavored milk per week, with products available in retail stores across Southern and Southwest Virginia, including large-chain grocers like Food City and Food Lion, independent grocery retailers, and specialty stores. In December 2024, the company announced an approximately $895,000 expansion to add a production line of churned butter alongside its current line of premium bottled milk. This expansion will increase operational efficiencies, increase production capacity, and meet growing consumer demand.
+
+**lowL, AI, and Robotics Integration:** Robotic milking systems (automated milking machines) represent a significant opportunity for dairy modernization in the region. These systems use lowL firmware for real-time control of milking cups, pulsation, and milk flow monitoring. AI analytics can predict milk yield, detect mastitis early through conductivity and somatic cell count analysis, and optimize feeding schedules based on individual cow production. Automated feeding systems using robotics with lowL control can deliver precise rations tailored to each animal's nutritional needs, improving milk production and reducing feed costs.
+
+### Poultry: Production and Branded Products
+
+Poultry production provides income for many farms in the region. While specific data for the Virginia corridor is limited, poultry production is a significant agricultural activity throughout Appalachia. West Virginia's top agricultural products include broiler chickens, with the state reporting 22,300 farms contributing 3.5 million acres to agricultural production.
+
+Expansion opportunities include modern poultry facilities that improve productivity and animal welfare, vertical integration with processing facilities, and branded poultry products that capture additional value. The growing demand for locally produced poultry creates market opportunities for producers who can meet quality standards.
+
+**lowL, AI, and Robotics Integration:** Automated environmental control systems (for temperature, lighting, and ventilation) are well-suited to lowL implementation, providing real-time monitoring and adjustment of poultry house conditions. AI-driven monitoring of bird behavior and vocalizations can detect disease outbreaks early and predict mortality risk. Robotic egg collection, cleaning, and packaging systems can improve efficiency and reduce labor requirements. Automated weighing and sorting systems can support selective breeding programs and optimize feed conversion.
+
+### Sheep and Goats: Meat, Milk, Fiber
+
+Sheep and goat production offers diversification opportunities for livestock farmers. In Wise County, the 2022 Census of Agriculture reported $47,000 in sales of sheep, goats, wool, mohair, and milk, ranking 51st among Virginia counties. These animals can graze on terrain unsuitable for cattle and produce meat, milk, and fiber that command premium prices in specialty markets.
+
+Expansion opportunities include improving genetics, implementing rotational grazing, and developing value-added products such as artisanal cheese, yogurt, and fiber products. The growing demand for lamb, goat meat, and specialty dairy products creates market opportunities.
+
+**lowL, AI, and Robotics Integration:** Automated weigh-crate systems with lowL control can support selective breeding programs by tracking individual animal performance and genetic traits. Machine vision and robotics can be applied to fiber sorting and grading, improving the efficiency of wool and mohair processing. AI analytics can optimize breeding programs by analyzing genetic data and production records to identify superior animals.
+
+### Hay and Forage: Production and Premium Markets
+
+Hay and forage production supports livestock operations throughout the region. In Wise County, hay production is the primary crop, with $916,000 in sales. The county's 2022 land use includes 3,513 acres of cropland, 4,589 acres of pastureland, and 6,629 acres of woodland, reflecting the importance of forage production for livestock operations.
+
+Improving hay quality and developing markets for premium hay can increase farm income. The growing demand for high-quality forage in equine and dairy markets creates opportunities.
+
+**lowL, AI, and Robotics Integration:** Sensor integration via lowL can be applied to automated baling and moisture testing, enabling real-time quality assessment during harvest. Robotics and AI can be used for autonomous mowing, raking, and baling systems, reducing labor requirements and improving harvest timing. AI-driven crop health monitoring using satellite and drone imagery can optimize harvest schedules and predict yield.
+
+### Corn and Grains: Feed and Specialty Markets
+
+Corn production supports livestock feed and specialty products. While production levels in the region are limited by topography and soil conditions, corn remains an important crop for livestock operations. Wise County's 1860 corn production was 115,925 bushels, and while production has declined, corn remains a component of the county's agricultural economy.
+
+Expansion opportunities include improving yields through precision agriculture and developing specialty grain markets.
+
+**lowL, AI, and Robotics Integration:** Autonomous harvesting systems using robotics and AI can improve efficiency and reduce labor requirements for grain production. lowL-based sensor networks can monitor grain bin temperature, moisture, and aeration, preventing spoilage and maintaining quality. AI-driven yield prediction and pest detection using drone imagery can support decision-making for planting and harvest timing.
+
+### Vegetables and Specialty Crops: Fresh and Processed Markets
+
+Vegetable and specialty crop production offers significant opportunities for the region. The Virginia Produce Company in Carroll County demonstrates the potential for vegetable processing and distribution in the region. The company has installed hydro coolers which significantly reduce cooling time and extend the shelf life of produce by an additional 5-7 days. This processing capacity enables Virginia Produce to serve additional region-based producers and expand its market reach.
+
+**lowL, AI, and Robotics Integration:** Automated harvesting for high-value crops can be implemented using robotics and computer vision. lowL systems can manage precision irrigation systems (drip and pivot control) based on soil moisture and weather data. AI is well-suited for crop health analysis via drone imagery (NDVI) and yield prediction, enabling targeted interventions for disease and nutrient management.
+
+### Medicinal Herbs: Ginseng, Goldenseal, Echinacea
+
+The medicinal herb industry represents one of the most promising opportunities for economic development in the Crooked Road corridor. Appalachia is globally recognized as a key supplier of non-timber forest products (NTFPs), with nearly half of the woodland medicinal species in the global nutraceutical market coming from the region, contributing to a multibillion-dollar industry. Species such as ginseng, slippery elm, and black cohosh are prominent understory sources of medicinal material. The herbal medicine market is projected to grow from $87 billion in 2024 to $580 billion by 2034.
+
+The Appalachian Harvest Herb Hub in Duffield provides a model for how the region can capture value from this growing market. Since 2017, the Herb Hub has been building guardrails for this backdoor economy, acting as a procurement and marketing service that helps farmers combine their forest and farm products to reach more buyers, while training them to grow and harvest more sustainably. The Hub provides expensive processing equipment and helps farmers combine their products to get more marketable amounts. Careful processing is important because herbal remedies are regulated as dietary supplements by the FDA, requiring that they cannot be adulterated. Since 2017, the Herb Hub has sold 2,880 pounds of medicinal herbs, with more than a third of those sales occurring in 2023 and 2024. The Wild Stewards Alliance, a certification program that began in 2022, has certified more than 100 people in Virginia, Tennessee, and Kentucky.
+
+**lowL, AI, and Robotics Integration:** Environmental monitoring for controlled environment agriculture (greenhouses and high tunnels) can be managed with lowL systems that track temperature, humidity, light, and soil conditions. Automated harvesting and processing systems, including drying, cutting, and sorting with robotics, can improve efficiency and product quality. AI can analyze soil and tissue samples to optimize fertilization and harvest timing, while machine vision can assess product quality and purity.
+
+### Mushrooms: Wild and Cultivated Specialty Production
+
+Mushroom production offers opportunities for the region's forested areas. Wild mushrooms command premium prices in specialty markets, and cultivated specialty mushrooms can be produced in controlled environments. The region's forests provide habitats for wild mushrooms, and climate-controlled facilities can support year-round production.
+
+**lowL, AI, and Robotics Integration:** Automated climate control (humidity, temperature, CO₂) for mushroom cultivation can be managed using lowL systems, ensuring optimal growing conditions. Robotics can be applied to harvesting in vertical farms, reducing labor costs and improving consistency. AI-driven disease and pest detection using visual monitoring can protect crops and maintain yields.
+
+### Honey and Maple Syrup: Branding and Marketing
+
+Honey and maple syrup production offer opportunities for value-added products that can be branded and marketed regionally. Wise County reported approximately 1000 maple taps being managed for commercial syrup production in 2019, and the county has 101 honey bee colonies. The growing demand for locally produced specialty foods creates market opportunities.
+
+**lowL, AI, and Robotics Integration:** Automated sap collection systems for maple syrup production can use lowL for precision flow monitoring and vacuum pump control. Beehive monitoring systems with lowL sensors can track temperature, humidity, and weight to optimize hive health and honey production. AI analytics can predict sap flow based on weather patterns and optimize harvest timing.
+
+### Hemp: Fiber, Seed, and Extract Production (Subject to Law)
+
+Hemp production offers opportunities for fiber, seed, and extract production, subject to applicable law. The growing markets for hemp products—including fiber for textiles and construction materials, seed for food products, and extracts for health products—create opportunities for farmers who can navigate the regulatory requirements.
+
+**lowL, AI, and Robotics Integration:** Automated harvesting and processing (decortication, separation) can be implemented using robotics and lowL control. AI is applicable for optimizing extraction processes (CO₂ or ethanol) and analyzing cannabinoid profiles, ensuring consistent product quality and regulatory compliance.
+
+---
+
+## Food Processing and Manufacturing
+
+Value-added processing—turning raw agricultural products into finished goods—represents one of the greatest opportunities for economic development in the food industry. Processing creates jobs, supports farm income, and retains economic value within the region. The development of processing facilities requires investment in equipment, facilities, and workforce training. As the national food industry shifts from an era of physical scale to an era of intelligence-led growth, the companies that best understand demand, personalize value, and predict consumer behavior will have competitive advantage .
+
+### Meat Processing: Slaughter, Cutting, Packaging, Specialty Products
+
+Meat processing capacity is a critical gap in the region's food system. A Tobacco Region Revitalization Commission application for the Blue Ridge Plateau Meat Processing Facility sought $2.5 million to develop a new USDA-inspected meat processing facility in Carroll County, with the project intended to serve 1,400 producers annually, each earning an additional $24,000 in annual sales revenue. While this specific project was not funded, it highlights the recognized need for increased processing capacity.
+
+The Shenandoah Valley Beef Initiative—a group of farmers, suppliers, veterinarians, and other beef industry operators located along the western edge of Virginia—received $46,500 from the USDA's Value-Added Producer Grant program to form a cooperative and explore opportunities associated with accessing local markets and schools. The group identified obstacles including access to slaughterhouses and processing facilities.
+
+**lowL, AI, and Robotics Integration:** Butchery and deboning robots with lowL control can improve processing efficiency, reduce waste, and enhance worker safety. AI can be used for automated quality grading (marbling scoring) and inspection systems that detect contaminants and ensure product quality. Robotics can be applied to sorting and packaging lines, reducing labor requirements and improving consistency.
+
+### Dairy Processing: Cheese, Yogurt, Fluid Milk
+
+Dairy processing offers significant opportunities for value-added production. The Duchess Dairy expansion in Wythe County demonstrates the potential for dairy processing growth. The company's expansion to add churned butter production alongside its existing line of premium bottled milk reflects growing consumer demand for dairy products. The $895,000 investment will increase production capacity and operational efficiencies.
+
+**lowL, AI, and Robotics Integration:** Automated vat control systems can be managed via lowL, ensuring precise temperature and timing for cheese, yogurt, and cultured dairy production. Robotics are suitable for palletizing and packaging operations. AI can be used for QC visual inspection of cheese and product consistency monitoring, detecting defects and ensuring product quality.
+
+### Fruit and Vegetable Processing: Canning, Freezing, Drying
+
+Fruit and vegetable processing facilities can add value to regional production. The Virginia Produce Company in Carroll County demonstrates how processing capacity can support regional producers. The company's hydro coolers extend the shelf life of produce by an additional 5-7 days.
+
+**lowL, AI, and Robotics Integration:** Optical sorting using AI vision systems can identify and remove defective produce based on color, size, and shape, while robotics handle the picking and placing for packaging. lowL is well-suited for continuous monitoring of drying and freezing tunnel temperatures, ensuring product quality and food safety.
+
+### Grain Milling: Flour, Feed, Specialty Grains
+
+Grain milling offers opportunities for value-added production. The region's corn and other grain production can support flour mills, feed mills, and specialty grain processing. Local flour and meal products appeal to consumers seeking locally produced foods.
+
+**lowL, AI, and Robotics Integration:** Automated mill control using lowL and AI can optimize roller gap adjustment and sifting efficiency, improving flour quality and yield. Robotics can be used for bagging and palletizing operations, reducing labor requirements.
+
+### Beverage Production: Cideries, Wineries, Distilleries, Breweries
+
+Beverage production—including cideries, wineries, distilleries, and breweries—uses regional agricultural products and supports agritourism. The region's Wise County has a commercial vineyard and winery, and the growing interest in craft beverages creates market opportunities.
+
+**lowL, AI, and Robotics Integration:** Automated fermentation monitoring using lowL sensors can track temperature, pH, and specific gravity, ensuring consistent product quality. Robotics can be applied to bottling, labeling, and packaging operations. AI can analyze consumer preferences and optimize recipes for craft beverages.
+
+### Baking and Prepared Foods: Commercial Bakeries, Kitchens
+
+Commercial bakeries and kitchens can produce prepared foods for retail and institutional markets. The growing demand for convenience foods creates opportunities for producers who can meet quality and safety standards.
+
+**lowL, AI, and Robotics Integration:** Automated mixing, proofing, and baking systems can be controlled with lowL for precision and consistency. Robotics can be used for product handling, sorting, and packaging. AI-driven recipe optimization can adapt formulations to ingredient availability and cost.
+
+### Specialty Foods: Artisanal Sauces, Condiments, Pickles, Preserves
+
+Specialty foods—including artisanal sauces, condiments, pickles, and preserves—can be produced from regional agricultural products and command premium prices. The West Virginia cottage food industry provides a model, with a 2019 bill allowing cottage food producers to open shops and sell at specialty retail outlets.
+
+**lowL, AI, and Robotics Integration:** Automated cooking and filling systems with lowL control can ensure consistency and food safety. Robotics can be applied to labeling and packaging. AI can analyze consumer trends to inform product development and marketing.
+
+---
+
+## Food Distribution and Logistics
+
+Efficient distribution connects producers with customers, enabling food businesses to reach markets beyond their local communities. The development of distribution infrastructure—including cold storage, transportation, and food hubs—can improve market access and reduce costs.
+
+### Cold Storage: Temperature-Controlled Warehousing
+
+Cold storage capacity is essential for fresh produce, dairy, and meat products. The Virginia Produce Company's hydro coolers demonstrate the importance of cooling capacity for extending shelf life and enabling market access.
+
+**lowL, AI, and Robotics Integration:** Automated warehouse management systems using lowL and robotics can handle pallet storage and retrieval. AI can optimize energy consumption in cold storage facilities based on external temperature and inventory levels.
+
+### Transportation: Trucking and Rail
+
+Transportation infrastructure connects producers with markets. The region's highway network—including U.S. Route 23 and U.S. Route 58—provides access to markets throughout the eastern United States. Rail infrastructure offers efficient movement of bulk commodities.
+
+**lowL, AI, and Robotics Integration:** AI-driven route optimization can reduce fuel consumption and improve delivery reliability. lowL-based telematics can monitor vehicle performance and cargo conditions in real time. Robotics can be applied to automated loading and unloading systems.
+
+### Food Hubs: Aggregation and Distribution Coordination
+
+Food hubs aggregate products from multiple producers and coordinate distribution, improving market access for small and medium-sized farms. The Appalachian Harvest Herb Hub provides a model for food hub development, acting as a procurement and marketing service that helps farmers combine their forest and farm products to reach more buyers. The hub provides processing equipment and helps farmers combine products to get more marketable amounts.
+
+**lowL, AI, and Robotics Integration:** AI can optimize inventory management and order fulfillment, matching supply with demand. Robotics can handle sorting, packing, and palletizing operations. lowL-based systems can track product traceability from producer to consumer.
+
+### Direct Marketing: Farmers Markets, Farm Stands, Direct-to-Consumer
+
+Direct marketing allows farmers to capture retail prices and build customer relationships. Wise County has four farmers' markets operating within the county.
+
+**lowL, AI, and Robotics Integration:** Online platforms can use AI to personalize product recommendations and optimize pricing. lowL-based point-of-sale systems can integrate inventory management and customer relationship management.
+
+### Institutional Purchasing: Schools, Hospitals, Government
+
+Institutional purchasing provides stable markets for regional agricultural products. Schools, hospitals, and government agencies purchase significant quantities of food.
+
+**lowL, AI, and Robotics Integration:** AI can streamline procurement processes, matching institutional needs with regional supply. lowL-based traceability systems can ensure food safety and compliance with institutional requirements.
+
+---
+
+## Food Industry Workforce Development
+
+Food industry workforce development is essential for industry growth. Workers need skills in production, processing, distribution, and management.
+
+### Farm Labor: Sustainable Agriculture, Technology, Business Management
+
+Farm workers need skills in sustainable agriculture, technology adoption, and business management. The Appalachian Sustainable Development organization provides training on agroforestry practices, including workshops, online courses, and farm tours.
+
+**lowL, AI, and Robotics Integration:** Training programs must incorporate robotics operation and maintenance, basic AI and data literacy, and lowL programming for agricultural automation systems. This ensures the workforce can operate and maintain the advanced technology being deployed.
+
+### Processing Workers: Food Safety, Equipment Operation, Quality Assurance
+
+Processing workers need skills in food safety, equipment operation, and quality assurance.
+
+**lowL, AI, and Robotics Integration:** Workers must be trained to operate and maintain automated processing equipment, ensuring safe and efficient operation. AI-driven quality assurance systems require workers to understand data analysis and quality metrics.
+
+### Distribution Workers: Logistics, Transportation, Inventory Management
+
+Distribution workers need skills in logistics, transportation, and inventory management.
+
+**lowL, AI, and Robotics Integration:** Workers in automated warehouses must be trained in robotic system operation and maintenance. AI-driven logistics systems require understanding of data analytics and decision support tools.
+
+### Management: Business, Marketing, Finance, Human Resources
+
+Food industry managers need skills in business management, marketing, finance, and human resources.
+
+**lowL, AI, and Robotics Integration:** Managers must understand how to leverage AI for decision-making, data-driven marketing, and strategic planning. As the industry moves toward intelligence-led growth, "algorithms, data, and investor expectations" will be as important as factories and supply chains .
+
+---
+
+## Food Industry Support Services
+
+Support services are essential for food industry development, including food safety, regulatory compliance, quality assurance, marketing and branding, business services, and financing.
+
+### Food Safety: Inspections, Testing, Training
+
+Food safety services are essential for protecting consumers and supporting market access.
+
+**lowL, AI, and Robotics Integration:** AI can enhance inspection systems, detecting contaminants and ensuring compliance. lowL-based sensor networks can monitor storage and transport conditions to maintain product safety.
+
+### Regulatory Compliance: Assistance with Requirements
+
+Regulatory compliance assistance helps food businesses navigate complex requirements.
+
+**lowL, AI, and Robotics Integration:** AI can automate compliance documentation and tracking, reducing the burden on food businesses. Traceability systems using lowL can meet regulatory requirements for product tracking.
+
+### Quality Assurance: Testing, Certification, Quality Management
+
+Quality assurance services help food businesses meet customer requirements and maintain product quality.
+
+**lowL, AI, and Robotics Integration:** AI-driven quality testing can improve accuracy and speed, while lowL-based control systems can maintain consistent product quality.
+
+### Marketing and Branding: Regional Identity, Local Production
+
+Marketing and branding help food businesses reach customers and command premium prices.
+
+**lowL, AI, and Robotics Integration:** AI can analyze consumer preferences and market trends, guiding branding and product development. Digital platforms can leverage regional identity to reach new customers.
+
+### Business Services: Accounting, Legal, Insurance
+
+Business services help food businesses operate effectively.
+
+**lowL, AI, and Robotics Integration:** AI can automate accounting and financial analysis, improving decision-making for food businesses.
+
+### Financing: Loans, Grants, Investment Programs
+
+Access to financing is essential for food industry development. The USDA Value-Added Producer Grant program provides funding for processing and marketing projects. The Governor's Agriculture and Forestry Industries Development Fund provides grants for agricultural processing expansion.
+
+---
+
+This chapter has examined the strategic growth of the food industry in the Crooked Road and U.S. Route 23 corridor. The common thread across all sectors is the need for coordinated investment, strategic planning, and partnership across the public and private sectors. The food industry provides a foundation for economic growth that honors the region's heritage while embracing modern technologies and markets.
+
+
+# CHAPTER SIX: STRATEGIC GROWTH OF MANUFACTURING
+
+---
+
+The manufacturing sector of the Crooked Road and U.S. Route 23 corridor represents one of the region's most significant economic assets. For generations, manufacturing facilities throughout Southwest Virginia have provided stable employment, generated tax revenue, and contributed to the economic vitality of communities. The skills developed through decades of manufacturing work—precision, safety awareness, quality orientation, and mechanical aptitude—remain valuable assets that can support a modernized industrial base. However, the sector faces substantial challenges: aging equipment, global competition, workforce transitions, and the need to adopt new technologies. Strategic modernization of existing manufacturing capabilities offers the most direct path to job creation and economic growth.
+
+The manufacturing resurgence in Southwest Virginia is being driven by a collaborative regional approach. As Duane Miller, executive director of the LENOWISCO Planning District Commission, observed: "It seems that funders, both state and federal, really seem to be supportive of projects that are of a regional nature and have a lot of member localities working together to do this. Essentially, they're getting more bang for their buck" . This regional cooperation is yielding tangible results, with manufacturing activity emerging as the "hottest area of activity" in the region's economic development efforts .
+
+---
+
+## Existing Manufacturing Capabilities
+
+### Metal Fabrication: Structural Steel, Tanks, Specialized Equipment
+
+Metal fabrication has been a cornerstone of the region's manufacturing sector for decades. Companies throughout the corridor produce fabricated metal products including structural steel, tanks, specialized equipment, and custom components. These businesses have developed skilled workforces, established supply chains, and cultivated customer relationships that provide a foundation for growth.
+
+The region's metal fabrication capabilities have demonstrated remarkable resilience and adaptability. Lawrence Brothers, Inc. in Tazewell County exemplifies this trajectory. Founded in 1974 in a three-car garage, the company has grown to more than 80,000 square feet of building space and employs over 100 workers . The company holds 45 percent of the market share of mine battery trays and has diversified significantly into steel enclosures for motive power and material handling industries, transformer components, and custom metal fabrication . This diversification strategy has been enabled through strategic investments in advanced technology, including multiple fiber optic lasers financed through VCEDA loans, which increased the company's manufacturing capacity by 75 percent .
+
+The modernization of metal fabrication involves the integration of computer numerical control (CNC) equipment, robotic welding systems, automated material handling, and digital design tools. These technologies improve precision, reduce waste, and increase throughput. For economic advisors, supporting metal fabrication modernization means helping companies identify appropriate technologies, access financing for equipment upgrades, and train workers in new skills.
+
+### Telecommunications Equipment: Infrastructure Components
+
+The region has historically produced telecommunications infrastructure components, including equipment for telephone networks, fiber optic systems, and wireless communications. This industry has benefited from the region's skilled workforce and established manufacturing infrastructure.
+
+VFP, Inc. in Scott County exemplifies this sector's growth potential. The company manufactures communication equipment shelters made of concrete and steel for the telecom, public safety, electrical, and data center industries . In October 2025, VFP announced a $35 million expansion that will add two new manufacturing buildings at its Duffield facility, each approximately 100,000 square feet, and is expected to create 200 new jobs . The expansion was supported by a $312,500 workforce development grant from VCEDA and demonstrates how existing manufacturers can capitalize on growing markets—in this case, the rapidly expanding data center industry .
+
+### Utility Structures: Poles, Towers, Components
+
+Companies in the region produce poles, towers, and components for electrical and telecommunications utilities. This industry has been a stable source of employment, with demand driven by infrastructure investment and grid modernization. The growing emphasis on renewable energy, grid resilience, and broadband expansion creates additional demand for utility structures.
+
+### Cell Tower Fabrication: Specialty Manufacturing
+
+Cell tower fabrication has emerged as a specialized manufacturing capability in the region. Companies produce towers and components for telecommunications infrastructure, serving markets throughout the eastern United States. The expansion of 5G networks and rural broadband creates significant demand for cell tower components.
+
+### Heavy Equipment: Construction, Mining, Agriculture
+
+Manufacturers in the region produce equipment for construction, mining, and agriculture. These products require skilled fabrication, assembly, and testing. Simmons Equipment, a mining equipment manufacturer, announced in July 2024 it would expand its operations from Tazewell County into Russell County, investing $8.5 million to build more manufacturing operations to meet growing global demand for its soft rock machinery . The company's expansion was supported by a $187,500 workforce development grant from VCEDA and demonstrates how existing manufacturers can grow by serving global markets .
+
+### Precision Machining: Precision Components
+
+Precision machining companies produce components for various industries, including aerospace, defense, medical devices, and automotive. These businesses require skilled workers, advanced equipment, and rigorous quality management. The industry offers opportunities for higher-value manufacturing that can support employment growth.
+
+---
+
+## Strategies for Manufacturing Growth
+
+### Regional Cooperation and Site Development
+
+One of the most significant strategies for manufacturing growth in the Crooked Road corridor is regional cooperation for industrial site development. The Project Intersection initiative in Norton provides a powerful example. This 200-acre industrial megasite on abandoned coal mine land is operated by the Lonesome Pine Regional Industrial Facilities Authority, which includes Lee, Wise, Scott, and Dickenson counties and the city of Norton. The localities jointly invest and receive revenue through the authority .
+
+The authority has secured approximately $25 million in grant funding for infrastructure and site development . Its first announcement came in 2021 from EarthLink, which invested $5.4 million to build a 28,000-square-foot call center expected to create 285 jobs . In November 2024, Wrap Technologies announced it would invest $4.1 million to move its manufacturing and distribution from Arizona to Norton, bringing along 126 jobs . The deal was leveraged through a $3.2 million loan from VCEDA, a $425,000 grant from the Commonwealth's Opportunity Fund, and an $800,000 grant from the Virginia Tobacco Region Revitalization Commission .
+
+The West River Conveyors relocation to the Southern Gap Industrial Park in Buchanan County demonstrates how site development can retain and expand existing manufacturers. The company, one of the largest manufacturers and private employers in Buchanan County, suffered two major disasters—massive flooding in 2022 and a major fire in December 2024—that damaged its facilities . With a $4 million loan from VCEDA, West River will construct a 65,000-square-foot manufacturing facility at Southern Gap, which is within 1,000 feet of the new Coalfields Expressway, making it an excellent logistical location . The expansion is projected to create 25 new full-time jobs .
+
+Economic advisors should help communities develop industrial sites through regional cooperation, access site development funding, and market available sites to potential manufacturers. The regional approach is particularly important because, as U.S. Rep. Morgan Griffith observed: "We don't have that much land to build on in Southwest Virginia, so when you get various counties to come together it helps" .
+
+### Workforce Development and Training Programs
+
+Manufacturing workforce development is essential for industry growth. Workers need skills in robotics, automation, digital manufacturing, and quality management. Training programs must address both technical skills and soft skills such as problem-solving, teamwork, and communication.
+
+The $4.2 million GO Virginia investment in the AM2 (Additive Manufacturing and Advanced Materials) initiative represents a significant commitment to workforce development for advanced manufacturing in the region . The initiative is expected to create 100 jobs in its first two years and help develop a workforce pipeline to manufacturing and technology careers . Led by the New River Valley Regional Commission and supported by Virginia Tech and partners across GO Virginia Regions 2 and 3, the project focuses on additive manufacturing and advanced materials, a fast-evolving field with applications in industries such as aerospace and energy .
+
+The AM2 Career Network will develop new pathways for students and workers, from high school curriculum to paid internships and apprenticeships . The initiative will place at least 25 paid interns with regional companies and develop the first industry-certified AM2 credential in the nation in collaboration with community colleges and the Institute for Advanced Learning and Research . As Christopher Williams, the L.S. Randolph Professor of Mechanical Engineering at Virginia Tech, noted: "This initiative is an embodiment of Virginia Tech's land-grant mission. Strengthening the connection between Virginia Tech's manufacturing expertise and regional industry partners provides our student entrepreneurs a focused context for further innovation and learning" .
+
+Southwest Virginia Community College's Advanced Precision Machining program provides a model for how educational institutions can support manufacturing workforce development. The program is designed to "prepare students to be CNC programmers and/or operators leading to full-time employment" and provides instruction in blueprint reading, mathematics, drafting, and CAD/CAM . Students develop skills using equipment including lathes, mills, drill presses, surface grinders, CNC lathes, and CNC mills .
+
+Economic advisors should help manufacturers connect with training resources, develop apprenticeship programs, and access workforce development funding. The Virginia Talent Accelerator Program provides customized training for new and expanding companies. The Appalachian Regional Commission's POWER Initiative supports workforce development projects that address specific regional needs.
+
+### Financing and Incentives
+
+Access to capital is essential for manufacturing growth. The Virginia Coalfield Economic Development Authority (VCEDA) plays a central role in financing manufacturing modernization and expansion. Created by the Virginia General Assembly in 1988, VCEDA manages funds for economic development projects from a percentage of coal and natural gas severance taxes . VCEDA provides loans, workforce development grants, and other financing to support manufacturing growth.
+
+The Wrap Technologies deal demonstrates how multiple financing sources can be leveraged to close a manufacturing deal. The project was supported by a $3.2 million loan from VCEDA, a $425,000 grant from the Commonwealth's Opportunity Fund, an $800,000 grant from the Tobacco Region Revitalization Commission, and local incentives . Similarly, the Simmons Equipment expansion was supported by a $187,500 workforce development and training grant from VCEDA, a $500,000 loan from Russell County's industrial development authority, a $270,000 grant from the Commonwealth's Opportunity Fund, and potential tax credits .
+
+The Tobacco Region Revitalization Commission has been a critical partner in manufacturing development, awarding a total of $1.5 billion through nearly 2,500 grants over its 25-year history . The Commission's investments in sites and infrastructure—30% of total investment—have been instrumental in attracting major employers. In November 2024, Governor Youngkin announced the region's biggest economic development project to date: advanced battery component manufacturer Microporous will invest $1.35 billion and create over 2,000 jobs at the Southern Virginia Megasite at Berry Hill . The Commission made its first investment in Berry Hill in 2008 and has since awarded over $60 million in grants and loans for its development .
+
+Economic advisors should help manufacturers access financing through VCEDA, the Tobacco Commission, and other sources. As the Tobacco Commission's experience demonstrates, sustained investment over long periods can yield transformative results .
+
+### Modernization and Expansion of Existing Facilities
+
+Supporting the expansion of existing manufacturing facilities is often more cost-effective than attracting new businesses from outside the region. Existing manufacturers have already invested in facilities, equipment, and workforce training. They have established supply chains and customer relationships. They provide stable employment for skilled workers.
+
+Lawrence Brothers, Inc. provides a compelling example of how existing manufacturers can grow through strategic modernization. The company has received multiple VCEDA loans over the years, including $600,000 in 2019 to purchase a new laser and $400,000 in 2021 for an additional laser . A $1.315 million loan in 2025 allowed for the addition of a third Mitsubishi fiber optic laser, which is expected to increase the company's manufacturing capacity by 75 percent . The company grew from 40 to 110 employees, adding 25-30 new jobs ahead of schedule within less than two years after the 2019 expansion .
+
+VFP, Inc. provides another example of strategic expansion. The company has been assisted by VCEDA through several expansions, including a $500,000 loan in 2004, a $600,000 loan in 2005, and a $581,000 loan in 2012, all repaid in full . The 2025 expansion will add 200 new jobs, making VFP one of the largest employers in the region .
+
+Economic advisors should help existing manufacturers identify expansion opportunities, access financing, and navigate the regulatory and permitting processes associated with facility expansion.
+
+### Diversification into Emerging Markets
+
+Manufacturers that can develop new products for emerging markets are better positioned for long-term growth. Emerging market opportunities include renewable energy components (solar mounting systems, wind turbine components, energy storage equipment), electric vehicle infrastructure (charging stations, battery components), and broadband equipment (fiber optic components, wireless infrastructure).
+
+The region's existing manufacturing capabilities—metal fabrication, precision machining, and assembly—can be applied to these emerging markets. Lawrence Brothers, Inc.'s diversification strategy provides a model. The company still manufactures mine battery trays but has significantly diversified into steel enclosures for motive power and material handling industries, transformer components, and custom metal fabrication . The company's products may now be found throughout the world .
+
+The Southwest Virginia Energy Research and Development Authority is working to leverage the region's energy assets to attract energy-related projects, including solar, wind, energy storage, energy-efficient data centers, and emerging energy technologies such as small modular reactors . The Authority's work is focused on "leveraging the region's valuable assets and competing nationwide for entrepreneurs and large market cap developers while focusing on innovative and clean energy projects" .
+
+The region is also targeting the data center market. Northern Virginia's Data Center Alley is unparalleled, but economic development officials in Southwest Virginia are targeting the market by focusing on how the region can power data centers locally and throughout the state . As Duane Miller explained: "When it comes to power, not just for data centers, but for the overwhelming demand on the grid that's going to occur with the development of technology, we've had a huge focus on that" .
+
+Economic advisors should help manufacturers identify emerging market opportunities, access product development resources, and connect with potential customers.
+
+### Supply Chain Development
+
+Developing regional supply chains can reduce costs, improve reliability, and create new business opportunities. Manufacturers that source components and materials from regional suppliers can reduce transportation costs, improve response times, and strengthen the regional economy. Regional suppliers benefit from stable demand and reduced marketing costs.
+
+The Tate expansion in Russell County demonstrates how supply chain development can work. Ireland-based Tate, which manufactures raised floors and other interior systems for data centers, acquired the former 131,000-square-foot Alcoa manufacturing building, closed since 2009, to expand its U.S. manufacturing operations . The company expects to invest $6.5 million and add 35 full-time jobs within three years . The project came together after VCEDA approved a $4 million loan for the Russell County Industrial Development Authority to buy the property and prepare it for a lease to Tate .
+
+Economic advisors should help businesses and communities conduct supplier mapping, connect manufacturers with potential suppliers, and support supplier development.
+
+### Succession Planning for Family-Owned Businesses
+
+Many manufacturing businesses in the region are family-owned, and succession planning is essential for continuity. Without adequate planning, businesses may close when owners retire, eliminating jobs and economic activity. Succession planning involves identifying successors, transferring ownership, and ensuring business continuity.
+
+Economic advisors should help business owners access succession planning resources, including legal and financial advisory services. The Virginia Small Business Development Center network provides business counseling that can support succession planning.
+
+---
+
+## Future Manufacturing Opportunities
+
+### Advanced Manufacturing and Additive Manufacturing
+
+The AM2 initiative demonstrates the potential for advanced manufacturing to drive economic growth in the region. Additive manufacturing and advanced materials are "key drivers for U.S. manufacturing," according to Nanci Hardwick, CEO of MELD Manufacturing Corp. . The initiative will create AM2 Innovation Studios where companies will have access to tools, expertise, and facilities to design, refine, and test products and processes . At Virginia Tech, existing labs and machinery at the Institute for Critical Technology and Applied Science's Matter Labs will support small-scale testing, helping companies prove concepts earlier and reduce uncertainty before moving toward production . A second site at the Institute for Advanced Learning and Research in Danville will focus on production-scale testing in real-world conditions .
+
+### Modular Housing Manufacturing
+
+The modular housing production facility coming to Russell County demonstrates the potential for manufacturing to address workforce housing shortages while creating jobs. A $3 million VCEDA loan was approved for the Russell County Industrial Development Authority to support Appalachian Highlands Housing Partners in establishing a modular housing manufacturing facility in the former Buster Brown Building in the Russell County Industrial Park .
+
+Plans call for at least 260 units of modular housing to be manufactured in the first year in the approximately 92,000-square-foot building . As the workforce is trained and grows, the facility is proposed to generate 300-400 additional housing units per year . The project is expected to bring nearly 90 jobs . As Mayana Rice, AHHP director, explained: "This initiative not only delivers high-quality, cost-effective homes for our community but also equips local workers with in-demand skills in modern construction techniques, creating lasting economic and social impact" .
+
+The workforce development component is critical to the project's success. As VCEDA Executive Director Jonathan Belcher noted: "In addition to developing a facility at which modular housing will be manufactured, thereby creating jobs, AHHP also recognized a workforce development component was needed, so there would be skilled laborers to work in the modular home construction facility and also so that those workers could be trained in employable skills and trades that are needed in the region" .
+
+### Indoor Agriculture Manufacturing
+
+Oasthouse Ventures and its subsidiary Pluck'd began planting tomatoes at a new 65-acre greenhouse in Carroll County, creating 265 jobs . This project demonstrates how the region's industrial sites can support non-traditional manufacturing activities. The project resulted from collaboration between several localities, with Carroll County splitting tax revenue equally with Grayson County and Galax .
+
+
+### Industry Modernization
+
+The modernization of existing manufacturing capabilities represents one of the most significant opportunities for economic growth in the Crooked Road and U.S. Route 23 corridor. Across the United States, the manufacturing sector is undergoing a revitalization driven by re-shoring, supply chain optimization, automation, and robotics . The disruptions of the COVID-19 pandemic exposed vulnerabilities in global supply chains, while rising geopolitical tensions and tariff pressures have renewed interest in domestic production . Policy changes, including the ability for U.S. corporations to fully deduct capital spending in the first year, have provided powerful financial incentives for companies to invest in production and distribution capabilities . For the Crooked Road corridor, this national trend represents both a challenge—the region must compete with other areas for investment—and an opportunity, as the region's existing manufacturing capabilities and workforce provide a foundation for modernization.
+
+#### Robotics: Welding, Assembly, Painting, Material Handling
+
+Robotics has become a cornerstone of manufacturing modernization, enabling companies to improve productivity, reduce labor challenges, and increase flexibility . Modern robotic systems span a wide range of applications including welding, assembly, painting, material handling, palletizing, and machine tending . Collaborative robots (cobots) represent a particularly significant development for small to medium-sized manufacturers, offering intuitive hand guidance, drag-and-drop programming, and fast redeployment that make them ideal for high-mix, low-volume production environments .
+
+The practical applications of robotics in manufacturing are extensive and growing. In welding applications, coordinated motion systems now enable handling robots to position components while welding robots operate simultaneously, maximizing production efficiency through perfectly synchronized motion . Multi-station cells allow continuous arc welding at one station while a human operator loads parts at another, maximizing uptime and safety in compact workspaces . In painting and coating operations, intelligent part recognition systems using 3D vision enable precise visual tracking, while robots support both powder and liquid coatings as well as fiberglass-reinforced plastic applications .
+
+For the Crooked Road corridor, the adoption of robotics offers several economic benefits. First, robotics can help manufacturers address workforce challenges by automating dangerous, repetitive, or physically demanding tasks, improving workplace safety and job quality . Second, robotics enables manufacturers to achieve consistent product quality through repeatable precision, reducing scrap and rework costs. Third, robotics supports the "lights-out" manufacturing model—continuous, unmanned production supported by smart scheduling and remote monitoring—which allows manufacturers to maximize equipment utilization and reduce labor costs . Economic advisors should help manufacturers assess robotics opportunities, access financing for equipment purchases, and develop workforce training programs that prepare workers to operate and maintain robotic systems.
+
+#### CNC Automation: Precision Machining
+
+Computer Numerical Control (CNC) automation has transformed precision machining, enabling manufacturers to create parts with tight tolerances and complex geometries that would be impossible with manual methods . Modern CNC machines are capable of exceptional levels of accuracy and precision, and when integrated with automation technologies, they can run continuously, minimizing downtime while maximizing productivity . The integration of high-speed robotics with CNC machines enables automatic control of cutting tools, further enhancing precision and efficiency .
+
+The evolution of CNC machining in 2026 is being shaped by several trends that have direct relevance for manufacturers in the Crooked Road corridor . AI-native machining is moving from experimental pilots to integral daily machine control, using real-time sensor feedback to adjust feeds, speeds, and toolpaths automatically in response to vibration, load, or temperature changes. Digital twins are becoming the production backbone, with virtual representations of the entire machining process enabling virtual commissioning, clash detection, and kinematic validation long before the first part is cut. Hybrid manufacturing—combining additive and subtractive processes in a single platform—is gaining traction, enabling complex geometries and reducing material waste.
+
+The integration of automation with CNC machining offers significant economic benefits. Automated operations require minimal operator involvement, meaning workers spend less time around moving parts and hot surfaces, improving safety . Automated CNC machines can run continuously, increasing production output and creating opportunities to add customers and increase revenue . The ability to rapidly prototype parts using CNC machining allows manufacturers to test design concepts efficiently and bring products to market faster . Multi-axis CNC machines, which can have up to 12 axes moving simultaneously, reduce machining time, increase production throughput, cut costs, and minimize waste .
+
+For economic advisors, supporting CNC automation means helping manufacturers identify appropriate technologies, access financing for equipment upgrades, and develop workforce training programs. The shift toward AI-native machining will redefine machinist roles, with future operators spending less time reacting to machine alarms and more time validating data patterns, tuning algorithms, and improving process reliability . This transition requires investments in workforce training that prepare workers for these new roles.
+
+#### Industrial Artificial Intelligence: Scheduling, Quality Control, Maintenance
+
+Industrial artificial intelligence is transforming manufacturing by enabling data-driven decision-making across production, maintenance, and quality control . AI-powered systems can analyze vast amounts of data to identify patterns, make predictions, and optimize operations in ways that would be impossible through human analysis alone . The integration of AI across production, maintenance, and quality functions represents a significant opportunity for manufacturers to reduce costs, improve quality, and increase flexibility .
+
+In production scheduling, AI-enabled systems can optimize the order of manufacturing tasks, improving the flow of resources and materials . These systems can account for electricity price volatility, renewable energy usage, and demand response participation to minimize energy costs while maintaining production schedules . Genetic algorithms, reinforcement learning, and artificial neural networks are among the most commonly used AI techniques for production scheduling optimization . These approaches enable manufacturers to achieve near-optimal production strategies that balance competing objectives including cost, quality, and delivery.
+
+In quality control, AI systems can predict product quality degradation based on machine condition and process parameters . The "stream of degradation" describes how the degradation of quality-related components leads to product quality loss, and AI techniques can monitor machine temperature, acoustic emission, oil analysis, and vibration to predict quality issues before they occur . Automated visual inspections using AI can detect defects with greater accuracy and consistency than human inspectors, reducing scrap and rework costs. The same systems employed for predictive maintenance are often integrated into quality prediction, creating synergies between these functions .
+
+In maintenance, AI-enabled predictive maintenance uses data-driven models to anticipate machine failures ahead of time, enabling better decision-making and helping to avoid downtime . Machine learning models can predict behavior patterns, correlations, and trends from historical data, allowing maintenance to be scheduled proactively rather than reactively . This approach reduces unplanned downtime, extends equipment life, and lowers maintenance costs . For injection molding machines, for example, multiple inspection methods exist—from low-cost binary state inspection to expensive perfect degradation inspection—and AI can dynamically select the optimal inspection level based on the system's predicted reliability . This dynamic inspection model reduces overall inspection cost while maintaining effective predictive maintenance .
+
+For the Crooked Road corridor, the adoption of industrial AI offers significant economic benefits. Manufacturers can reduce costs through optimized scheduling, predictive maintenance, and quality improvement. They can increase flexibility through data-driven decision-making that enables rapid adaptation to changing conditions. They can improve competitiveness through higher quality and lower costs. Economic advisors should help manufacturers identify AI opportunities, access technical assistance, and develop the data infrastructure needed to support AI applications.
+
+#### Digital Manufacturing: Product Design, Process Planning, Production Management
+
+Digital manufacturing integrates simulation, 3D visualization, analytics, and collaboration tools to create simultaneous product and manufacturing process definitions . This approach enables industries to design entire manufacturing processes digitally, fostering collaboration between engineers and designers that reduces costly downstream changes . Digital manufacturing has evolved from initiatives such as design for manufacturability (DFM) and computer-integrated manufacturing (CIM), and it represents a key point of integration between product lifecycle management (PLM) and shop floor applications .
+
+The benefits of digital manufacturing are substantial. Companies can achieve up to a 50 percent reduction in design time, a 30 percent reduction in project cycles, and a 90 percent reduction in root cause analysis time . By fully employing the virtual realm before investing in actual production, digital manufacturing helps increase margins and optimize operations . For example, an automotive OEM can design the entire manufacturing process digitally—including tooling, machining, assembly sequencing, and factory layout—at the same time designers are creating the next vehicle program. This enables manufacturing engineers to provide immediate feedback to designers if there are constraints in part manufacturability .
+
+A comprehensive digital twin is central to digital manufacturing . This dynamic virtual representation of the product and production system creates a digital thread that seamlessly links functional domains from design to manufacturing using closed-loop processes . By becoming a Model-Based Enterprise (MBE), all stakeholders work in a collaborative software environment, creating and enriching data sets built on a 3D model . This approach enables "shift-left" manufacturing planning—validating and optimizing production processes before moving to physical production—eliminating costly downstream errors on the shop floor .
+
+For the Crooked Road corridor, digital manufacturing offers the opportunity to compete for advanced manufacturing investment without requiring massive physical infrastructure investments. By developing digital manufacturing capabilities, regional manufacturers can reduce time-to-market, improve quality, and lower costs. Economic advisors should help manufacturers understand digital manufacturing opportunities, access simulation and collaboration tools, and develop the digital skills needed to implement these approaches.
+
+#### 3D Printing: Prototyping, Tooling, Finished Products
+
+Additive manufacturing (3D printing) has evolved from a prototyping tool into a fully integrated part of modern production systems . The application of 3D printing in industry now spans sectors including aerospace, automotive, medical, and tooling—not as an experimental alternative, but as a strategic, production-grade solution . From accelerating product development to enabling complex geometries and localized production, 3D printing is reshaping the way manufacturers design, build, and iterate .
+
+The core value of 3D printing lies in its flexibility. Unlike traditional subtractive or formative methods, additive manufacturing builds parts layer by layer directly from digital files, eliminating the need for molds, dies, or tooling . This on-demand capability is especially useful in scenarios where time-to-market, customization, or design complexity outweigh the need for mass production scale . The production of end-use parts using 3D printing has become one of the clearest indicators that the technology is no longer limited to development labs—these parts are used in certified applications where strength, tolerance, and reliability are critical .
+
+Core applications of 3D printing in industry include functional prototyping, tooling and fixtures, spare parts and on-demand components, production parts, and mass customization . Tooling applications include custom jigs, clamps, assembly aids, and inspection tools that can be produced quickly and cost-effectively, tailored to exact operational needs . Spare parts can be produced on-site or on-demand, reducing inventory and lead time . In certain industries, especially aerospace and medical, 3D-printed end-use parts are approved for flight or clinical use, offering unmatched design freedom, weight optimization, and digital production agility . Mass customization is particularly valuable when geometry varies from unit to unit, such as in dental implants or orthopedic supports .
+
+The viability of 3D printing in manufacturing has grown dramatically thanks to advances in materials and machine capabilities . Engineering polymers such as PA12, PEKK, and reinforced nylons enable stronger, more durable components. Metal additive manufacturing—via DMLS or SLM—produces complex titanium, stainless steel, and Inconel parts that meet aerospace-grade certification standards. Powder-bed fusion systems like SLS and MJF offer robust, repeatable processes ideal for both prototyping and short-run production .
+
+For the Crooked Road corridor, 3D printing offers several economic opportunities. Localized production of parts can reduce logistics dependency and shipping complexity . On-demand production reduces inventory costs and lead times . Design flexibility enables part consolidation and functional optimization . Sustainable production models through material efficiency and minimized waste align with growing environmental requirements . Economic advisors should help manufacturers identify 3D printing applications, access equipment and training, and develop business cases for additive manufacturing adoption.
+
+#### Industrial Internet of Things: Real-Time Production Data
+
+The Industrial Internet of Things (IIoT) enables real-time data collection from manufacturing equipment, providing visibility into production performance and supporting data-driven decision-making . IIoT architecture integrates industrial automation with Industry 4.0 technologies, using programmable logic controllers (PLCs) to capture process variables, gateways for data extraction, and databases for real-time data storage and visualization . This architecture enables automatic determination of key performance indicators including availability, performance, quality, and overall equipment effectiveness (OEE) .
+
+The benefits of IIoT are substantial. Real-time data enables manufacturers to monitor equipment performance, identify bottlenecks, and optimize production processes . Availability of real-time information reduces downtime, optimizes resource usage, and improves decision-making accuracy . Demonstrated results include 89.4% availability, 97.7% performance, 100% quality, and an OEE of 87.4% . These improvements translate directly to increased productivity, reduced costs, and improved competitiveness.
+
+For the Crooked Road corridor, IIoT offers an opportunity for manufacturers to achieve Industry 4.0 capabilities without requiring massive capital investment. IIoT solutions can be implemented incrementally, with sensors and data collection added to existing equipment. Economic advisors should help manufacturers understand IIoT opportunities, access technical assistance for implementation, and develop data analytics capabilities that enable effective use of production data.
+
+#### Predictive Maintenance: Monitoring and Maintenance Planning
+
+Predictive maintenance represents a proactive approach that leverages inspection to monitor the degradation state of systems, supporting maintenance decision-making to prevent catastrophic failures . Predictive maintenance uses data-driven models to anticipate machine failures ahead of time, enabling better decision-making and helping to avoid downtime . Machine learning models can predict behavior patterns, correlations, and trends from historical data, allowing maintenance to be scheduled proactively rather than reactively .
+
+A key challenge in predictive maintenance is balancing inspection quality with inspection cost . Multiple inspection methods exist for monitoring system states, each associated with distinct quality levels and costs. In the context of injection molding machines, for example, low-cost binary state inspection can reveal whether the system is functioning or not; imperfect degradation inspection can reveal the system's degradation level with uncertainty; and perfect degradation inspection provides true degradation measurement but requires costly equipment and skilled technicians . Dynamic inspection models can select the appropriate inspection level based on the system's predictive reliability, reducing overall inspection cost while maintaining effective maintenance .
+
+The economic benefits of predictive maintenance are significant. By preventing catastrophic failures, predictive maintenance reduces unplanned downtime . By optimizing maintenance schedules, it extends equipment life and reduces maintenance costs . By integrating predictive maintenance with production scheduling, manufacturers can reschedule production when a machine failure is detected, minimizing disruption . The same systems employed for predictive maintenance are often integrated into quality prediction, creating synergies between maintenance and quality functions .
+
+For the Crooked Road corridor, predictive maintenance offers a practical path to manufacturing modernization that can deliver rapid return on investment. By implementing predictive maintenance on critical equipment, manufacturers can reduce downtime, extend equipment life, and improve quality. Economic advisors should help manufacturers identify predictive maintenance opportunities, access technical assistance for implementation, and develop workforce skills in data analysis and predictive modeling.
+### Future Manufacturing Opportunities
+
+The future of manufacturing in the Crooked Road and U.S. Route 23 corridor lies in leveraging the region's existing capabilities—metal fabrication, precision machining, and skilled workforce—to enter high-growth markets. Across Appalachia, the energy transition and reindustrialization are creating new opportunities for manufacturers. From data centers and hydrogen to solar, nuclear, and advanced materials, the region is emerging as a critical hub for the technologies driving America's energy future . The following sectors represent the most promising opportunities for strategic growth.
+
+#### Modular Housing: Factory-Built Housing Components
+
+The region's workforce housing shortage has created a compelling opportunity for modular housing manufacturing. The recent establishment of a modular housing production facility in Russell County demonstrates how manufacturing can simultaneously address housing needs and create employment . The Virginia Coalfield Economic Development Authority approved a $3 million loan to support the retrofit of the former 92,000-square-foot Buster Brown Building in the Russell County Industrial Park .
+
+Appalachian Highlands Housing Partners, a nonprofit subsidiary of the Wellspring Foundation of Southwest Virginia, is leading the initiative. The facility aims to produce at least 260 modular units in its first year, expanding to 300-400 annually as the workforce grows . The project is expected to create 89 jobs within five years . Importantly, the initiative includes a workforce development component, ensuring that workers are trained in modern construction techniques and employable skills needed throughout the region . As AHHP Director Mayana Rice stated: "This initiative not only delivers high-quality, cost-effective homes for our community but also equips local workers with in-demand skills in modern construction techniques, creating lasting economic and social impact" .
+
+For economic advisors, supporting modular housing manufacturing means helping communities identify suitable industrial sites, access financing through VCEDA and other sources, and develop the workforce training programs that are essential for success. The collaborative approach—involving a nonprofit housing developer, local industrial development authorities, and state financing—provides a model for future manufacturing development.
+
+#### Electric Utility Infrastructure: Transformers, Switchgear, Components
+
+The expansion of electrical grid infrastructure has created robust demand for transformers, switchgear, and related components. Hitachi Energy's expansion in Southwest Virginia demonstrates the region's competitive advantage in this sector. The company is investing $22.5 million to expand its existing facility in Bland, the country's leading source of dry-type transformers, and to add a warehouse facility in Atkins, creating 120 new jobs . This follows a $6.2 million expansion in 2021 that created an additional 40 jobs .
+
+Hitachi Energy has operated in Bland since 1972 and currently employs approximately 450 people there who design and manufacture medium-voltage, dry-type transformers used to adjust and stabilize electricity flowing through U.S. power grids, as well as in specialized industries like data centers and renewable energy generation . As Governor Glenn Youngkin noted: "This world-class company's investment in Southwest Virginia is not only expanding domestic transformer production, but also creating high-quality, skilled jobs and driving innovation in energy infrastructure" .
+
+For economic advisors, the Hitachi Energy example illustrates several key strategies. First, building on long-term relationships—the company's 50+ year presence in the region created trust and a skilled workforce. Second, meeting demand from growing markets—data centers, renewable energy, and grid modernization are driving transformer demand. Third, providing a business-friendly climate with competitive incentives—Hitachi Energy worked with Bland and Smyth Counties, the Mount Rogers Regional Partnership, and the Virginia Economic Development Partnership to secure the project .
+
+#### Broadband Equipment: Fiber Optic, Wireless, Network Infrastructure
+
+The expansion of broadband networks—both regionally and nationally—creates significant opportunities for manufacturers of fiber optic components, wireless equipment, and network infrastructure. Virginia's broadband deployment, supported by the Virginia Telecommunications Initiative and federal BEAD program, requires substantial equipment that could be sourced from regional manufacturers.
+
+Contract manufacturing services for broadband and computer assemblies are available in Virginia, with companies offering capabilities including advanced manufacturing, box build assembly, through-hole and surface mount technology, serving communications, aerospace, automotive, defense, and other industries . These suppliers are FDA approved, UL listed, and meet military specifications .
+
+For economic advisors, supporting broadband equipment manufacturing means helping existing manufacturers diversify into this growing market, connecting them with broadband deployment projects, and ensuring they can meet the quality and certification requirements of telecommunications customers.
+
+#### Renewable Energy Components: Solar Mounting, Wind Turbines, Energy Storage
+
+The Appalachian region's energy transition is creating significant opportunities for manufacturers of renewable energy components. From solar racking and inverters to wind turbine components and energy storage systems, regional manufacturers are well-positioned to supply this growing market . Emerging energy technologies such as hydrogen production, carbon capture systems, battery energy storage, and grid modernization are all creating new demand for manufactured components, including fabricated metals, precision parts, control systems, and specialized equipment .
+
+Programs like the Appalachian Regional Commission's ARISE fund are helping manufacturers expand into clean energy sectors by providing training and technical assistance, supply chain mapping, and support for factory upgrades to manufacture renewable energy components, hydrogen power systems, smart grid technology, and electric vehicle components . Manufacturers in the Crooked Road corridor could access similar support through Virginia's economic development programs.
+
+For economic advisors, supporting renewable energy component manufacturing means helping manufacturers understand energy market opportunities, access technical assistance for transitioning facilities, and connect with supply chains for solar, wind, hydrogen, and energy storage projects.
+
+#### Aerospace Suppliers: Specialized Manufacturing Capabilities
+
+Virginia has long been a leader in aerospace manufacturing, with more than 230 aerospace firms calling the Commonwealth home . Major companies including Rolls-Royce, Orbital Sciences, and numerous suppliers have established facilities, and the state has announced 64 aerospace projects in the past decade, creating more than 7,400 new jobs and generating investments worth over $1.5 billion . Virginia's aerospace ecosystem benefits from a skilled workforce of more than 8,900 Virginians making aerospace products, 3,900 producing composite products, and 5,100 working in machine shops .
+
+The Avio USA project demonstrates the scale of aerospace manufacturing investment possible in Virginia. The company will invest approximately $500 million to establish an 860,000 square-foot manufacturing facility in Pittsylvania County, creating more than 1,000 new jobs producing solid rocket motors for defense, tactical propulsion, missile systems, and the commercial space sectors . The project was supported by the Virginia Talent Accelerator Program, ranked the number one customized workforce training program in the U.S. .
+
+The aerospace supply chain creates opportunities for specialized manufacturing capabilities including CNC machining, milling, turning, welding, and cutting, with suppliers serving the aerospace, government, and military sectors . Composite manufacturing is particularly relevant, with Virginia's 3,900 composite workers supporting both aerospace and defense applications .
+
+For economic advisors, supporting aerospace suppliers means helping manufacturers achieve the quality certifications required by the industry, develop specialized capabilities, and connect with prime contractors like Rolls-Royce and Avio.
+
+#### Defense Manufacturing: Security Clearance, Quality Certification
+
+Defense manufacturing represents a significant growth opportunity, particularly as the U.S. seeks to strengthen its defense industrial base. The Avio USA project is explicitly supporting this goal, with CEO James Syring stating: "We are proud to support our U.S. government and defense customers by accelerating solid rocket motor production at the speed and capacity required to meet today's national security priorities" . The project will reduce reliance on foreign supply chains and ensure the military has resources needed to deter threats .
+
+Defense manufacturing requires security clearances and quality certifications such as AS9100D:2016, which suppliers must obtain to participate in defense supply chains . Virginia manufacturers have experience meeting these requirements, with firms serving the aerospace, government, marine, military, and defense sectors . The state's right-to-work status, low unionization rate, and pro-business environment support defense manufacturing growth .
+
+Defense manufacturing projects also create indirect economic benefits by supporting suppliers across the region, generating high-quality jobs, and developing a skilled workforce. The Avio project, for example, will create over 1,000 good-paying jobs and revitalize a historic industrial site .
+
+For economic advisors, supporting defense manufacturing means helping manufacturers navigate security clearance processes, achieve quality certifications, and connect with defense prime contractors. The Virginia Economic Development Partnership's defense initiatives can provide support.
+### Manufacturing Workforce Development
+
+A skilled and adaptable workforce is the foundation of manufacturing growth in the Crooked Road and U.S. Route 23 corridor. The region's manufacturing resurgence depends on developing a pipeline of workers who possess the technical skills, soft skills, and work ethic that modern manufacturers require. This challenge is being addressed through a comprehensive strategy that spans skill standards and certification, training programs, career awareness, recruitment, and retention.
+
+---
+
+#### Skill Standards: Defining Requirements and Certification
+
+Industry-recognized skill standards and certifications provide a common language for defining workforce qualifications and validating worker competencies. The National Institute for Metalworking Skills (NIMS) sets industry skills standards, certifies individual skills against those standards, and accredits training programs that meet NIMS quality requirements . The Manufacturing Skill Standards Council (MSSC) offers similar services for front-line manufacturing and logistics technicians, with its Certified Production Technician (CPT) and Certified Logistics Technician (CLT) programs providing portable, nationally recognized credentials . MSSC certifications are available nationwide, nationally accredited, and federally recognized, and they articulate between high schools and colleges, making them easily integrated into apprenticeship and internship programs .
+
+In Southwest Virginia, community college programs align with these national standards. Southwest Virginia Community College's Advanced Precision Machining program provides instruction in blueprint reading, mathematics, drafting, and CAD/CAM, with students developing skills using lathes, mills, drill presses, surface grinders, CNC lathes, and CNC mills. Students earn certifications from NIMS, NC3 (The National Coalition of Certification Centers), SNAP-ON & Starrett, OSHA-10, and American Red Cross FA/CPR/AED, demonstrating the value of industry-recognized credentials in preparing workers for manufacturing careers.
+
+MSSC has been proactive in keeping its standards current with technological change. In 2019, the organization added nine emerging "Industry 4.0 Technologies" to its CPT standards: Artificial Intelligence (AI), 5G, 3D Printing, the Industrial Internet of Things (IIoT), Autonomous Robots, Data Analytics, Advanced Materials, Augmented Reality, and Nanomanufacturing . In April 2024, MSSC launched a study group to enhance the AI content of the CPT certification training program for the manufacturing sector . This commitment to continuous updating ensures that certifications remain relevant to industry needs.
+
+Economic advisors should help manufacturers, educators, and training providers align their programs with NIMS and MSSC standards, ensuring that workers are prepared to meet employer requirements and that credentials are recognized across the region and beyond.
+
+---
+
+#### Training Programs: Community Colleges, Technical Schools, Apprenticeships
+
+The region's training infrastructure is the backbone of workforce development. Community colleges, technical schools, and apprenticeship programs provide the hands-on training and classroom instruction needed to prepare workers for manufacturing careers.
+
+**Community College Programs**
+
+Southwest Virginia Community College's Advanced Manufacturing program is "designed to provide training in three aspects of manufacturing: precision machining (manual machines and CNC), welding, and mechatronics (electrical, mechanical, and industrial maintenance)" . The program provides "introductory skills for advanced manufacturing technology, industrial maintenance, and other high-demand jobs in industrial and manufacturing occupational fields," with students receiving "a lot of hands on training throughout this program." Courses include robotics, mechanisms, process controls, basic electricity, and hydraulics/pneumatics.
+
+The Marshall Advanced Manufacturing Center (MAMC), operating in neighboring West Virginia, offers a model for regional workforce development. MAMC provides Machinist Technology/CNC, Welding Technology, and SMART (Systems Maintenance, Automation and Robotics Technology) programs to prepare individuals for careers in manufacturing and other industrial sectors . Graduates earn individual industry-recognized credentials in addition to associate of applied science degrees through partnerships with community colleges . The SMART program was launched in response to local demand for skilled industrial maintenance technicians and posted a 50 percent increase in new enrollees . As MAMC Director Derek Scarbro noted: "Our programs prepare students for good paying, in-demand careers while providing a steady pipeline of skilled workers for companies across the state and region. A strong manufacturing sector requires a highly skilled workforce" .
+
+Patrick & Henry Community College's Manufacturing, Engineering, and Technology (MET) Center in Martinsville offers hands-on training in high-demand fields like mechatronics, precision machining, industrial automation, and robotics, aligned with the needs of modern manufacturing and aerospace suppliers . The New College Institute provides pathways in engineering, cybersecurity, data analytics, and additive manufacturing, giving students access to bachelor's and industry-specific credentials that directly support high-tech and aerospace careers .
+
+**Apprenticeship Programs**
+
+Registered apprenticeship programs combine on-the-job training with related technical instruction, allowing apprentices to earn wages while learning and receive pay increases tied to acquired skills . Employers benefit by "growing their own" skilled workforce aligned with company culture and goals .
+
+The Southwest Virginia Higher Education Center (SVHEC) announced a registered apprenticeship program in December 2025 to strengthen the region's workforce . The program connects college students and high school dual-enrollment students with registered employers, allowing students to spend half a day in the classroom and the other half as a paid employee in a workplace with a mentor . Apprentices are W-2 employees with the employer, making the program more beneficial than unpaid internships . Jenny Nichols, the Apprenticeship Coordinator with the SVHEC, noted that the Virginia Department of Education recognizes 2,200 jobs that can become registered apprenticeships, covering healthcare, education, manufacturing, hospitality, food service, and more . The program is being made possible by grant funding of $377,000 from the Wellspring Foundation of Southwest Virginia and $252,000 from the Tobacco Region Revitalization Commission, totaling $629,000 .
+
+The Sumitomo Drive Technologies apprenticeship program in Chesapeake provides a model for employer-led training. Machinist apprentices complete a two-year, in-house training program connected to Tidewater Community College, attending classes while working full time with benefits and pay . The company covers program costs, and apprentices receive certificates in basic machining after their first year, shifting toward CNC machining in the second year . Sumitomo's Manufacturing Training Supervisor, Brian Stevenson, explained the rationale: "We don't have skilled people. You're just not going to find them. And so you have to create them organically" . The program aims to develop future leaders, not just machinists: "This program is not just producing machinists for the floor. These are leaders — future leaders of the company" .
+
+The Kanawha Valley FAME (Federation for Advanced Manufacturing Education) Chapter in West Virginia provides another model. This grassroots, employer-driven program focuses on developing highly skilled Advanced Manufacturing Technicians (AMTs), with apprentices spending two days per week in formal classroom training and three days per week working onsite at their sponsoring company . The program focuses on professional presence (soft skills), lean manufacturing acumen, and technical skill attainment, with apprentices graduating ready to enter the workforce full-time with no school debt .
+
+The Institute for Advanced Learning and Research's ExTRA (Expanding Talent through Registered Apprenticeship) program supports employers in launching customized apprenticeship programs . Since 2022, ExTRA has supported 27 employers in creating 30 new registered apprenticeship programs, resulting in 94 registered apprentices . The program has even supported Virginia's first EMT and Paramedic Registered Apprenticeship programs . Employers can receive grant funding of up to $2,700 per apprentice per year to support related technical instruction costs .
+
+The Virginia Works H.I.R.E.D. Apprenticeship Fund provides additional resources, offering $3,500 per apprentice with a maximum request of $7,000 for employers creating new Registered Apprenticeship programs or scaling existing ones . Funds can be used for training and education costs as well as to supplement supportive services .
+
+Economic advisors should help employers connect with apprenticeship resources, including SVHEC, IALR's ExTRA program, and Virginia Works. They should also help businesses understand the value of growing their own talent rather than relying on finding fully trained workers externally.
+
+---
+
+#### Career Awareness: Promoting Manufacturing Careers
+
+One of the most significant barriers to filling manufacturing jobs is the "awareness gap"—many people simply don't know what careers are available or what skills they need to pursue them . As Travis Staton, CEO and President of EO Companies, explained: "What is the availability? Where do we have job openings and opportunities? Got lots of manufacturing opportunities, lots of energy related jobs as well as in the healthcare arena" . This awareness gap affects not only students but also teachers, who are "also unaware of jobs and occupations" .
+
+**GO TEC: Early Career Exposure**
+
+The GO TEC (Great Opportunities in Technology and Engineering Careers) program addresses this gap by introducing Virginia middle school students to emerging, STEM-focused career fields through hands-on learning . Beginning in the 2025-26 academic year, more than 11,000 students from 73 Virginia middle schools from Abingdon to Virginia Beach will interact with the GO TEC curriculum annually .
+
+The primary goal of GO TEC is to let students experience in-demand and growing manufacturing and engineering career fields with applied learning. Students work through modules in Electrical Engineering, Mechanical Engineering, Manufacturing Engineering, Automation & Robotics, Welding, Precision Machining, Healthcare Technologies, IT Coding & Networking, Metrology, Precision Agriculture, and Energy . As one educator observed: "They're eager to go to class, they're eager to learn, and they're eager to learn about how they can build different things. They can see the application of what they're learning in other classes" .
+
+GO TEC is a collaborative talent pathway model that begins in middle school and continues through high school, dual enrollment, and postsecondary programs . Middle schoolers are introduced to careers and base skill training, connected in high school to expanded career and technical education courses and industry certification programs, and may progress to advanced-level training with an educational provider . The program leverages $9 million in total funding from GO Virginia, along with another $11 million from localities, federal agencies, and philanthropy .
+
+**Career Exploration and Awareness Building**
+
+EO Companies in Abingdon provides career awareness building for high school students through its Career Commons program . Students explore potential future careers through interactive experiences. Virginia High Junior Kadon Lester captured the impact: "Well, first I thought oh my gosh like there's a lot of options and I just thought it was so cool that you were able to walk around and like actually be able to like interact with things and be able to find out what you actually like" .
+
+The GO Virginia growth and diversification plan identifies career awareness as a priority, recommending expansion of programs like GO TEC, CTE Academy, CTE Coaching, Summer Work Experiences, World of Opportunity Career Expo, and Industry Insight Tours for educators . These programs connect students with industry and help them understand the pathways to manufacturing careers.
+
+Economic advisors should help school divisions and employers connect with GO TEC, support career exploration events, and work with educators to ensure they are aware of manufacturing career opportunities.
+
+---
+
+#### Recruitment: Outreach to Youth and Underrepresented Populations
+
+Recruiting the next generation of manufacturing workers requires targeted outreach to youth and underrepresented populations who may not have considered manufacturing careers. The decline of manufacturing in the region over past decades has created a generation of students and parents who may not see manufacturing as a viable or attractive career path.
+
+**Youth Outreach**
+
+The FAME program provides a direct pathway from high school to manufacturing careers, with apprenticeships designed for recent high school graduates, transitioning military members, or individuals looking to move into high-tech, high-paying career paths . The program gives students hands-on experience while completing a two-year associates degree, with no school debt .
+
+The Sumitomo apprenticeship program recruited three machinist apprentices in its inaugural cohort and a second cohort with three more apprentices . Tyrell Brooks, 33, of Chesapeake, had worked at Sumitomo for several years in the shipping department before applying for the apprenticeship. "I was just very interested in knowing how these big machines knew what to do and how precise the things would come out," Brooks said . The program made Brooks realize "how precise things need to be in order to work" .
+
+Virginia's GO Virginia growth plan recommends developing more paid internships, work-based learning, mentoring, and apprenticeship opportunities, including a state apprenticeship program that allows for workers under 18 . It also recommends a "come home campaign" and virtual support systems for connecting students from the region who are studying elsewhere with paid internships, encouraging them to return to the region after graduation .
+
+**Targeting Underrepresented Populations**
+
+Recruitment strategies should also target underrepresented populations, including women, minorities, and individuals with disabilities who have historically been underrepresented in manufacturing. The H.I.R.E.D. Apprenticeship Fund incentivizes employers to start or expand Registered Apprenticeship in high-demand industries, and funds can be used for training and education costs as well as to supplement supportive services, which can help remove barriers for underrepresented workers .
+
+The Virginia Talent Accelerator Program helps position each client as an employer of choice, using a combination of recruitment tactics optimized for each client and region . The program's customized recruitment campaigns help attract high-quality candidates by highlighting each employer's unique appeal .
+
+Economic advisors should help employers develop recruitment strategies that reach youth and underrepresented populations, leverage talent attraction programs like the Tobacco Region Revitalization Commission's Talent Attraction Program, and connect with community organizations that serve underrepresented populations.
+
+---
+
+#### Retention: Competitive Wages, Benefits, Advancement Opportunities
+
+Retaining skilled manufacturing workers is as important as recruiting them. The Virginia Talent Accelerator Program recognizes that job-specific training is vital for helping new hires quickly gain confidence and enhance retention rates . Retention is further enhanced when new hires understand and embrace the employer's unique mission, vision, and values. The program provides organizational development services, including designing and documenting career paths and facilitating focus groups, with all team members being certified executive coaches .
+
+**Career Pathways and Advancement**
+
+Creating clear career pathways is essential for retention. The Sumitomo apprenticeship program aims to develop future leaders, not just fill machining roles. As Manufacturing Training Supervisor Brian Stevenson explained: "This program is not just producing machinists for the floor. These are leaders — future leaders of the company" . Apprentices learn foundational machining skills in the first year, advance to CNC machining in the second year, and are positioned for advancement within the company .
+
+Apprenticeship programs create loyalty through employer investment. Tyrell Brooks, one of the Sumitomo apprentices, observed: "When a company invests in you and they spend their money and their time on something to benefit you and to benefit them, you won't be looked at like just another employee. You will be held in high regard" .
+
+**Workforce Data and Career Awareness**
+
+U.S. Census data shows fewer working-age adults are employed in Southwest Virginia compared to the state average . Keeping people working in the region helps the labor workforce grow. As Travis Staton noted: "The more people we get gainfully employed the more that our region will become known for a place where we have an abundance of talent, and we have a strong drive to participate in the labor force" .
+
+The GO Virginia growth plan identifies that retaining workers requires "more wrap around services and quality of life assets to retain and attract workers" . These services include childcare, transportation, healthcare, and affordable housing. The region's economic development strategy should consider how to address these quality of life factors to support workforce retention.
+
+Economic advisors should help employers develop retention strategies that include competitive wages and benefits, clear career advancement paths, and supportive workplace cultures. They should also help communities address quality of life factors that affect workforce retention.
+
+
+# CHAPTER SEVEN: STRATEGIC GROWTH OF FARMING
+
+---
+
+The farming sector of the Crooked Road and U.S. Route 23 corridor represents both a connection to the region's heritage and a foundation for future economic growth. The valleys, rolling pasturelands, and mountain farms that characterize the region have sustained agricultural production for generations, creating a knowledge base and infrastructure that can support expanded production, value-added processing, and market development. Across Southwest Virginia, farmers are adapting to changing market conditions, adopting innovative practices, and exploring new opportunities that can strengthen the region's agricultural economy and rural communities.
+
+---
+
+## Livestock Farming
+
+### Beef Cattle: Genetics, Nutrition, Grazing Management
+
+Beef cattle operations have been a cornerstone of the region's agricultural economy for generations. The region's pasture-based production system is well-suited to the climate and terrain, and the knowledge of cattle breeding and management has been passed down through families for decades. In the Appalachian cattle industry, "familial ties and last names are important in the daily commercial interactions," and "the knowledge and recordkeeping concerned with tracing bloodlines of cattle still allows for the same sort of ordination and nominal weight at auctions and markets throughout the region" . This tradition of careful breeding and recordkeeping provides a foundation for improving herd genetics and productivity.
+
+The Virginia Quality Assured Marketing Program, operated by the Abingdon Feeder Cattle Association, has been instrumental in adding value to regional beef production. The program has marketed over 1,300 tractor trailer loads of feeder calves since 2005, resulting in over $10.4 million in added value, with the estimated added value per calf approximately $102.93. This program demonstrates how coordinated marketing and quality assurance can increase farm income and strengthen the regional cattle industry.
+
+Genetics improvement is essential for herd productivity. Heritage breeds like the Hereford, which "first emerged as a distinct breed around the vicinity of Herefordshire, England sometime around the 17th Century," have long been valued in Appalachian cattle operations . Modern genetic selection can improve traits including birth weight, weaning weight, carcass quality, and maternal characteristics.
+
+Nutrition and grazing management are critical for herd health and productivity. Rotational grazing systems improve pasture health and forage quality while reducing input costs. As demonstrated by Tim Alderson's A-Plus Farms in Pittsylvania County, rotational grazing "improves forage quality and quantity, facilitates deeper root systems and enhances soil structure, leading to more resilient pastures and increased productivity over time" . By preventing overgrazing, rotational grazing "helps reduce soil erosion, enhances water infiltration and decreases runoff into nearby streams and rivers," and can "increase carbon sequestration in soil" .
+
+The development of slaughter and processing capacity is a critical need for the region's cattle industry. Congressman Morgan Griffith has noted that "the number one request of farmers in the 9th District is we want more slaughterhouses," estimating that "Southwest Virginia needs three additional slaughter facilities" . This processing gap creates significant costs for farmers, who often must ship livestock to facilities in Kentucky and North Carolina .
+
+**lowL, AI, and Robotics Integration:** Precision livestock management can be enhanced through lowL-powered embedded systems that monitor individual animal health, estrus cycles, and feeding behavior using sensors such as rumination collars, temperature boluses, and weight scales. AI models can analyze this data to predict calving dates, detect illness early, and optimize rotational grazing schedules based on pasture conditions. Virtual fencing technology, currently being studied in Southwest Virginia through a Virginia Tech Extension project, represents an emerging opportunity for more efficient grazing management . Virtual fencing systems use GPS-enabled collars to create digital boundaries that farmers can adjust from their phones, potentially reducing fencing costs and enabling more intensive grazing management .
+
+### Dairy: Production and Specialty Processing
+
+Dairy production has been a significant agricultural activity in the region, with growing opportunities for value-added processing. The Nash Creamery in Nickelsville demonstrates how small dairy farms can transition to processing and direct marketing to capture more value from their milk production. A $9,000 VCEDA Seed Capital Matching Grant helped the Nash family transform their raw milk dairy operation into a Grade A Virginia Department of Health-certified creamery . The creamery began production in December 2020 with 23 gallons of whole milk and expanded to 200 gallons per week within four months, producing Grade A white milk, chocolate milk, and buttermilk sold in seven locations across the region . As Garland Nash observed: "This venture is proving that small farmers can make it. You don't have to have thousands and thousands of acres and thousands of cows to make it" .
+
+The Duchess Dairy expansion in Wythe County demonstrates the potential for scaling dairy processing in the region. The family-owned operation has been in the Huffard family for more than four generations, raising registered Jersey cattle to produce milk on their dairy farms . In 2010, the family formed Duchess Dairy Products and began processing and bottling milk from their herds . Today, the company produces approximately 7,000 gallons of traditional and flavored milk per week, available in retail stores across Southern and Southwest Virginia . In December 2024, Duchess Dairy announced an approximately $895,000 expansion to add a production line of churned butter, supported by a $25,000 Facility Grant from the Governor's Agriculture and Forestry Industries Development Fund .
+
+**lowL, AI, and Robotics Integration:** Automated milking systems using lowL firmware for real-time control of milking cups, pulsation, and milk flow monitoring can improve efficiency and animal welfare. AI analytics can predict milk yield, detect mastitis early through conductivity and somatic cell count analysis, and optimize feeding schedules based on individual cow production. Temperature and humidity sensors with lowL controllers can optimize storage conditions for milk and dairy products.
+
+### Sheep and Goats: Meat, Milk, Fiber Production
+
+Sheep and goat production offers diversification opportunities for livestock farmers in the region. These animals can graze on terrain unsuitable for cattle and produce meat, milk, and fiber that command premium prices in specialty markets. Green Sprig Ag in Southwest Virginia is piloting an innovative system that integrates sheep into crop production, using livestock to graze weeds in wide-row corn fields while improving soil health . The project is demonstrating that incorporating livestock can "promote a soil health principle" while presenting "an economic case" for diversification .
+
+**lowL, AI, and Robotics Integration:** Automated weigh-crate systems with lowL control can support selective breeding programs by tracking individual animal performance and genetic traits. Machine vision and robotics can be applied to fiber sorting and grading, improving efficiency of wool and mohair processing.
+
+### Poultry: Broiler and Egg Production
+
+Poultry production provides income for many farms in the region. Broiler and egg production benefit from the region's climate and transportation access. The growing demand for locally produced poultry creates market opportunities for producers who can meet quality standards.
+
+**lowL, AI, and Robotics Integration:** Automated environmental control systems for poultry houses using lowL can monitor and adjust temperature, lighting, and ventilation. AI-driven monitoring of bird behavior can detect disease outbreaks early. Robotic egg collection and processing can improve efficiency.
+
+### Heritage Breeds: Genetic Diversity and Specialty Markets
+
+The preservation of heritage livestock breeds represents both a conservation priority and a market opportunity. The Mountain Pleasure Horse, developed in the Appalachian Mountains of Eastern Kentucky, demonstrates the value of preserving regional genetic heritage . These horses are descended from the smooth-gaited horses that came to America with the first settlers, and they have been bred for "160 traceable years" in the Appalachian region .
+
+Heritage cattle breeds like the Hereford, which has been part of Appalachian agriculture for generations, represent genetic resources that can be valuable for breeding programs and specialty markets . The preservation of genetic diversity through heritage breed programs can support adaptation to changing environmental conditions and market demands.
+
+### Rotational Grazing: Pasture Health and Productivity
+
+Rotational grazing is a grazing management system that has numerous environmental and economic benefits. By dividing grazing areas into smaller paddocks and rotating livestock through them, farmers allow pastures time to regenerate. This improves forage quality and quantity, facilitates deeper root systems and enhances soil structure, leading to more resilient pastures and increased productivity over time .
+
+The Dragonfly Farms operation in Louisa County demonstrates how regenerative grazing practices can transform degraded land into productive pasture. Bruce and Katherine Johnson converted 150 acres of eroded row-crop land into a diverse pasture system using intense rotational grazing with 100 cows and 40 ewes . By limiting grazing to one to two days per paddock, they "eliminated overgrazing of any one area, reducing soil erosion and decreasing runoff into nearby waterways" . The operation now produces 100% grass-fed meat sold throughout the Richmond area .
+
+Tim Alderson's A-Plus Farms demonstrates the economic benefits of rotational grazing. By separating cattle into two herds and creating 19 smaller paddocks of 10 to 13 acres, he rotates cattle every three days in the summer, giving paddocks approximately 60 days of growth . Alderson reports: "We have better herd health. Our resources are extended more with rotational grazing. Creeks are clear and ponds are not red with sediment" .
+
+**lowL, AI, and Robotics Integration:** Virtual fencing technology represents an emerging opportunity for more efficient grazing management. The Virginia Tech Extension study, supported by the Virginia Tobacco Region Revitalization Commission and local partners, is testing virtual fencing systems in Southwest Virginia . The systems use GPS-enabled collars that allow farmers to set virtual boundaries from their phones, potentially reducing fencing costs and enabling more intensive grazing management . This technology could be particularly valuable for farmers who lease land where installing traditional fencing is not practical .
+
+### Veterinary Support: Animal Health Services
+
+Access to veterinary services is essential for livestock health and productivity. The region faces a significant shortage of large animal veterinarians, which constrains livestock production and economic growth. Governor Youngkin announced a $20,000 AFID Planning Grant for Russell County to develop an incentive program to recruit large animal veterinarians, combined with $20,000 from the Virginia Tobacco Region Revitalization Commission . Russell County is donating 2.3 acres of land to house facilities and equipment leased to prospective veterinarians . "This incentive program will be a great benefit to Russell County cattle producers and other farmers in the area," noted Ernie McFaddin, Executive Director of the Russell County Industrial Development Authority .
+
+The Health Wagon's veterinary clinic project in Wise County represents another innovative approach to addressing veterinary service gaps. The nonprofit, known for providing healthcare to medically underserved people in Appalachia, is building a 4,200-square-foot facility that will offer affordable animal care, including low-cost spay and neuter operations, vaccinations, urgent surgeries, and diagnostics . The clinic is expected to "create jobs and provide training opportunities for veterinary students" . The project is supported by Abandoned Mine Land Economic Revitalization awards and will be located on the Health Wagon's medical campus on land donated by the Wise County Industrial Development Authority .
+
+**lowL, AI, and Robotics Integration:** Telemedicine for large animal veterinary services is a growing area of opportunity. Farmers can use lowL-connected sensors and cameras to transmit animal health data to remote veterinarians for diagnosis and treatment recommendations. AI-powered diagnostic tools can analyze images and data to identify health issues early.
+
+---
+
+## Crop Farming
+
+### Hay and Forage: Production and Premium Markets
+
+Hay and forage production supports livestock operations throughout the region. Improving hay quality and developing markets for premium hay can increase farm income. The growing demand for high-quality forage in equine and dairy markets creates opportunities. Cover crop integration, as demonstrated by Green Sprig Ag's intercropping system, can improve soil health while providing additional forage .
+
+**lowL, AI, and Robotics Integration:** Sensor integration via lowL can be applied to automated baling and moisture testing, enabling real-time quality assessment. AI-driven crop health monitoring using drone imagery can optimize harvest schedules and predict yield.
+
+### Corn and Grains: Feed and Specialty Markets
+
+Corn production supports livestock feed and specialty products. Green Sprig Ag's innovative intercropping system demonstrates how corn production can be integrated with livestock grazing to improve profitability and soil health. The system uses wide-row, non-GMO corn seeded on 60-inch rows, with sheep grazing weeds between rows before harvest . Data from Phase I showed over 9,000 pounds of cover crop biomass at harvest, demonstrating the potential of the approach .
+
+**lowL, AI, and Robotics Integration:** Autonomous harvesting systems using robotics and AI can improve efficiency and reduce labor requirements for grain production. lowL-based sensor networks can monitor grain bin temperature, moisture, and aeration, preventing spoilage and maintaining quality.
+
+### Vegetables and Specialty Crops: Fresh and Processed Markets
+
+Vegetable and specialty crop production offers opportunities for farmers seeking to diversify their operations. The Virginia Produce Company in Carroll County demonstrates how processing capacity can support regional vegetable production. The company's hydro coolers extend the shelf life of produce by 5-7 days, enabling market access and reducing waste.
+
+**lowL, AI, and Robotics Integration:** Automated harvesting for high-value crops can be implemented using robotics and computer vision. lowL systems can manage precision irrigation systems based on soil moisture and weather data. AI is well-suited for crop health analysis via drone imagery and yield prediction.
+
+### Medicinal Herbs: Ginseng, Goldenseal, Echinacea
+
+Medicinal herb production offers opportunities for farmers and forest landowners. Appalachia is globally recognized as a key supplier of non-timber forest products, with nearly half of the woodland medicinal species in the global nutraceutical market coming from the region. The Appalachian Harvest Herb Hub in Duffield provides a model for processing and marketing medicinal herbs.
+
+**lowL, AI, and Robotics Integration:** Environmental monitoring for controlled environment agriculture can be managed with lowL systems. Automated harvesting and processing systems with robotics can improve efficiency and product quality. AI can analyze soil and tissue samples to optimize fertilization and harvest timing.
+
+### Mushrooms: Wild and Cultivated Specialty Production
+
+Mushroom production offers opportunities for the region's forested areas. Wild mushrooms command premium prices in specialty markets, and cultivated specialty mushrooms can be produced in controlled environments.
+
+**lowL, AI, and Robotics Integration:** Automated climate control for mushroom cultivation can be managed using lowL systems. Robotics can be applied to harvesting in vertical farms. AI-driven disease and pest detection using visual monitoring can protect crops and maintain yields.
+
+### Honey and Maple Syrup: Branding and Marketing
+
+Honey and maple syrup production offer opportunities for value-added products. The growing demand for locally produced specialty foods creates market opportunities. The Virginia Cooperative Extension provides technical support for beekeeping and maple syrup production.
+
+**lowL, AI, and Robotics Integration:** Automated sap collection systems for maple syrup production can use lowL for precision flow monitoring. Beehive monitoring systems with lowL sensors can track temperature, humidity, and weight to optimize hive health.
+
+### Hemp: Fiber, Seed, and Extract Production (Subject to Law)
+
+Hemp production offers opportunities for fiber, seed, and extract production, subject to applicable law. The growing markets for hemp products create opportunities for farmers who can navigate the regulatory requirements.
+
+**lowL, AI, and Robotics Integration:** Automated harvesting and processing can be implemented using robotics and lowL control. AI is applicable for optimizing extraction processes and analyzing cannabinoid profiles.
+
+---
+
+## Sustainable and Regenerative Agriculture
+
+### Soil Health and Conservation Practices
+
+The region's farmers are increasingly adopting conservation practices that improve soil health while protecting water quality and wildlife habitat. The Virginia Agricultural Best Management Practices Cost-Share (VACS) Program supports farmers in implementing practices including cover cropping, no-till, riparian buffers, rotational grazing, and nutrient management planning . These practices "work together to minimize soil disturbance and increase diversity in regenerative systems" .
+
+The Green Sprig Ag project demonstrates how conservation practices can be integrated with livestock production to improve soil health and farm viability. The project aims to "improve the quality of life for grain producers by providing options for diversification of commodities and income," and "provide a means to protect the agrarian landscape and rural communities by allowing for preservation and expansion of thriving agricultural enterprises" .
+
+### Intercropping and Diversification
+
+Intercropping—growing two or more crops together—can improve land use efficiency and reduce input costs. Green Sprig Ag's system of planting wide-row corn and seeding cover crops between rows allows sheep to graze weeds during the growing season, reducing herbicide use while providing additional forage . This system "promotes a soil health principle by incorporating livestock" and "presents an economic case" through diversification of income .
+
+**lowL, AI, and Robotics Integration:** AI-driven crop modeling can optimize intercropping and diversification strategies by analyzing soil conditions, weather data, and market prices. Robotics can be applied to precision planting and harvesting in diversified systems.
+
+---
+
+## Economic Strategies for Agricultural Growth
+
+### Value-Added Processing
+
+Value-added processing—turning raw agricultural products into finished goods—captures more economic value within the region. Nash Creamery's transformation from raw milk production to dairy processing demonstrates the economic potential of value-added processing. The operation now produces 200 gallons of milk per week sold in seven retail locations . Duchess Dairy's expansion into butter production similarly demonstrates how value-added processing can grow a farm business and meet consumer demand .
+
+### Market Development and Access
+
+Developing markets for regional agricultural products requires marketing, branding, and distribution. The Virginia Quality Assured Marketing Program has successfully marketed feeder calves, adding over $10 million in value for regional producers . Direct marketing through farmers markets, farm stands, and direct-to-consumer sales allows farmers to capture retail prices and build customer relationships.
+
+### Technology Adoption
+
+Technology adoption can improve productivity and reduce costs. Virtual fencing technology, currently being studied in Southwest Virginia, represents an emerging opportunity for more efficient grazing management . The Virginia Tech Extension study is assessing whether virtual fencing can "reduce maintenance costs and improve profitability" while addressing technology concerns . The study includes farmers from Lee, Scott, Wise, Russell, Grayson, Carroll, Wythe, and Bland counties .
+
+### Workforce Development
+
+Workforce development is essential for agricultural growth. The veterinary incentive program in Russell County demonstrates how strategic investments can address workforce gaps. The incentive program will "help recruit large animal veterinarians, enhance the availability and quality of veterinary services, provide financial and logistical support to new veterinarians and launch a corresponding education program with regional veterinary schools" .
+
+### Financing and Support
+
+Access to financing and support services is essential for agricultural growth. The VCEDA Seed Capital Matching Fund has supported agricultural businesses including Nash Creamery . The AFID Facility Grant program supported Duchess Dairy's expansion . The VACS Program supports conservation practice implementation through cost-sharing .
+
+---
+
+## Conclusion
+
+The farming sector of the Crooked Road and U.S. Route 23 corridor is undergoing a transformation that leverages heritage and innovation. Beef cattle operations are adopting improved genetics and rotational grazing practices that improve productivity and environmental outcomes. Dairy farms are expanding into value-added processing, capturing more value from milk production and meeting growing consumer demand. Diversification into sheep, goat, and specialty crop production is creating new income streams. Conservation practices are improving soil health and protecting natural resources.
+
+The strategic growth of farming in the region requires continued investment in processing infrastructure, workforce development, and technology adoption. The stories of Nash Creamery, Duchess Dairy, and A-Plus Farms demonstrate that farming in Southwest Virginia can be profitable and sustainable when farmers are supported with the right resources and market connections. As Garland Nash observed: "This venture is proving that small farmers can make it. You don't have to have thousands and thousands of acres and thousands of cows to make it" .
+
+### Crop Farming
+
+Crop farming in the Crooked Road and U.S. Route 23 corridor represents a significant opportunity for economic diversification and growth. The region's climate, soils, and topography support a wide range of crops, from traditional grains and forages to specialty vegetables, fruits, and medicinal plants. Farmers across Southwest Virginia are adapting to changing market conditions, adopting innovative practices, and exploring new opportunities that can strengthen the region's agricultural economy and rural communities.
+
+#### Hay and Forage: Production and Premium Markets
+
+Hay and forage production supports livestock operations throughout the region. In Wise County, hay production is the primary crop, with $916,000 in sales. The county's land use includes 3,513 acres of cropland, 4,589 acres of pastureland, and 6,629 acres of woodland, reflecting the importance of forage production for livestock operations.
+
+Improving hay quality and developing markets for premium hay can increase farm income. The growing demand for high-quality forage in equine and dairy markets creates opportunities. The Virginia Cooperative Extension provides technical support for forage management and marketing. Forages (hay, pasture, and silage) are the primary source of nutrition for beef cattle and sheep, as well as horses and goats, and forage quality and quantity can have significant impacts upon cost of production.
+
+The GRASS (Grazing for Appalachian Sustainability) project, led by West Virginia University Extension in partnership with Virginia Tech, is working to improve knowledge and management practices for small farmers in Central Appalachia. The project provides farmers with educational and technical assistance, as well as financial incentives, to support the transition from conventional management to sustainable conservation practices on working lands. Approved USDA Natural Resources Conservation Service (NRCS) practices include silvopasture, prescribed grazing, nutrient management, and pasture and hay planting. Participating farmers may qualify to receive an annual cash incentive, training, and marketing assistance.
+
+**lowL, AI, and Robotics Integration:** Sensor integration via lowL can be applied to automated baling and moisture testing, enabling real-time quality assessment during harvest. AI-driven crop health monitoring using satellite and drone imagery can optimize harvest schedules and predict yield. Robotic mowing and baling systems can reduce labor requirements and improve harvest timing.
+
+#### Corn: Feed and Specialty Markets
+
+Corn production supports livestock feed and specialty products. While production levels in the region are limited by topography and soil conditions, corn remains an important component of the regional agricultural economy. Major extensively grown cash crops in Virginia include corn, soybeans, wheat, and barley. Virginia Cooperative Extension conducts annual on-farm corn research through a cooperative effort with producers and the Virginia agribusiness community, supported by the Virginia Corn Check-Off Fund through the Virginia Corn Board.
+
+Innovative approaches to corn production are being piloted in Southwest Virginia. Green Sprig Ag's intercropping system, funded by a SARE grant, explores planting wide-row, non-GMO corn on 60-inch rows with sheep grazing weeds between rows before harvest. This dual approach promotes soil health by incorporating livestock and presents an economic case through diversification of income and enterprises. Data from Phase I showed over 9,000 pounds of cover crop biomass at harvest, and the project aims to expand to additional farms in Southwest Virginia with assistance from Virginia Cooperative Extension and Virginia Tech.
+
+The Green Sprig Ag project has been thoughtfully designed to include four phases of action. Phase II (2025-2027) focuses on fully implementing the system to maximize success on a small scale, with data collected and analyzed from the cropping system, livestock system, overall economics, soil health, and employment analytics. Phase III will involve developing a framework and structure to expand this project on a larger scale, implementing on at least 2 other farms in southwest Virginia. Phase IV will work with partners to look closer at the social aspects of the system and evaluate the impact of implementing this system on community viability and whole farm health. The project aims to improve the quality of life for grain producers by providing options for diversification of commodities and income, and to protect the agrarian landscape and rural communities by allowing for preservation and expansion of thriving agricultural enterprises.
+
+**lowL, AI, and Robotics Integration:** Autonomous harvesting systems using robotics and AI can improve efficiency and reduce labor requirements for grain production. lowL-based sensor networks can monitor grain bin temperature, moisture, and aeration, preventing spoilage and maintaining quality. AI-driven yield prediction and pest detection using drone imagery can support decision-making for planting and harvest timing.
+
+#### Specialty Vegetables: Fresh and Processed Markets
+
+Vegetable and specialty crop production offers significant opportunities for the region. Virginia's vegetable industry includes over 1,200 growers producing 40,000 acres of vegetables annually, with farm cash receipts totaling $100 million. Commercial horticultural producers must control costs while maintaining yield and quality using production practices that protect the environment and ensure food safety. Educational strategies include grower schools, regional conferences, demonstrations, tours, electronically transmitted newsletters, and production guides.
+
+Appalachian Sustainable Development (ASD), founded in 1995, provides support for vegetable and specialty crop production. ASD works through five focus areas: Workforce Development, Agriculture Education, Food Access, Economic Development, and Resource Management. ASD's local food purchase assistance program, despite recent federal funding challenges, purchases produce like vegetables, beef, and dairy from the 40 farmers they work with to pack food boxes and donate to local families and food pantries, creating between 1,200 and 2,000 food boxes a week. As Hayden Lyons, a farmer who sells 95% of his vegetables to the program, noted: "I understand why they made the cuts but as far as the farmer side of things...I think that we need to have something back. It's very helpful to farmers, the program that we have".
+
+**lowL, AI, and Robotics Integration:** Automated harvesting for high-value crops can be implemented using robotics and computer vision. lowL systems can manage precision irrigation systems (drip and pivot control) based on soil moisture and weather data. AI is well-suited for crop health analysis via drone imagery (NDVI) and yield prediction. Controlled environment agriculture (greenhouses, high tunnels) can be managed with lowL for automated climate control.
+
+#### Orchards: Apples, Peaches, and Other Fruits
+
+Fruit production is a significant component of Virginia's agricultural economy. Virginia produces 19,000 acres of apples and 1,800 acres of peaches. Fruit is utilized by two large fruit processors and more than 50 wineries. Strawberries and bramble fruits are produced on a few hundred acres for direct marketing, with annually increasing acreage as the state urbanizes.
+
+Pumpkins are Virginia's 20th top farm commodity, and Virginia Cooperative Extension offers educational programs on growing pumpkins for wholesale and for agritourism operations. Sweet potatoes have seen growing demand, with American consumption of sweet potatoes almost doubling since the late 1990s. Virginia producers have an opportunity to meet growing local demand, and Virginia Cooperative Extension at Virginia State University works to help commercial, small-scale, and backyard growers learn to produce, manage, and market sweet potatoes.
+
+The Southwest Virginia region's climate and soils are suited to orchards, and the growing demand for locally produced fruit creates market opportunities. The Maryland-Delaware-Virginia (MD-DE-VA) Fruit and Vegetable Convention provides educational opportunities for growers to learn about production, marketing, and pest management.
+
+**lowL, AI, and Robotics Integration:** Automated harvesting systems using robotics and computer vision can improve efficiency for fruit picking and sorting. lowL systems can manage precision irrigation based on soil moisture and weather data. AI is well-suited for pest and disease detection using drone imagery and field sensors. Cold storage monitoring with lowL sensors can extend shelf life and reduce post-harvest losses.
+
+#### Vineyards: Wine Grape Production
+
+Virginia's wine industry has grown significantly, with more than 50 wineries utilizing fruit produced on 1,400 acres of grapes. The state's wine grape production supports a growing wine tourism industry that attracts visitors to vineyards and tasting rooms throughout the Commonwealth. The Southwest Virginia region has potential for vineyard expansion, with soils and climate suited to grape production. The Maryland-Delaware-Virginia Fruit and Vegetable Convention provides educational opportunities for grape growers.
+
+**lowL, AI, and Robotics Integration:** Automated monitoring of vineyard conditions, including soil moisture, temperature, and humidity, can be managed with lowL sensors. Precision irrigation systems controlled by lowL can optimize water use. AI-powered disease detection using visual monitoring can support integrated pest management. Robotics for harvest and pruning can reduce labor requirements.
+
+#### Hemp: Fiber, Seed, and Extract Production (Subject to Law)
+
+Hemp production offers opportunities for fiber, seed, and extract production, subject to applicable law. The growing markets for hemp products—including fiber for textiles and construction materials, seed for food products, and extracts for health products—create opportunities for farmers who can navigate the regulatory requirements.
+
+**lowL, AI, and Robotics Integration:** Automated harvesting and processing (decortication, separation) can be implemented using robotics and lowL control. AI is applicable for optimizing extraction processes (CO₂ or ethanol) and analyzing cannabinoid profiles, ensuring consistent product quality and regulatory compliance. Climate monitoring and control in processing facilities can be managed with lowL.
+
+#### Medicinal Herbs: Ginseng, Goldenseal
+
+Medicinal herb production offers significant opportunities for farmers and forest landowners in the Crooked Road corridor. Appalachia is globally recognized as a key supplier of non-timber forest products, with nearly half of the woodland medicinal species in the global nutraceutical market coming from the region. The Appalachian Harvest Herb Hub in Duffield provides a model for processing and marketing medicinal herbs. The Hub provides seed-to-sale training for farmers, access to medicinal herb processing and sales services, and financial and technical assistance for agroforestry implementation.
+
+The ASSETS program (Accelerating Silvopasture Adoption and Carbon Sequestration through Emerging Markets and Technologies), offered in partnership with Working Trees, Virginia Tech, and Appalachian Sustainable Development, provides financial assistance of up to $1,500 per acre upfront and new revenue of up to $90 per acre annually from carbon credit sales for farmers in Virginia, Tennessee, and North Carolina. Cost savings of up to $100 per acre annually on feed are also possible through silvopasture implementation.
+
+**lowL, AI, and Robotics Integration:** Environmental monitoring for controlled environment agriculture (greenhouses and high tunnels) can be managed with lowL systems that track temperature, humidity, light, and soil conditions. Automated harvesting and processing systems, including drying, cutting, and sorting with robotics, can improve efficiency and product quality. AI can analyze soil and tissue samples to optimize fertilization and harvest timing.
+
+#### Greenhouse Agriculture: Controlled Environment Production
+
+Greenhouse agriculture represents a significant growth opportunity for the Crooked Road corridor. Indoor agriculture enables year-round production, reduces pest pressures, and improves product quality and consistency. The Pluck'd greenhouse project in Carroll County demonstrates the scale of greenhouse agriculture possible in the region. United Kingdom-based Oasthouse Ventures and its subsidiary Pluck'd began planting tomatoes at a new 65-acre greenhouse development in Carroll County in early 2025, creating 265 full- and part-time positions. The project is a result of collaboration between several localities, with Carroll County splitting tax revenue equally with Grayson County and Galax. The project required extensive infrastructure investment, including natural gas, water, sewer, and electrical substation, over several years of preparation.
+
+Virginia State University's Small Farm Outreach Program is also supporting controlled environment agriculture through research and technical assistance. Dr. Joshua Dusci, VSU's Indoor Agriculture Extension Associate, received a grant from the Virginia Department of Consumer Services to develop the project in collaboration with Virginia Tech.
+
+**lowL, AI, and Robotics Integration:** Automated climate control (temperature, humidity, CO₂, light) for greenhouse environments can be managed using lowL systems, ensuring optimal growing conditions. Robotics can be applied to planting, harvesting, and packaging operations, reducing labor costs. AI-driven crop health monitoring using visual sensors and spectral analysis can detect disease and nutrient deficiencies early, improving yields and quality. The Pluck'd greenhouse project, while not explicitly described as using these technologies, represents the type of large-scale controlled environment operation that could benefit from such integration.
+
+---
+
+## Sustainable and Regenerative Agriculture
+
+### Soil Health and Conservation Practices
+
+The region's farmers are increasingly adopting conservation practices that improve soil health while protecting water quality and wildlife habitat. Soil is one of Virginia's basic natural resources, and we are dependent upon the soil as a primary resource of supporting food, fuel, and fiber production. Soils supply nutrients necessary for vigorous plant growth, affect air pollution and vegetation cover that prevents erosion, and provide a rooting zone and structural support for plants.
+
+The Green Sprig Ag intercropping system is designed to build soil health through reduced tillage, cover cropping, and livestock integration. The project includes soil sampling and analysis through the Cornell Soil Health Lab, Virginia Tech, and NC State University to measure soil health indicators including compaction, organic matter, biological activity, and total carbon. The plan is to sample every other year for the next 10 years as the project progresses and each field goes through a full rotation of crops to account for the impact of the overall system.
+
+### Intercropping and Diversification
+
+Intercropping—growing two or more crops together—can improve land use efficiency and reduce input costs. Green Sprig Ag's system of planting wide-row corn and seeding cover crops between rows allows sheep to graze weeds during the growing season, reducing herbicide use while providing additional forage. The project is designed to "improve the quality of life for grain producers by providing options for diversification of commodities and income" and to "protect the agrarian landscape and rural communities by allowing for preservation and expansion of thriving agricultural enterprises".
+
+The GRASS project promotes a shift from conventional management practices to soil health-conscious practices on working lands and aims to expand existing markets for Appalachian cattle, beef, and sheep. Approved NRCS practices include alley cropping, silvopasture, prescribed grazing, and nutrient management.
+
+### Value-Added Processing and Market Development
+
+Developing markets for regional agricultural products requires marketing, branding, and distribution. The USDA Value-Added Producer Grant program provides up to $250,000 to agricultural producers seeking to turn their raw crop and commodity into a new, more profitable finished product. The grant can be used to cover half the cost of a project, including working capital to help produce or market the product, or funding to conduct a feasibility study. Recent VAPG grants in the region have supported mushroom processing improvements, market expansion for berry farms, vegetable processing and packaging, and bison meatball production.
+
+---
+
+## Economic Strategies for Crop Farming Growth
+
+### Market Development and Access
+
+Developing markets for regional crop products requires marketing, branding, and distribution. Local food systems, farmers markets, institutional purchasing, and direct-to-consumer sales can increase farm income. The Virginia Farmers Market Association supports farmers markets and direct marketing opportunities. Branding that emphasizes regional identity adds value.
+
+### Technology Adoption
+
+Technology adoption can improve productivity and reduce costs. Precision agriculture, including GPS-guided equipment, variable rate application, and soil sensors, can improve yields and reduce input costs. The Green Sprig Ag project has invested in custom no-till drilling equipment and is exploring the use of No-Fence virtual fencing technology to allow for more intensive grazing.
+
+### Financial and Technical Assistance
+
+Access to financing and technical assistance is essential for crop farming growth. The USDA Value-Added Producer Grant program supports value-added processing and marketing. The ASSETS program provides financial assistance for silvopasture implementation. Virginia Cooperative Extension provides technical assistance for crop production and marketing.
+
+---
+
+## Conclusion
+
+The crop farming sector of the Crooked Road and U.S. Route 23 corridor is undergoing a transformation that leverages heritage and innovation. Hay and forage production, the region's primary crop, is being enhanced through improved quality standards and market development. Corn production is being integrated with livestock systems to improve soil health and diversify farm income. Specialty vegetables, orchards, and vineyards are creating opportunities for value-added products and direct marketing. Medicinal herbs and greenhouse agriculture represent emerging growth sectors.
+
+The strategic growth of crop farming requires continued investment in research, education, market development, and technology adoption. The Virginia Tech and Virginia State University Cooperative Extension systems provide research-based information and technical assistance. SARE grants support farmer-led innovation. Public-private partnerships like the GRASS project provide financial incentives for conservation practice adoption. These investments in sustainable and innovative crop production create a foundation for economic growth that honors the region's heritage while embracing modern technologies and markets.
+
+### Sustainable Farming Practices
+
+Sustainable farming practices are essential for the long-term viability of agriculture in the Crooked Road and U.S. Route 23 corridor. These practices protect soil, water, and wildlife while improving farm productivity and profitability. Across the region, farmers are adopting conservation practices that build soil health, reduce input costs, and create new market opportunities. The Virginia Agricultural Best Management Practices Cost-Share (VACS) Program supports farmers in implementing practices including cover cropping, no-till, riparian buffers, rotational grazing, and nutrient management planning.
+
+---
+
+#### Conservation: Soil, Water, Wildlife Protection
+
+Soil is one of Virginia's basic natural resources, and we are dependent upon the soil as a primary resource of supporting food, fuel, and fiber production. Soils supply nutrients necessary for vigorous plant growth, affect air pollution and vegetation cover that prevents erosion, and provide a rooting zone and structural support for plants. According to the World Bank, over 500,000 tons of soil are lost each year in Virginia due to water and wind erosion. The economic implications of soil erosion are profound, reducing the long-term production capacity of farmland that farmers and landowners rely on to generate revenue.
+
+The Virginia Agricultural Best Management Practices Cost-Share (VACS) Program, managed by the Virginia Department of Conservation and Recreation, provides financial and technical assistance to farmers who install agricultural best management practices that protect water quality and improve soil health. Practices eligible for cost-share include animal waste management, cover crops, nutrient management planning, pasture management systems, riparian buffers, and stream restoration.
+
+The Green Sprig Ag intercropping system demonstrates how conservation practices can be integrated with crop and livestock production. The project includes soil sampling and analysis through the Cornell Soil Health Lab, Virginia Tech, and NC State University to measure soil health indicators including compaction, organic matter, biological activity, and total carbon. The project plan includes sampling every other year for the next 10 years to measure the impact of the overall system on soil health. This approach provides farmers with data to make informed decisions about soil conservation investments, improving long-term productivity while protecting natural resources.
+
+Water quality protection is a critical component of conservation. Agricultural best management practices (BMPs) help reduce the discharge of pollutants from farming operations into local streams and rivers. These BMPs include reduced tillage and no-till farming, cover crops, nutrient management, and riparian buffers along streams. The Virginia Cooperative Extension provides technical assistance and educational programs to help farmers implement water quality BMPs.
+
+Wildlife habitat protection is integrated into many conservation practices. Rotational grazing, riparian buffers, and cover crops provide habitat for birds, pollinators, and other wildlife. The USDA Natural Resources Conservation Service (NRCS) provides technical assistance and financial incentives for conservation practices that benefit wildlife.
+
+**lowL, AI, and Robotics Integration:** LowL-powered sensor networks can monitor soil moisture, temperature, and nutrient levels in real time, providing data for precision conservation. AI models can analyze conservation practice effectiveness and optimize placement of practices across landscapes. Drones and robotics can be used for monitoring wildlife habitat and conservation practice implementation.
+
+---
+
+#### Organic Production: Certification and Premium Markets
+
+Organic production offers premium markets for farmers willing to meet certification requirements. Organic farming emphasizes soil health, biological pest control, and the absence of synthetic inputs. The growing demand for organic products creates market opportunities for farmers who can achieve and maintain organic certification.
+
+The USDA Organic certification process requires farmers to develop an organic system plan, implement organic practices for three years, and undergo annual inspections. The Virginia Department of Agriculture and Consumer Services provides information on organic certification and market development. The transition to organic production can be challenging, requiring farmers to adapt their management practices and marketing strategies.
+
+Virginia's diverse agricultural landscape provides opportunities for organic production across crop and livestock sectors. Organic grain, vegetable, fruit, and livestock production are all viable in the region. The growing demand for locally produced organic food creates opportunities for direct marketing through farmers markets, CSAs, and farm stands.
+
+**lowL, AI, and Robotics Integration:** AI can analyze soil and tissue samples to optimize fertility management in organic production. LowL-connected sensors can monitor crop health and detect pest pressure early, supporting integrated pest management. Robotics can be applied to weed control and harvesting in organic systems.
+
+---
+
+#### Integrated Pest Management: Biological and Cultural Controls
+
+Integrated Pest Management (IPM) is a science-based approach to pest management that emphasizes prevention, monitoring, and control. IPM utilizes biological controls (natural predators, parasitoids), cultural controls (crop rotation, sanitation), and chemical controls only when necessary. Virginia Cooperative Extension provides IPM training and technical assistance for farmers across the Commonwealth.
+
+IPM is essential for reducing pesticide use, protecting beneficial insects, and maintaining crop quality. The Green Sprig Ag intercropping system demonstrates IPM principles by using livestock to graze weeds, reducing the need for herbicides. The system reduces herbicide use while providing additional forage for sheep, demonstrating the potential for integrating biological and cultural controls into production systems.
+
+The Virginia Agricultural Best Management Practices Cost-Share (VACS) Program supports IPM implementation through nutrient management planning and other practices. The Virginia Cooperative Extension offers workshops, field days, and publications on IPM strategies for crops including corn, soybeans, vegetables, and fruits.
+
+**lowL, AI, and Robotics Integration:** AI can analyze visual and sensor data to detect pest pressure early, enabling targeted interventions. LowL-connected traps and monitoring stations can track pest populations in real time. Robotics can be applied to precision application of biological controls.
+
+---
+
+#### Water Management: Efficient Irrigation and Conservation
+
+Water management is essential for crop production and environmental protection. Efficient irrigation systems can improve yields while conserving water and reducing runoff. The Green Sprig Ag intercropping system uses limited irrigation as needed, with soil moisture monitoring to optimize water application. This approach reduces water use while maintaining crop yields.
+
+The Virginia Cooperative Extension provides technical assistance for irrigation system design, management, and water quality testing. Educational programs include irrigation scheduling, soil moisture monitoring, and water conservation strategies. The Virginia Agricultural Best Management Practices Cost-Share (VACS) Program supports water management practices including irrigation efficiency improvements and riparian buffers.
+
+Precision irrigation systems can be controlled by lowL-based sensors that measure soil moisture, weather conditions, and crop water use. AI can analyze these data to optimize irrigation scheduling, reducing water use while maintaining yields. Drones and satellite imagery can be used to monitor crop water stress and guide irrigation decisions.
+
+**lowL, AI, and Robotics Integration:** LowL-controlled irrigation systems can adjust water application based on real-time soil moisture and weather data. AI can predict water needs based on crop stage and weather forecasts. Robotics can be applied to irrigation system maintenance and repair.
+
+---
+
+#### Cover Crops: Soil Protection and Fertility
+
+Cover crops are planted to protect and improve soil during periods when cash crops are not growing. Cover crops provide numerous benefits including soil protection, nutrient management, weed suppression, and wildlife habitat. The Green Sprig Ag intercropping system uses cover crops between rows of wide-row corn, with sheep grazing the cover crops during the growing season. This system builds soil health while providing additional forage for livestock.
+
+The Virginia Agricultural Best Management Practices Cost-Share (VACS) Program supports cover crop implementation, providing financial incentives for farmers who plant cover crops. Cover crops are an essential component of soil health management, reducing erosion, improving soil structure, and increasing organic matter. The Virginia Cooperative Extension provides technical assistance for cover crop selection, planting, and management.
+
+Cover crops can be integrated into many production systems, including corn, soybean, vegetable, and small grain production. The Green Sprig Ag project aims to demonstrate how cover crops can be integrated with corn production and livestock grazing, providing multiple benefits for farm profitability and soil health.
+
+**lowL, AI, and Robotics Integration:** AI can analyze soil health data to optimize cover crop selection and management. LowL-connected sensors can monitor cover crop biomass and soil health indicators. Robotics can be applied to cover crop planting and termination.
+
+---
+
+#### No-Till Farming: Soil Structure and Erosion Reduction
+
+No-till farming minimizes soil disturbance by planting crops without tillage. No-till farming improves soil structure, reduces erosion, and increases organic matter, supporting healthier soils. The Green Sprig Ag intercropping system uses no-till or reduced-till practices to maintain soil structure and reduce erosion. This approach is part of a systems-based strategy for improving soil health and farm productivity.
+
+No-till farming can reduce fuel and labor costs, improve soil water infiltration, and increase crop resilience to drought. The Virginia Agricultural Best Management Practices Cost-Share (VACS) Program supports no-till farming through financial incentives. The Virginia Cooperative Extension provides technical assistance for no-till adoption, including equipment selection, planting, and management.
+
+No-till farming is often combined with cover crops, crop rotation, and nutrient management to build soil health. The Green Sprig Ag system demonstrates how no-till, cover crops, and livestock integration can work together to improve soil health while diversifying farm income.
+
+**lowL, AI, and Robotics Integration:** AI can analyze soil health data to optimize no-till management. LowL-connected sensors can monitor soil compaction and structure over time. Robotics can be applied to no-till planting and crop management.
+
+---
+
+## Advanced Technologies for Sustainable Farming
+
+### Intercropping and Cover Crop Systems
+
+The Green Sprig Ag intercropping system demonstrates how advanced technologies and sustainable practices can work together. The system, supported by SARE and VCEDA grants, is designed to improve soil health while providing economic diversification. The project includes four phases of action:
+
+Phase I included putting management in place to demonstrate the model on a large scale, gathering data from the system, and learning how to optimize the system. Phase I was successfully completed by Green Sprig Ag.
+
+Phase II (2025-2027) will implement the system to maximize success on a small scale. Data will be collected and analyzed from the cropping system, livestock system, overall economics, soil health, and employment analytics. This includes soil sampling through the Cornell Soil Health Lab, Virginia Tech, and NC State University to measure soil health indicators. The Phase II budget of $246,260 is funded in part by SARE.
+
+Phase III will involve developing a framework and structure to expand this project on a larger scale, implementing on at least 2 other farms in southwest Virginia. Green Sprig Ag will work with Virginia Cooperative Extension and Virginia Tech to implement the system on 5-10 acre plots across farms, adapting the system to local conditions and soil types while continuing to measure success through soil health testing, economic assessments, and employment viability.
+
+Phase IV will work with partners to look closer at the social aspects of the system and evaluate the impact of implementing this system on community viability and whole farm health. The project aims to address systemic challenges in rural areas that drive community decline.
+
+The project has been thoughtfully designed to allow a "learning as we go" approach that maximizes the potential for adaptation of each phase to local conditions. The project aims to improve the quality of life for grain producers by providing options for diversification of commodities and income, and to protect the agrarian landscape and rural communities by allowing for preservation and expansion of thriving agricultural enterprises.
+
+### Silvopasture Implementation
+
+Silvopasture—integrating trees, forages, and livestock—is a climate-smart practice that can improve soil health, sequester carbon, and increase farm profitability. The ASSETS program (Accelerating Silvopasture Adoption and Carbon Sequestration through Emerging Markets and Technologies), offered by Working Trees with support from the USDA's Climate-Smart Commodities Partnership and regional partners, provides financial and technical support for silvopasture implementation.
+
+Farmers in the region can receive up to $1,500 per acre upfront, plus up to $90 per acre annually in new revenue from carbon credit sales. Cost savings of up to $100 per acre annually on feed are also possible. The program is offered in partnership with 20+ organizations, including Virginia Tech, Appalachian Sustainable Development, and Virginia Cooperative Extension. The program requires a minimum of 10 acres for implementation, with trees planted at a minimum of 50 trees per acre.
+
+### Carbon Sequestration and Ecosystem Services
+
+Carbon markets and ecosystem services payments are emerging as new income streams for farmers who adopt sustainable practices. The ASSETS program provides farmers with verified carbon credits through the Climate Action Reserve and Verra, with carbon credits certified for environmental integrity. Carbon markets are growing, with 64 carbon credit purchase agreements and over $1 billion in market value in 2023.
+
+---
+
+## Economic Strategies for Sustainable Agriculture
+
+### Market Development and Premiums
+
+Sustainable farming practices can command premium prices through certification and branding. The USDA Organic label provides premium prices for organic products. The ASSETS program demonstrates how carbon credits can create additional revenue streams. Direct marketing through farmers markets, CSAs, and farm stands can capture premium prices for sustainably produced products. The Virginia Farmers Market Association supports sustainable and organic producers.
+
+### Financial Incentives and Assistance
+
+Financial incentives are available to support sustainable agriculture adoption. The USDA Natural Resources Conservation Service provides financial assistance for conservation practices. The Virginia Agricultural Best Management Practices Cost-Share (VACS) Program provides cost-share for BMPs. The ASSETS program provides upfront financial assistance and carbon credit revenue. The USDA Value-Added Producer Grant program supports processing and marketing for value-added products.
+
+### Technical Assistance and Education
+
+Technical assistance and education are essential for sustainable agriculture adoption. Virginia Cooperative Extension provides research-based information and technical assistance. SARE grants support farmer-led innovation. The ASSETS program provides technical assistance for silvopasture implementation. The GRASS project provides educational and technical assistance for conservation practices.
+
+---
+
+## Conclusion
+
+Sustainable farming practices are essential for the long-term viability of agriculture in the Crooked Road and U.S. Route 23 corridor. Conservation practices protect soil, water, and wildlife while improving farm productivity and profitability. Organic production, integrated pest management, efficient water management, cover crops, and no-till farming all contribute to sustainable agriculture. Advanced technologies including lowL, AI, and robotics can support sustainable practices through precision agriculture, monitoring, and automation.
+
+The strategic growth of sustainable agriculture requires continued investment in research, education, and financial incentives. The Green Sprig Ag project demonstrates how innovative research partnerships can advance sustainable agriculture in the region. The ASSETS program demonstrates how carbon markets can create new revenue streams for farmers who adopt climate-smart practices. The GRASS project demonstrates how conservation practices can improve farm profitability and protect natural resources. These investments in sustainable agriculture create a foundation for economic growth that honors the region's heritage while embracing modern technologies and markets.
+
+### Agricultural Technology
+
+Agricultural technology is transforming farming in the Crooked Road and U.S. Route 23 corridor. Modern farms increasingly use data, sensors, and automation to improve productivity, reduce costs, and protect natural resources. For farmers in Southwest Virginia, these technologies offer opportunities to compete more effectively while preserving the region's agricultural heritage. Educational programs like the Agriculture STEM Academy at the Virginia Tech Southwest Center are introducing middle school students to these technologies, helping them see how science and technology are shaping the future of agriculture .
+
+---
+
+#### Precision Agriculture: GPS, Sensors, Data Analytics
+
+Precision agriculture uses GPS, sensors, and data analytics to manage crop production with greater accuracy. Farmers can analyze variability in soil, weather, and crop conditions to make site-specific management decisions. Virginia Cooperative Extension offers workshops where farmers and growers learn about precision agricultural practices that are economically feasible for farming operations of any size, helping them make good real-time decisions during the growing season and use technologies that increase yields, improve soil health, and decrease variability in the field .
+
+The practical value of precision agriculture is being demonstrated across the region. At the Virginia Tech Southwest Center's Agriculture STEM Academy, middle school students learn how farmers use tools such as GPS, sensors, and smart equipment to manage crops and fields. Students have the opportunity to climb into a GPS-equipped tractor and learn how these tools help farmers manage crops more precisely while protecting soil and water resources . For small farmers, precision agriculture offers the potential to "increase yields and profits" by using precision practices that are "cost feasible" and help even out yields without additional inputs .
+
+Digital tools are also becoming more accessible to farmers. The Agroclimate Viewer and Planner App, a free digital tool developed by Virginia State University researchers, can forecast weather for 16 days, determine soil pH, and perform other functions that lead to cost savings, climate mitigation, and improved land management .
+
+**lowL, AI, and Robotics Integration:** LowL-powered sensor networks can collect real-time soil moisture, temperature, and nutrient data for precision decision-making. AI models can analyze this data to generate variable-rate application prescriptions for fertilizer, seed, and crop protection products. GPS-guided equipment controlled by lowL firmware can implement these prescriptions with precision.
+
+---
+
+#### Drones: Aerial Imagery and Data Collection
+
+Unmanned aerial systems (UAVs) have become powerful tools for agriculture, providing farmers with aerial imagery and data that support better decision-making. The potential market for agricultural drones is estimated at $32.4 billion, as these systems can reduce human errors and save time and money . Research in the College of Agriculture and Life Sciences at Virginia Tech is bringing drone technology to agriculture, with projects testing drones with sheep and other applications .
+
+The development and adoption of agricultural drones is supported by Virginia-based innovation. Agricision, founded in 2019 and headquartered in Sedley, Virginia, develops agricultural drones equipped with pest-detection pods that allow farmers to collect high-resolution aerial imagery of their fields. The software analyzes this imagery to identify and map pest and weed infestations, enabling farmers to make targeted treatment decisions and reduce waste and environmental impact .
+
+Drones are proving particularly useful for livestock management. In a Virginia Tech study, researchers flew drones over sheep to observe their reactions and determine practical applications. Farmers can use drones as a "check-on" tool to ensure livestock are where they should be, gain quick access to see if an animal is injured, or examine whether a ewe has delivered a new lamb . A hobby drone model retails for about $500 and connects to any tablet using a wireless internet connection, making the technology accessible to small farmers .
+
+In Southwest Virginia, farmers are beginning to adopt drone technology. Will Dawson, a seventh-generation apple grower in Virginia's Appalachian Mountains, was one of the first people to bring agricultural drones into the region, recognizing their significant potential to transform agriculture . Dawson started the Agricultural Drone Initiative to engage with policymakers and industry leaders to improve agricultural drone policies .
+
+**lowL, AI, and Robotics Integration:** LowL firmware can control drone flight systems for autonomous missions and manage onboard sensor data collection. AI-powered image analysis can detect plant stress, identify pests and diseases, and create treatment maps. LowL can process this data in real time and transmit recommendations to ground equipment for targeted intervention.
+
+---
+
+#### Automated Equipment: Tractors, Harvesters
+
+Modern agricultural equipment increasingly incorporates automation and computer control. GPS-guided tractors can steer themselves with sub-inch accuracy, reducing overlap and improving efficiency. Students at the Agriculture STEM Academy learn about "smart equipment" and how these tools help farmers manage crops more precisely while protecting soil and water resources .
+
+The integration of technology into farm equipment extends beyond navigation. Modern combines and harvesters can adjust settings automatically based on crop conditions, reducing losses and improving grain quality. As Wesley Gwaltney, an instructor in Virginia Tech's Agricultural Technology Program, explains, tools like GPS-guided equipment help farmers manage crops more precisely while protecting soil and water resources .
+
+**lowL, AI, and Robotics Integration:** LowL-powered controllers can manage autonomous tractor guidance, implement control, and harvest automation. AI can optimize equipment path planning to reduce overlap and fuel consumption. Machine vision and robotics can enable automated harvesting of specialty crops.
+
+---
+
+#### Data Analytics: Production and Market Analysis
+
+Data analytics enables farmers to make more informed decisions about production and marketing. Recordkeeping software such as Farm Logic and Cattle Pro helps producers track performance, sort data, and make strategic planning decisions, ultimately saving money on inputs and increasing production performance and efficiency . The Virginia Cooperative Extension's SOVA Agribusiness Information Technology Cost-Share program, funded by the Tobacco Region Revitalization Commission, has helped producers implement these technologies .
+
+The value of data analytics extends beyond production management. The Agroclimate Viewer and Planner App developed by Dr. Abhilash Chandel provides farmers with cost-saving insights, climate mitigation tools, and improved land management information . These digital tools help farmers anticipate challenges and make proactive decisions.
+
+**lowL, AI, and Robotics Integration:** AI-powered data analytics can integrate production data with market information to optimize harvest timing and marketing decisions. LowL-connected sensors on farm equipment and in storage facilities provide real-time data for predictive analytics. Machine learning models can forecast yields, optimize resource allocation, and identify the best marketing windows for producers.
+
+---
+
+#### Software: Farm Management and Record-Keeping
+
+Farm management and record-keeping software helps producers track performance, manage finances, and make strategic decisions. The Virginia Cooperative Extension's SOVA Agribusiness Information Technology Cost-Share program has helped producers implement recordkeeping software such as Farm Logic and Cattle Pro, which allow producers to "sort data, track performance, and make strategic planning decisions, ultimately saving money on inputs and increasing production performance and efficiency" .
+
+QuickBooks financial recordkeeping software, available through the program, helps farmers manage finances and make informed business decisions. Agritourism and direct marketing operations implementing website development, also supported by the program, see increased sales revenues from new online buyers and referrals .
+
+Digital tools continue to evolve to meet farmers' needs. The Agroclimate Viewer and Planner App is a "digital tool free of costs to farmers that can forecast weather for 16 days, determine soil pH, and perform a host of other functions ultimately leading to cost savings, climate mitigation, improved cropland/land management, as well as zero to minimal waste" .
+
+**lowL, AI, and Robotics Integration:** AI can automate data entry, perform analysis, and generate recommendations. LowL-connected sensors can automatically feed data into recordkeeping systems, reducing manual data entry. Cloud-based platforms can integrate data from multiple farms and provide benchmarking and decision support.
+
+---
+
+#### Sensors: Soil, Weather, Equipment Monitoring
+
+Sensors provide real-time data on soil conditions, weather, and equipment performance that enable precision management decisions. Low-cost sensor technology is making this capability accessible to more farmers. Researchers at USDA-ARS have developed a low-cost ($250) and open-source irrigation controller, Open_Irr, that automates irrigation events based on soil moisture sensor feedback . A SARE-funded project is evaluating this controller in high-tunnel production systems to quantify water utilization, evaluate produce yield and quality, and develop recommendations for data-driven irrigation .
+
+The controller is designed to improve "equitable access to emerging agricultural technology systems," recognizing that cost is often a barrier to adoption for small farmers . The project involves installing controllers on three small high-tunnel farms, providing training, and evaluating the results through a randomized complete block design . This research reflects a commitment to making precision technology accessible to farmers with diverse operations and resource levels.
+
+Soil monitoring sensors provide data on moisture, temperature, and nutrient levels that inform irrigation and fertilization decisions. Weather sensors track conditions that affect crop growth and pest pressure. Equipment monitoring sensors can predict maintenance needs and prevent breakdowns.
+
+**lowL, AI, and Robotics Integration:** LowL-powered sensor nodes can collect and transmit soil moisture, temperature, nutrient, and weather data wirelessly. AI can analyze this data to recommend irrigation scheduling, predict disease outbreaks, and optimize resource use. LowL can control irrigation valves and application equipment based on sensor feedback.
+
+---
+
+## Economic Strategies for Technology Adoption
+
+### Cost-Share Programs and Incentives
+
+The Virginia Cooperative Extension's SOVA Agribusiness Information Technology Cost-Share program provides 33.3 percent reimbursement (up to $1,200 per producer) for eligible technology investments, including Farm Logic and Cattle Pro recordkeeping software, professional website development, laptop computers, and QuickBooks financial recordkeeping software . As of 2017, the program had provided cost-share funding for 52 producers across 10 eligible Tobacco Region localities .
+
+The GRASS project, a grant funded by USDA and led by West Virginia University Extension in partnership with Virginia Tech, provides participating farmers with an annual cash incentive, training, and marketing assistance to support the transition to sustainable conservation practices .
+
+### Education and Training
+
+The Virginia Cooperative Extension offers workshops and training on precision agriculture for farmers and growers. Topics include making good real-time decisions during the growing season, increasing yields, improving soil health, and decreasing variability in the field . The Agriculture STEM Academy at the Virginia Tech Southwest Center introduces middle school students to technologies including GPS, sensors, and smart equipment .
+
+Extension specialists continue to conduct research and provide technical assistance. Virginia Tech's Agricultural Technology Program and the College of Agriculture and Life Sciences are working to connect young people with the science, technology, and career pathways shaping the future of agriculture .
+
+---
+
+## Conclusion
+
+Agricultural technology is transforming farming in the Crooked Road corridor. Precision agriculture, drones, automated equipment, data analytics, farm management software, and sensors offer opportunities for farmers to improve productivity, reduce costs, and protect natural resources. The integration of lowL, AI, and robotics can further enhance these technologies, enabling real-time monitoring, autonomous operation, and data-driven decision-making. Educational programs are building awareness and skills for the next generation of farmers. These technologies create a foundation for economic growth that honors the region's heritage while embracing innovation.
+
+---
+
+# CHAPTER EIGHT: STRATEGIC GROWTH OF THE MINING INDUSTRY
+
+The mining industry has been a cornerstone of the Crooked Road and U.S. Route 23 corridor's economy for generations, shaping not only the region's economic development but also its cultural identity and community structure. The coal that powered America's industrial rise came from the mountains of Southwest Virginia, and the skills, infrastructure, and work ethic developed through mining continue to provide a foundation for the region's economic future. Today, the industry stands at a crossroads, facing significant challenges while also holding potential for transformation and continued contribution to the regional economy.
+
+---
+
+## Current Mining Operations
+
+### Production: Metallurgical and Thermal Coal
+
+Virginia's coal industry continues to play a significant role in the region's economy, though production has declined substantially from historical peaks. In 2025, Virginia's coal miners reported production of 9.5 million short tons of bituminous coal, down approximately 4.6 percent from the 10 million tons produced in 2024 . This production, valued at an estimated $1.31 billion, ranked Virginia 12th highest among the 21 coal-producing states . Underground mining accounted for approximately 81 percent of Virginia's coal output, reflecting the region's traditional mining methods .
+
+The coal industry in Southwest Virginia has experienced significant contraction over recent decades. U.S. coal production peaked at 1 billion tons in 2014, dropping to 578 million tons by 2023, with projections indicating continued decline to 483 million tons by 2025 . Virginia's mines produced 8.6 million short tons in 2024, down from 10 million in 2023 . This decline reflects competition from other energy sources, environmental regulations, and shifting global energy markets.
+
+The type of coal produced in Southwest Virginia has shifted significantly. Metallurgical coal, or "met coal," used in the manufacturing of steel, accounts for approximately 80 percent of coal mined in Virginia . This contrasts with thermal coal used for electricity generation, for which demand has declined more steeply. Data from the U.S. Energy Information Administration shows that independent power producers in Virginia received no bituminous, subbituminous, or lignite coal in April 2026, reflecting the near-complete transition away from coal for in-state electricity generation .
+
+Major producers in the region continue to operate despite challenging market conditions. Ramaco Resources, Inc., a metallurgical coal company operating in southwestern Virginia and southern West Virginia, reported total production of 2.934 million tons for the nine months ending September 2025, up from 2.717 million tons in the same period of 2024 . The company's operations include six active mines at its Elk Creek mining complex, three active mines at its Berwind mining complex, and two active mines at its Knox Creek complex in Virginia . However, market weakness has led to production adjustments, with Ramaco revising its full-year 2025 production guidance to the low end of its 3.9 to 4.3 million ton range .
+
+### Workforce: Skills and Employment
+
+The mining workforce in Southwest Virginia has contracted dramatically alongside production declines. In 1990, the coal industry represented 13.2 percent of the region's workforce, employing nearly 12,000 people. By 2024, the industry employed approximately 2,500 workers, representing just 2.4 percent of the region's workforce . This decline has had profound effects on communities that were built around mining operations.
+
+Despite the contraction, coal mining remains the region's highest-paying industry, with the average coal industry salary at $101,268 in 2024, more than twice the regional average annual salary of $45,926 . These wages have sustained families and communities through difficult times, and the loss of these high-paying jobs has contributed to population decline and economic dislocation throughout the region.
+
+Recent layoffs underscore the industry's instability. In late 2025, Wellmore Energy Co., a subsidiary of United Coal Co., announced layoffs affecting more than 70 miners from its Big Rock and Grundy, Virginia locations, followed by another 118 impending layoffs effective December 2025 . The company cited "prolonged market downturn" as the cause, noting that operations would remain on "hot idle" in an effort to be prepared when the metallurgical coal market improves . The layoffs included 95 employees at the Paw Paw 2 South mine in Big Rock, 12 employees at the preparation plant, eight employees at the company's administrative operations in Grundy, and others at related operations .
+
+Similar patterns are evident across Central Appalachia. In West Virginia, coal-related layoffs have affected nearly 700 workers in the summer of 2025 alone, with Civil LLC permanently closing several operations affecting 281 workers, Core Natural Resources laying off 234 employees at its Itmann operations after reporting a $69.3 million net loss, and Coronado Global Resources laying off 61 workers while reporting a $96.2 million net loss . For laid-off workers, the challenges are acute. As former Coal Mining Safety Representative Ricky Estes observed: "I'm worried for the people that are laid off. Are they going to be able to find another job? You've got to find a job back in what you know, because you can't start over at my age" .
+
+### Reserves: Remaining Coal Resources
+
+Despite production declines, substantial coal reserves remain in the Southwest Virginia coalfields. The region contains extensive deposits of low- to medium-volatile bituminous coal hosted by Pennsylvanian-age sedimentary rocks . Coal deposits occur in three main regions in Virginia, with the Southwest Virginia Coalfield containing the most extensive deposits .
+
+The Jewell Ridge quadrangle in Buchanan and Tazewell counties contains total estimated original resources of 1.519 billion tons, of which 108 million tons have been mined or lost in mining, leaving 1.411 billion tons of remaining resources . Coal of low-volatile to high-volatile A bituminous rank is the principal developed mineral resource in this area . Alpha Metallurgical Resources' Virginia Complex, one of the major operators in the region, continues to manage substantial resources and reserves as documented in its December 2025 Technical Report Summary .
+
+The Fire Clay coal zone, a significant resource horizon extending across Virginia, Kentucky, and West Virginia, contains remaining resources in aggregated reporting categories as documented by USGS Circular 891 . These geological assessments confirm that the region retains substantial coal resources that could be developed under appropriate market conditions.
+
+The Virginia coal industry's future is tied to the broader market for metallurgical coal, which remains an essential input for steel production globally. While thermal coal demand has declined sharply, metallurgical coal continues to have a market, though prices have been depressed by global economic conditions and shifts in steel production. The industry's ability to compete depends on costs, transportation infrastructure, and the ability to access export markets through the Hampton Roads terminals, the largest coal export facilities in the United States .
+
+### Infrastructure: Railroads, Processing Facilities
+
+The region's coal mining infrastructure represents a significant economic asset. Processing facilities, including preparation plants that clean and sort coal, and rail loading facilities, remain in place, providing capacity for continued production and potential adaptation for other industrial uses. The McClure River Preparation Plant, associated with Alpha Metallurgical Resources' operations, is one example of this infrastructure .
+
+Railroad infrastructure is critical to the industry's competitiveness. A study of the Virginia coal industry concluded that since coal quality from Virginia, eastern Kentucky, and West Virginia is similar, delivered cost is the key to steam coal sales. Coal from Virginia faces a disadvantage in transportation costs compared to coal from West Virginia and eastern Kentucky . Lowest transportation costs result when the mine and utility are served by the same rail system, and Virginia's coal industry is tied to Norfolk Southern, which transports its coal and determines delivered costs. The study concluded that "increased Virginia coal sales require the close cooperation of Virginia coal suppliers, transporters, and users," and that negotiators directly representing Virginia's Governor might help bring this about .
+
+The region's coal infrastructure extends beyond transportation to include mine development and processing. Clinch Resources Ltd., a metallurgical coal producer with mining assets in West Virginia, recently commenced commercial-grade coal production at its Lanes Branch property, marking the transition from mine development to active commercial operations . The company acquired its first Caterpillar HW 300 Highwall Miner, with a second unit scheduled for delivery, each targeted to produce approximately 180,000 clean tons of metallurgical coal per year . This investment in new equipment demonstrates that, despite challenging market conditions, some operators continue to invest in the region's coal infrastructure.
+
+Coal is delivered mainly by rail and truck to major electrical utility generating plants and steel-manufacturing facilities in the Eastern and Midwestern United States. Coal is also transported by rail to Hampton Roads, Virginia, the largest coal export terminal in the United States, where it is shipped to international consumers . This export capacity is particularly important for metallurgical coal, which is sold into global steel markets.
+
+---
+
+## The Economic Role of Coal
+
+### Economic Impact and Tax Revenue
+
+Despite production and employment declines, the coal industry remains hugely important to the regional economy. A 2024 Chmura Economics & Analytics report for the Virginia Coalfield Economic Development Authority found that the coal industry has approximately a 9.9 percent total economic impact on the region . This impact extends beyond direct employment to include tax revenues, support for local governments, and economic activity in communities dependent on mining.
+
+The average coal industry salary of $101,268 in 2024, more than twice the regional annual salary of $45,926, means that each coal job has an outsized economic impact . These wages support families, local businesses, and tax revenues that fund schools and public services. The loss of these high-paying jobs has contributed to population decline and economic challenges across the region.
+
+### Workforce Transition Challenges
+
+The decline of coal employment has created significant challenges for workers and communities. The loss of high-paying mining jobs has contributed to population decline, with the region on track to lose about 100,000 people . For older workers, the transition is particularly difficult. As Ricky Estes observed: "You can't start over at my age" . The skills developed in mining—mechanical aptitude, safety awareness, and strong work ethic—are valuable, but they may not directly translate to other industries without training and support.
+
+### Future Market Outlook
+
+The metallurgical coal market faces significant uncertainty. While global steel production continues to require metallurgical coal, prices have been depressed due to weak demand, oversupply, and shifts in steel production technology. Some companies are positioning for long-term viability through low-cost production and strategic positioning. Clinch Resources, for example, is building out its operational platform with highwall mining equipment designed to access high-quality reserves efficiently, aiming to become a "significant low-cost Central Appalachian met coal producer" .
+
+---
+
+## Strategies for Mining Modernization
+
+### Technology and Automation
+
+While coal extraction faces market headwinds, the region can benefit from modernization in related sectors. As described in the Manufacturing chapter, the skills and infrastructure of the coal industry can support broader economic diversification. Data centers, renewable energy, advanced manufacturing, and modular housing production are all being established on former mine lands and in communities that once depended on coal.
+
+### Workforce Transition and Redeployment
+
+The skilled workforce developed through mining can be redeployed in other industries. Manufacturing, energy, and construction all require workers with mechanical aptitude, safety awareness, and strong work ethic. VCEDA and other economic development organizations are supporting workforce transition through training programs and business development support.
+
+### Mining Safety Technology
+
+The mining industry has long been one of the most hazardous occupations in the United States, with underground mining presenting risks including roof falls, explosions, respiratory diseases, and entrapment. The tragic history of mining disasters in Appalachia—from the 1968 Farmington disaster that killed 78 miners in West Virginia to the 2010 Upper Big Branch explosion that claimed 29 lives—has driven continuous improvement in safety technology and practices . Today, the integration of robotics, autonomous equipment, advanced monitoring systems, and artificial intelligence is transforming mining safety, creating opportunities to protect workers while improving operational efficiency.
+
+---
+
+#### Robotics: Underground Inspection Equipment
+
+Robotics is revolutionizing underground mine safety by allowing hazardous inspections to be conducted remotely. Robotic inspection equipment can enter dangerous areas, reducing human exposure to hazards while providing valuable data for mine planning and safety management. These systems range from small, maneuverable drones to larger, tracked vehicles equipped with multiple sensors.
+
+The development of mining robotics has been accelerated by research in other industries. The RoboBallet system, developed by UCL, Google DeepMind, and Intrinsic, demonstrates how multi-robot coordination can be applied to complex industrial environments . While originally developed for manufacturing, the principles of multi-agent coordination and real-time adaptation are directly applicable to mine inspection scenarios where multiple robots must navigate confined spaces and coordinate their activities.
+
+For the Crooked Road corridor, the deployment of underground inspection robotics offers several benefits. First, robots can access areas that are too dangerous for human inspectors, identifying hazards before workers enter. Second, robots equipped with sensors can collect data on roof stability, gas concentrations, and equipment condition more consistently than human inspectors. Third, robotic inspection can be conducted more frequently, enabling continuous monitoring of changing conditions. The adoption of these systems requires investment in equipment and training, but the safety and efficiency benefits are substantial.
+
+Economic advisors should help mining companies identify robotic inspection opportunities, access financing for equipment purchases, and develop workforce training programs that prepare workers to operate and maintain robotic systems.
+
+---
+
+#### Autonomous Equipment: Self-Operating Machinery
+
+Autonomous equipment—machines that can operate without direct human control—represents another significant advancement in mining safety. By removing workers from hazardous areas, autonomous equipment reduces human exposure to roof falls, dust, and machinery accidents. Self-operating machinery can be deployed in areas with high risks, performing tasks such as drilling, bolting, and haulage without endangering workers.
+
+The development of autonomous mining equipment has been driven by both safety concerns and productivity imperatives. Autonomous haul trucks, drills, and loaders are increasingly common in surface mining operations, and underground applications are advancing. The key technologies enabling autonomous equipment include sensors for navigation and obstacle detection, communications systems for remote monitoring and control, and artificial intelligence for decision-making and path planning.
+
+For the Crooked Road corridor, autonomous equipment offers several opportunities. Existing mining equipment can be retrofitted with automation systems, improving safety while extending the useful life of capital investments. New equipment can be specified with autonomous capabilities from the outset. The transition to autonomous operation requires investment in equipment, infrastructure, and workforce training, but the benefits in worker safety and operational efficiency are significant.
+
+Economic advisors should help mining companies assess autonomous equipment opportunities, access financing for equipment upgrades, and develop the technical expertise needed to deploy and maintain autonomous systems.
+
+---
+
+#### Environmental Monitoring: Methane, Dust Detection
+
+Environmental monitoring is essential for preventing explosions and protecting respiratory health in underground mines. Methane, a highly explosive gas released during coal mining, must be continuously monitored to ensure concentrations remain below explosive limits. Similarly, coal dust accumulation must be controlled to prevent dust explosions. Modern monitoring systems use sensors placed throughout the mine to provide real-time data on gas concentrations and dust levels.
+
+The development of low-cost, reliable sensors has made continuous monitoring more feasible and affordable. LowL-powered sensor networks can collect data from multiple points throughout a mine, providing comprehensive coverage of environmental conditions. These systems can be integrated with ventilation controls to automatically adjust airflow when gas concentrations exceed thresholds.
+
+For the Crooked Road corridor, continued investment in environmental monitoring is essential for maintaining safety standards as mining operations continue. Even as production declines, the remaining operations require the highest level of safety monitoring. Economic advisors should help mining companies access funding for monitoring system upgrades and workforce training.
+
+---
+
+#### Air-Quality Sensors: Continuous Monitoring
+
+Air-quality sensors provide continuous monitoring of the atmosphere in underground mines, detecting hazardous gases and particulates that threaten worker health. These sensors monitor oxygen levels, methane, carbon monoxide, hydrogen sulfide, and other gases, as well as respirable dust that causes coal workers' pneumoconiosis (black lung disease). The data from air-quality sensors is essential for maintaining safe working conditions and protecting respiratory health.
+
+The integration of low-power, wireless sensor networks has enabled more comprehensive air-quality monitoring. Instead of relying on a few fixed monitoring stations, mines can deploy dozens or hundreds of sensors throughout the working areas. This approach provides more detailed data on conditions and enables faster detection of hazards. The lowL language, with its efficient memory footprint and direct hardware access, is particularly well-suited for developing firmware for these sensor networks.
+
+For the Crooked Road corridor, the ongoing concern about black lung disease makes air-quality monitoring particularly important. Despite decades of effort to control dust, respiratory diseases continue to affect coal miners, and continuous monitoring is essential for protecting worker health. Economic advisors should help mining companies access funding for sensor network implementation and data analysis capabilities.
+
+---
+
+#### Communications Systems: Underground and Surface Connection
+
+Reliable communications between underground miners and surface personnel is essential for safety coordination and emergency response. Modern mine communications systems use leaky feeder cables, wireless mesh networks, and fiber optic infrastructure to provide continuous connectivity throughout the mine. These systems enable voice communications, data transmission, and emergency alerts.
+
+The rapid development of wireless technologies has expanded the capabilities of mine communications systems. Wireless mesh networks can provide coverage in areas that are difficult to reach with cables, and the integration of VoIP (Voice over IP) enables seamless communication between underground and surface personnel. Real-time location tracking through RFID or Bluetooth systems enables surface personnel to know the location of all underground workers, which is critical for emergency response.
+
+For the Crooked Road corridor, investment in communications infrastructure remains important for maintaining safety standards. The region's rugged terrain and remote mine locations can make communications challenging, and modern systems can provide reliable connectivity where traditional approaches have failed. Economic advisors should help mining companies access funding for communications system upgrades.
+
+---
+
+#### Emergency Response Technologies: Rescue Equipment, Gas Monitoring
+
+Emergency response technologies are essential for saving lives when accidents occur. Rescue equipment includes breathing apparatus for survivors, rescue shelters that provide safe refuge when escape is impossible, and rescue robots that can enter areas too hazardous for human responders. Gas monitoring equipment allows rescue teams to assess conditions and plan their approach.
+
+The integration of robotics into emergency response has expanded capabilities. Rescue robots can enter areas with high gas concentrations or unstable roofs, providing situational awareness and locating trapped miners. These robots can be equipped with gas sensors, cameras, and communication equipment to provide rescue teams with critical information before they enter hazardous areas.
+
+For the Crooked Road corridor, maintaining emergency response capability is essential for mines that continue to operate. The region's mines are generally older and deeper than those in other coal-producing areas, creating unique safety challenges. Economic advisors should help mining companies access funding for emergency response equipment and training.
+
+---
+
+#### Artificial Intelligence: Hazard Prediction and Prevention
+
+Artificial intelligence has the potential to transform mining safety through predictive analytics and automated prevention. AI systems can analyze data from sensors, equipment performance, and historical incidents to predict hazards before they occur. Machine learning models can identify patterns that precede roof falls, equipment failures, and gas outbursts, enabling proactive interventions that prevent accidents.
+
+The application of AI to mining safety is still in its early stages, but the potential is substantial. Real-time analysis of sensor data can identify developing hazards and alert workers. Predictive models can guide mine planning and maintenance scheduling. Automated decision support can help mine managers make better safety decisions under pressure.
+
+**lowL and Robotics Integration:** The integration of lowL, AI, and robotics for mining safety creates a comprehensive system architecture. LowL-powered sensors and actuators provide real-time monitoring and control. AI algorithms analyze data to predict hazards and optimize responses. Robotics systems execute physical interventions, from inspection to emergency response. The lowL compiler's support for interrupt handling and deterministic performance makes it suitable for safety-critical applications where timely response is essential.
+
+---
+
+## Economic Strategies for Mining Safety Modernization
+
+### Technology Investment
+
+Investment in mining safety technology requires capital for equipment, infrastructure, and workforce training. The Mine Safety and Health Administration (MSHA) provides technical assistance and guidance for technology adoption. State and federal economic development programs can support technology investment through grants and loans. The Abandoned Mine Land (AML) program, which funds reclamation and economic development projects, can also support safety technology adoption.
+
+### Workforce Training
+
+Workforce training is essential for effective technology adoption. Miners must be trained to operate and maintain new safety equipment. The MSHA provides training programs through its Academy and field offices. Community colleges and technical schools can offer training in robotics, automation, and sensor technology.
+
+### Research and Development
+
+Continued research and development is essential for advancing mining safety technology. Virginia Tech, West Virginia University, and other universities conduct research on mining safety. The National Institute for Occupational Safety and Health (NIOSH) conducts research through its Pittsburgh Mining Research Division. Economic advisors should help mining companies connect with research resources and funding opportunities.
+
+### Mine Reclamation
+
+Mine reclamation represents one of the most significant opportunities for economic transformation in the Crooked Road and U.S. Route 23 corridor. Across Southwest Virginia, more than 100,000 acres of land have been impacted by mining, creating thousands of acres of abandoned mine land features that can be repurposed for productive use . The practice of leaving mines unrestored was banned under the Surface Mining Control and Reclamation Act of 1977, but the legacy of pre-1977 mining remains . Today, the Abandoned Mine Land Economic Revitalization (AMLER) program provides federal funding to transform these former liabilities into engines for economic growth . Since the program began in 2017, approximately $11 million has been allocated annually to Virginia, supporting projects that build infrastructure, attract new jobs, and revitalize coal communities .
+
+#### Recreation: Hiking, Biking, Fishing
+
+The transformation of former mine lands into recreational destinations represents one of the most visible and successful reclamation strategies in the region. These projects leverage the region's natural beauty while creating tourism infrastructure that attracts visitors and supports local economies. The renovated landscapes offer opportunities for hiking, mountain biking, fishing, camping, and wildlife viewing that draw visitors from throughout the region and beyond.
+
+The Big Cherry Reservoir Recreation Project in Big Stone Gap exemplifies the potential of recreational reclamation. The project received $2 million from Virginia Energy's AMLER grant program to develop rental cabins and create additional fishing opportunities at the reservoir . The town manager noted the importance of the project: "In Southwest Virginia, we have some of the most beautiful and diversified forests... that's why Virginia Energy is helping us, providing the money to have some cabin rentals and to have some primitive camping opportunities and some better fishing opportunities" . The project includes 10 to 12 primitive campsites, four cabins, yurts, and safari tents, along with trail enhancements . As Virginia Energy Director Glenn Davis stated: "With community development projects like this, we're not just drawing in tourists—we're creating an environment that attracts businesses looking for vibrant communities" .
+
+The Camp Bethel Expansion Project in Wise County, awarded $3.05 million in AMLER funding in October 2025, demonstrates the diversity of recreational reclamation . The project includes geotechnical studies, engineering, property acquisition, road and building upgrades, and excavation for a flat parking area, along with an engineered rock-climbing wall, adaptive snow tubing, ziplines, a playground, and hiking trails . These amenities create a recreational destination that can attract visitors and families throughout the year, supporting local tourism businesses .
+
+The Trammel Community Revitalization in Dickenson County and parking and trails improvements near Devil's Bathtub in Scott County represent additional examples of how AMLER funding can enhance outdoor recreation . The Cumberland Outdoor Recreation project in Dickenson and Buchanan counties received $2.75 million for what has been described as the "largest conservation easement in Virginia creating public access to land for outdoor recreation" .
+
+**lowL and AI Integration:** The management of recreational sites on reclaimed mine lands can be enhanced through lowL-powered environmental monitoring systems that track trail conditions, water quality, and visitor impacts. AI-powered analytics can optimize maintenance scheduling and enhance visitor experiences through real-time information systems. Robotic systems could support trail maintenance, trash collection, and environmental monitoring in these recreational areas, reducing operational costs while maintaining safety standards.
+
+#### Solar Development: Renewable Energy Fields
+
+Solar development on reclaimed mine lands represents one of the most promising economic opportunities for the region. The flat land created by mining operations is ideal for solar arrays, and the region's history as an energy producer provides a foundation for transitioning to renewable energy . Multiple solar projects are now underway or planned across the region, creating jobs, generating tax revenue, and providing clean energy.
+
+The Nature Conservancy's Cumberland Forest Project represents the largest effort to develop solar energy on reclaimed mine lands. The Conservancy acquired approximately 253,000 acres across Virginia, Tennessee, and Kentucky, with about 153,000 acres in Southwest Virginia . By 2025, the Conservancy had signed agreements with TerraForm Power, ENGIE North America, and Dominion Energy Virginia to construct 25 projects adding up to at least 189 MW of solar panels and 320 MW of battery storage on minelands across the Cumberland Forest . These projects could power up to 85,000 homes and generate $6.8 million in grants for community-driven initiatives .
+
+The Wildcats Solar project in Wise County is among the most advanced solar reclamation projects. Located on the former Indian Creek Surface Mine, Wildcats will cover roughly two-thirds of 100 acres and generate 10 MW of power, enough for 1,700 homes . It is expected to generate $800,000 in tax revenue for Wise County over its projected 40-year lifespan and contribute $200,000 to TNC's Community Fund . The project will generate 81 jobs, including 62 for construction, three for operations, and 16 support positions . Wise County Supervisor Randy Carter expressed the significance of the transition: "We're living in a time when we have to look at solar and figure out our future. God created the sun and had a purpose for it. We want Wise County to shine" .
+
+The Mineral Gap Data Center, also in Wise County, came online in 2023 as the first abandoned mine land in Virginia to be converted to solar and has been powering the data center with renewable energy . Dominion Energy is repurposing approximately 1,200 acres of the reclaimed Red Onion surface mine in Wise and Dickenson counties for the 50-MW Highlands Solar project .
+
+**lowL and AI Integration:** Solar array management can be optimized through lowL-powered monitoring systems that track panel performance, environmental conditions, and energy production in real time. AI-powered analytics can detect performance degradation, predict maintenance needs, and optimize energy storage and grid integration. The 55-degree mine water available in the region's abandoned mines offers a unique opportunity for cooling data centers, potentially reducing energy costs by 30-50% compared to traditional air cooling . LowL-controlled systems could manage water circulation for cooling applications, ensuring optimal performance and resource efficiency.
+
+#### Industrial Sites: Commercial and Industrial Development
+
+The redevelopment of former mine lands for industrial and commercial use represents a direct path to job creation and economic diversification. The flat land created by mining operations is particularly valuable in the mountainous region, where developable flat land is scarce . These sites often have existing infrastructure, including roads and utilities, that can support new development.
+
+The Project Intersection initiative in Norton is one of the most significant industrial reclamation projects. This 200-acre industrial megasite on abandoned coal mine land is operated by the Lonesome Pine Regional Industrial Facilities Authority, which includes Lee, Wise, Scott, and Dickenson counties and the city of Norton . The site has already attracted EarthLink, which invested $5.4 million to build a 28,000-square-foot call center expected to create 285 jobs . In November 2024, Wrap Technologies announced it would invest $4.1 million to move its manufacturing and distribution from Arizona to Norton, bringing 126 jobs .
+
+The Southern Gap project in Buchanan County is another example of industrial reclamation. A $1.95 million AMLER grant supports construction of a two-story commercial office space at the Southern Gap . Congressman Morgan Griffith, who attended the grant presentation, noted: "Buchanan County is using AMLER funds to reinvigorate the local economy, attract businesses and drive regional investments" . A food incubator at Southern Gap, funded with $1.12 million, will include a one-story metal building with commercial kitchen rental spaces and food truck slips, supporting food entrepreneurs and local businesses .
+
+The Virginia Department of Energy has been instrumental in facilitating industrial development on former mine lands. Daniel Kestner, Manager of the Office of Economic Development for the Virginia Department of Energy, noted: "One of our missions with the Office of Development is to look at how we can repurpose some of that land for economic development. Due to the topography of our region these abandoned lands are perfect for a wide range of potential developments" .
+
+**lowL and AI Integration:** Industrial site management can be enhanced through lowL-powered infrastructure monitoring systems that track utilities, security, and site conditions. AI-powered site selection tools can match businesses with available sites, optimize site layouts, and predict infrastructure needs. Smart building systems with lowL controls can reduce energy consumption and operating costs for businesses locating on reclaimed sites.
+
+#### Wildlife Habitat: Conservation and Restoration
+
+Wildlife habitat restoration is an important component of mine reclamation, often integrated with other uses. The Nature Conservancy's Cumberland Forest Project demonstrates how habitat conservation and restoration can be combined with renewable energy development. While protecting and restoring wild areas is the nonprofit's traditional focus, the scale of the Cumberland Forest required innovative approaches to land management, including siting renewable energy on minelands where planting trees wasn't practical .
+
+The Conservancy established a Community Fund with royalties from fossil fuel extraction on the property, and payments from solar developers are deposited in the same fund . Thus far, grants from the fund have paid for projects as varied as installing elk viewing shelters, building a canoe launch, improving hiking and biking trails, outfitting a nature center, planting native trees, and renovating playgrounds .
+
+The Virginia Department of Energy's reclamation regulations require restoration of soil productivity on reclaimed lands, with provisions for measuring soil productivity and ensuring that reclaimed lands can support vegetation comparable to surrounding areas . These requirements ensure that wildlife habitat restoration is integrated into reclamation planning.
+
+**lowL and AI Integration:** Wildlife monitoring on reclaimed lands can be enhanced through lowL-powered camera traps, acoustic sensors, and GPS tracking collars. AI-powered image and sound analysis can identify species, track populations, and detect changes in habitat use. These tools provide data for adaptive management of conservation areas.
+
+#### Forestry: Timber Production
+
+Timber production on reclaimed mine lands offers opportunities for economic diversification while restoring forest cover. The reclamation regulations of the Virginia Department of Energy require that reclaimed lands support vegetation comparable to surrounding areas, providing a foundation for timber production .
+
+The Virginia Department of Energy works with land managers to ensure that reclamation supports appropriate land uses, including forestry. While specific timber production projects on reclaimed mine lands are not detailed in the search results, the emphasis on restoring soil productivity and vegetation cover indicates that forestry is a viable post-mining land use . The Nature Conservancy's planting of native trees on Cumberland Forest lands demonstrates the potential for reforestation on former mine sites .
+
+**lowL and AI Integration:** Forest management on reclaimed mine lands can be enhanced through lowL-powered monitoring systems that track tree growth, soil conditions, and wildlife activity. AI-powered inventory analysis can optimize harvest schedules and identify market opportunities. Drones and robotics can support reforestation and monitoring efforts.
+
+#### Agriculture: Farming on Reclaimed Lands
+
+Agricultural production on reclaimed mine lands represents a significant opportunity for economic diversification, particularly given the importance of farming to the regional economy. The Virginia Department of Energy's reclamation regulations include specific provisions for restoring soil productivity, with requirements for measuring crop production and ensuring that reclaimed lands can support agricultural use .
+
+The regulations require that prime farmland soil productivity be restored in accordance with specific standards, including measurement of soil productivity within 10 years after completion of soil replacement and a minimum of three crop years of production prior to bond release . The reference crop on which restoration of soil productivity is proven must be selected from crops most commonly produced on surrounding prime farmland . These requirements provide a framework for agricultural development on reclaimed mine lands.
+
+**lowL and AI Integration:** Agricultural production on reclaimed mine lands can be enhanced through precision agriculture technologies, including lowL-powered sensors for soil moisture, nutrient, and weather monitoring. AI-powered analytics can optimize planting, fertilization, and irrigation. Robotics can support planting and harvesting operations, reducing labor requirements while improving efficiency.
+
+---
+
+## Economic Strategies for Mine Reclamation
+
+### AMLER Program Funding
+
+The Abandoned Mine Land Economic Revitalization (AMLER) program provides federal funding for reclamation projects that support economic development. Virginia receives approximately $11 million annually from the program and has received an average of $10.48 million per year since 2017 . Projects must demonstrate potential to achieve economic and community development goals . Previous AMLER-funded projects have supported 453 jobs across the region .
+
+The deadline for submittal is December 18, 2025, and applications should be submitted to Virginia Energy's AMLER program . Prospective applicants are requested to submit a Letter of Intent by November 20, 2025 . The program is administered by the Virginia Department of Energy in coordination with the U.S. Office of Surface Mining Reclamation and Enforcement (OSMRE) .
+
+### Private-Public Partnerships
+
+The Energy DELTA Lab project demonstrates how public-private partnerships can leverage reclamation funding for large-scale economic development. The nonprofit venture is designed to transform approximately 65,000 acres of mine lands into test sites for energy innovation, including solar, wind, pumped hydro, small nuclear, and other clean energy technologies . The project has the backing of Governor Glenn Youngkin, who announced an agreement establishing a framework for developing the land .
+
+The lab is coordinating site development with Wise County officials and the landowner, Energy Transfer, which owns the acreage . A handful of localities, including Wise County, have established a special tax rate on data center equipment and resolutions aimed at welcoming regional data center investments . These partnerships demonstrate how federal, state, and local resources can be combined to catalyze large-scale redevelopment.
+
+### Workforce Development
+
+Mine reclamation projects create employment opportunities in construction, operations, and maintenance. The Data Center Ridge project, for example, could generate 1,600-plus jobs and induce $8.25 billion in private investments . A typical data center can add up to 1,500 workers on-site during construction and employ some 50 full-time workers when up and running . Overall, the data center industry is estimated to contribute 74,000 jobs, $5.5 billion in labor income, and $9.1 billion in GDP to Virginia's economy each year .
+
+Workforce training is essential for capturing these employment opportunities. The region's community colleges and workforce development programs can partner with employers to provide training in construction, operations, and maintenance for reclamation projects. The Virginia Department of Energy's commitment to combining "workforce development, infrastructure investment, and entrepreneurship" in its reclamation strategy provides a framework for this approach .
+
+---
+
+## Conclusion
+
+Mine reclamation represents one of the most significant opportunities for economic transformation in the Crooked Road and U.S. Route 23 corridor. The approximately 100,000 acres of land impacted by mining in Southwest Virginia are being transformed from liabilities into assets through recreation, renewable energy, industrial development, wildlife habitat, forestry, and agriculture . The AMLER program provides critical funding for these projects, with approximately $11 million annually supporting diverse initiatives across the region .
+
+The success of projects like the Wildcats Solar array, the Big Cherry Reservoir Recreation Project, and the Southern Gap food incubator demonstrates that former mine lands can support economic development that creates jobs, generates tax revenue, and attracts investment . The Energy DELTA Lab project, aiming to transform 65,000 acres into a hub for energy innovation, represents the scale of opportunity available . As Will Payne, co-manager of the project, observed: "We view these properties as an asset, and we can do something here in this region that can't be done anywhere else in Virginia" .
+
+For economic advisors, supporting mine reclamation means helping communities access AMLER funding, develop viable projects, and build the partnerships needed for success. As Governor Glenn Youngkin stated: "Virginia thrives when every region has the resources it needs to grow. This funding honors Southwest Virginia's mining legacy by investing in its economic future, with projects that build infrastructure, attract new jobs, and revitalize its communities" .
+
+# CHAPTER EIGHT: STRATEGIC GROWTH OF THE MINING INDUSTRY (Continued)
+
+---
+
+### Energy Diversification
+
+Southwest Virginia stands at a pivotal moment in its energy history. For generations, the region powered America's industrial rise through coal mining and natural gas production. Today, as the nation moves toward carbon-neutral energy and traditional industries decline, Southwest Virginia has the opportunity to continue its leadership in energy by leveraging its valuable assets and competing nationwide for entrepreneurs and developers focused on innovative and clean energy projects . The region's energy diversification strategy represents not an abandonment of its heritage but an evolution of its role as an energy producer, creating new opportunities for economic growth while honoring the skills and infrastructure developed over generations.
+
+**lowL, AI, and Robotics Integration:** The energy diversification strategy can be enhanced through lowL-powered monitoring and control systems for solar arrays, battery storage, and grid infrastructure. AI-powered analytics can optimize energy production and distribution, predict maintenance needs, and balance supply and demand in real time. Robotic systems can support installation, maintenance, and monitoring of energy infrastructure, reducing costs and improving reliability.
+
+---
+
+#### Natural Gas: Production and Distribution
+
+Natural gas remains a significant component of Southwest Virginia's energy economy. Wells drilled over 60 years ago still produce natural gas today, and the region's gas infrastructure—including pipelines, processing facilities, and distribution networks—represents a valuable asset for economic development . The region's natural gas production has historically been tied to coal mining, with gas extracted from coal seams and surrounding formations.
+
+The transition to a low-carbon economy creates both challenges and opportunities for the natural gas industry. While combustion of natural gas produces lower carbon emissions than coal, the long-term role of natural gas in a decarbonized energy system is uncertain. However, natural gas can serve as a bridge fuel, providing reliable power while renewable energy capacity expands. Additionally, natural gas can be converted to hydrogen through processes such as catalytic methane decomposition, creating a pathway for the region's gas infrastructure to support a hydrogen economy .
+
+The Appalachian Regional Commission has recognized the potential of natural gas to support economic development in the region. Through its Appalachian Regional Energy Hub Initiative, ARC has awarded nearly $4.7 million to support activities to implement a hydrogen energy hub from natural gas feedstocks in Appalachia . These awards include $1.29 million to Virginia Tech University to establish a leading hydrogen innovation hub in Virginia that advances hydrogen production from natural gas feedstocks through catalytic methane decomposition .
+
+The Southwestern Virginia Energy Research and Development Authority has been tasked with promoting the capture and beneficial use of coal mine methane from active, inactive, and abandoned coal mines as a low-carbon intensity feedstock for manufacturing and energy generation projects . This methane, which would otherwise be released into the atmosphere as a potent greenhouse gas, can be captured and used to generate electricity or produce hydrogen, creating economic value while reducing emissions.
+
+Economic advisors should help communities leverage natural gas infrastructure for economic development, including hydrogen production, manufacturing, and power generation. The Southwest Virginia Energy Research and Development Authority provides a coordinating mechanism for these efforts, and ARC's Energy Hub Initiative provides funding for planning and implementation.
+
+---
+
+#### Solar: Renewable Energy Development
+
+Solar energy represents one of the most promising opportunities for energy diversification in Southwest Virginia. The region's abundant sunshine, available land on former mine sites, and existing transmission infrastructure make it an ideal location for solar development. Across the region, multiple solar projects are now underway or planned, creating jobs, generating tax revenue, and providing clean energy .
+
+The Virginia Brownfield and Coal Mine Renewable Energy Grant Fund, established through the 2025 state budget, provides $20 million to support the redevelopment of coalfields and brownfields as renewable energy generation sites . This fund complements federal programs including the Abandoned Mine Land Economic Revitalization (AMLER) program and the Appalachian Regional Commission's POWER Initiative, which support economic diversification in coal-impacted communities .
+
+The Nature Conservancy's Cumberland Forest Project represents one of the largest efforts to develop solar energy on reclaimed mine lands. The Conservancy has signed agreements with TerraForm Power, ENGIE North America, and Dominion Energy Virginia to construct solar projects on minelands across the Cumberland Forest . The Wildcats Solar project in Wise County, located on the former Indian Creek Surface Mine, will generate 10 MW of power, enough for 1,700 homes, and is expected to generate $800,000 in tax revenue for Wise County over its projected 40-year lifespan . Wise County Supervisor Randy Carter captured the significance: "We're living in a time when we have to look at solar and figure out our future. God created the sun and had a purpose for it. We want Wise County to shine" .
+
+The Mineral Gap Data Center, also in Wise County, came online in 2023 as the first abandoned mine land in Virginia to be converted to solar and has been powering the data center with renewable energy . Dominion Energy is repurposing approximately 1,200 acres of the reclaimed Red Onion surface mine in Wise and Dickenson counties for the 50-MW Highlands Solar project .
+
+For economic advisors, supporting solar development means helping communities access grant funding through the Virginia Brownfield and Coal Mine Renewable Energy Grant Fund and federal programs, navigate regulatory requirements, and develop the workforce needed for solar installation and maintenance.
+
+---
+
+#### Hydroelectric: Small-Scale Projects
+
+Hydroelectric power represents an opportunity to leverage the region's water resources for clean energy production. The Southwest Virginia Energy Research and Development Authority has identified pump storage hydropower as a priority technology for the region . Pumped-storage hydroelectric plants can store energy by pumping water to higher elevations during periods of low demand and releasing it through turbines during periods of high demand, providing grid stability and supporting renewable energy integration .
+
+The region's mountainous terrain and abundant water resources make it suitable for small-scale hydroelectric projects. Existing dams and impoundments can be retrofitted with hydroelectric generation, and new projects can be developed in appropriate locations. Bulgaria's experience with pumped-storage hydroelectric plants, which are transforming the country into a virtual energy hub, demonstrates the potential of this technology .
+
+The Southwest Virginia Energy Research and Development Authority's enabling legislation specifically includes pump storage hydropower, energy storage, and other emerging energy technologies in its portfolio . The Authority works with partners to develop energy development projects on closed power plant sites, brownfield sites, former coal mine sites, and reclaimed coal mine sites .
+
+For economic advisors, supporting small-scale hydroelectric development means helping communities identify appropriate sites, access feasibility study funding, and navigate regulatory requirements. The Federal Energy Regulatory Commission (FERC) licenses hydroelectric projects, and the licensing process can be complex and time-consuming.
+
+---
+
+#### Battery Storage: Energy Storage Systems
+
+Energy storage is essential for integrating renewable energy into the grid and ensuring reliable power delivery. Battery storage systems can store energy from solar and wind generation for use during periods of low production, helping to balance supply and demand. The Southwest Virginia Energy Research and Development Authority has identified energy storage as a priority technology for the region .
+
+Bulgaria's experience with energy storage provides a model for the region. The country already has 7 gigawatts of installed solar capacity, backed by 4 gigawatts of energy storage batteries, demonstrating the importance of storage for renewable energy integration . The Nature Conservancy's solar projects on reclaimed mine lands include battery storage to ensure reliable power delivery .
+
+Energy storage can also support grid resilience and economic development. Battery storage can provide backup power during outages, reducing the economic impact of grid disruptions. Virginia's data center industry, which is expanding into Southwest Virginia, requires reliable power and could benefit from on-site energy storage .
+
+For economic advisors, supporting battery storage development means helping communities access funding through federal and state programs, connecting storage developers with renewable energy projects, and navigating regulatory requirements.
+
+---
+
+#### Grid Modernization: Infrastructure Improvement
+
+Grid modernization is essential for integrating renewable energy, improving reliability, and supporting economic development. The Southwest Virginia Energy Research and Development Authority has identified grid modernization as a priority for the region . Modernizing the grid can reduce outage times, improve power quality, and enable the integration of distributed energy resources.
+
+The Appalachian Regional Commission's POWER Initiative has supported grid modernization projects throughout Appalachia. Since 2015, ARC has invested $484.7 million in 564 projects impacting 365 coal-impacted counties, with projects supporting economic diversification and revitalization . The 2024 POWER awards included $68.2 million for 65 projects across 10 states, supporting advanced manufacturing, entrepreneurship, healthcare, and workforce development .
+
+Grid modernization can also support economic development by providing reliable power for businesses. The Energy DELTA Lab project in Wise County envisions transforming approximately 65,000 acres of old coal land into energy sources, including solar, wind, pumped hydro, small nuclear, and other clean energy technologies . The project has the backing of Governor Glenn Youngkin, who announced an agreement establishing a framework for developing the land .
+
+For economic advisors, supporting grid modernization means helping communities access funding through the POWER Initiative and other federal programs, connecting with utilities and grid operators, and planning for the workforce needed for grid modernization.
+
+---
+
+## Economic Strategies for Energy Diversification
+
+### Public-Private Partnerships
+
+The Energy DELTA Lab project demonstrates how public-private partnerships can leverage resources for large-scale energy development. The nonprofit venture is coordinating site development with Wise County officials and the landowner, Energy Transfer, which owns the acreage . A handful of localities, including Wise County, have established a special tax rate on data center equipment and resolutions aimed at welcoming regional data center investments .
+
+### Federal and State Funding
+
+The Virginia Brownfield and Coal Mine Renewable Energy Grant Fund provides $20 million for renewable energy development on coalfields and brownfields . The Appalachian Regional Commission's POWER Initiative provides funding for economic diversification in coal-impacted communities . The Appalachian Regional Energy Hub Initiative provides funding for hydrogen and natural gas development .
+
+### Workforce Development
+
+Energy development projects require skilled workers for construction, operations, and maintenance. Workforce development programs can prepare workers for careers in solar installation, battery storage, grid modernization, and hydrogen production. The Virginia Department of Energy's commitment to combining "workforce development, infrastructure investment, and entrepreneurship" in its reclamation strategy provides a framework for this approach.
+
+### Community Engagement
+
+The Coal Community Development Platform, developed by Appalachian Voices in partnership with residents from five Southwest Virginia communities, emphasizes the importance of community engagement in energy development . The platform includes recommendations for ensuring energy affordability and community benefits by embracing renewable energy and making sure that communities have a say in the siting of new energy projects .
+
+---
+
+## Conclusion
+
+Energy diversification represents one of the most significant economic opportunities for the Crooked Road and U.S. Route 23 corridor. Natural gas, solar, hydroelectric, battery storage, and grid modernization each offer pathways for economic growth while honoring the region's energy heritage . The Virginia Brownfield and Coal Mine Renewable Energy Grant Fund provides $20 million for renewable energy development . The Appalachian Regional Commission's POWER Initiative has invested nearly $500 million in coal-impacted communities since 2015 . The Energy DELTA Lab project aims to transform 65,000 acres of mine lands into a hub for energy innovation .
+
+For economic advisors, supporting energy diversification means helping communities access funding, develop viable projects, build public-private partnerships, and ensure that community voices are heard in energy planning. As the Southwest Virginia Energy Research and Development Authority has stated: "Southwest Virginia has the opportunity to continue to be a leader in energy. We will get there by leveraging the region's valuable assets and competing nationwide for entrepreneurs and large market cap developers while focusing on innovative and clean energy projects" .
+---
+
+# CHAPTER NINE: TECHNOLOGY AND INNOVATION CENTERS
+
+---
+
+## Broadband Infrastructure
+
+The expansion of broadband infrastructure represents one of the most transformative economic development opportunities for the Crooked Road and U.S. Route 23 corridor. High-speed internet has become as essential to modern economic life as electricity and running water—yet for decades, vast stretches of Southwest Virginia remained disconnected from the digital economy. The COVID-19 pandemic starkly exposed these gaps as students, workers, and businesses struggled to connect. Today, a coordinated effort across federal, state, and local levels is bringing universal broadband access to the region, creating opportunities for economic growth, education, healthcare, and quality of life that were previously unimaginable.
+
+Virginia has emerged as a national leader in broadband expansion, demonstrating how strategic public-private partnerships can bridge the digital divide. When Governor Glenn Youngkin took office in 2022, more than 430,000 Virginians lacked access to broadband infrastructure. Through aggressive deployment of state and federal funding, Virginia has connected three times more homes than any other state. With the approval of the Commonwealth's Broadband Equity, Access, and Deployment (BEAD) Final Proposal, every remaining unserved home and business in Virginia now has a funded broadband project underway, positioning Virginia to be one of the first states in the nation to reach universal broadband access.
+
+---
+
+### Fiber Networks: High-Speed, High-Capacity Connections
+
+Fiber optic infrastructure is the gold standard for broadband connectivity, providing the fastest speeds, greatest reliability, and capacity to meet future demands. In the Crooked Road corridor, fiber networks are being deployed through a combination of state, federal, and private investment, transforming communities that have long been underserved. The Virginia Telecommunications Initiative (VATI) serves as the primary state-level program supporting fiber deployment, providing grants to localities partnered with internet service providers to finance the deployment of high-speed broadband to unserved locations. VATI projects funded in fiscal years 2022, 2023, and 2024 will provide access to broadband infrastructure to 334,873 passings across Virginia, leveraging $828.4 million in state and federal funding alongside $1.228 billion in private and local matching funds.
+
+The quality of the infrastructure being deployed is exceptional. Over 93.4 percent of projects funded through VATI offer functionally gigabit (1,000 Mbps) download speeds, and over 73.7 percent offer functionally gigabit upload speeds. These speeds enable the full participation in the digital economy that rural communities have long been denied—supporting remote work, online education, telehealth, e-commerce, and business development.
+
+Private sector investment is complementing public funding. Shentel recently completed a $50 million construction project in Shenandoah County, partly funded through VATI, that expanded gigabit broadband internet service to more than 7,000 previously unserved homes. As Jenna French, Director of Tourism and Economic Development for Shenandoah County, observed: "Readily available broadband and high-speed internet have become standard expectations for prospective businesses and their workforce in today's increasingly digital economy". The partnership between the county and Shentel demonstrates the VATI model in action: counties provide local support and collaboration, while ISPs leverage their technical expertise and capital investment to deliver service, even in the most rural locations.
+
+The Appalachian Regional Commission (ARC) is also playing a critical role in fiber deployment across the region. In fiscal year 2025, ARC is supporting 45 projects in Virginia totaling $15.4 million, with $6.7 million invested specifically in community infrastructure, including broadband. These investments have been matched by $70.9 million and are attracting an additional $8.5 million in leveraged private investment.
+
+**Economic Development Implications:** Fiber networks are not simply infrastructure—they are the foundation for economic growth. Communities with fiber connectivity can attract remote workers, technology businesses, and entrepreneurs who require high-speed internet. The 285 businesses in Floyd County that will be served by the Citizens Industrial Park Broadband Expansion Project, funded by a $540,000 ARC grant, will have access to 10 Gbps speeds, enabling them to compete in the digital economy. As the senators noted in announcing the funding: "This funding will bring broadband to Floyd County, expanding job opportunities, boosting the local economy, and supporting individual households".
+
+**lowL and AI Integration:** Fiber infrastructure itself is passive, but the networks that manage it can be enhanced through lowL-powered monitoring and control systems. Network management systems can use lowL firmware to monitor fiber health, detect breaks, and optimize routing. AI-powered analytics can predict maintenance needs, identify congestion points, and optimize bandwidth allocation.
+
+---
+
+### Rural Wireless: Extending Connectivity to Remote Areas
+
+While fiber is the preferred solution for fixed broadband, rural wireless technologies play an essential role in extending connectivity to the most remote and difficult-to-reach areas. The mountainous terrain and low-density development that characterize much of the Crooked Road corridor make fiber deployment expensive and challenging. Wireless solutions, including fixed wireless access and low earth orbit satellite technologies, can bridge the gap, providing connectivity to areas where fiber is not economically viable.
+
+The BEAD program recognizes the need for a mix of technologies to achieve universal connectivity. Virginia's streamlined "Benefit of the Bargain" grant application process has allowed the Commonwealth to employ cost-effective technology alternatives where feasible, saving taxpayers more than $250 million. The BEAD program is awarding over $545 million to 23 internet service providers to extend broadband infrastructure to more than 133,000 remaining unserved homes, businesses, and community anchor institutions, with selected awardees deploying an array of technologies and leveraging nearly $430 million in private dollars.
+
+The Virginia Department of Housing and Community Development is also funding the expansion of cellular infrastructure and further developing the network of cellular towers to extend critical cellular connectivity in hard-to-reach places. Preliminary mapping shows over 41,000 homes and businesses that lack 4G connectivity, covering over 10,800 miles of roads and 19,000 square miles of land area. Expanding cellular connectivity creates more resilient and connected communities, providing critical support for emergency services, supporting local governments, and empowering the private sector with reliable connectivity to support business operations and innovation.
+
+The challenges of providing wireless connectivity in mountainous terrain are significant. Studies of rural broadband deployment in mountainous counties have shown that even ten towers do not provide adequate coverage, and a combination of taller towers (180 feet) and shorter community poles (as many as 40 or 50) may be needed to provide good service to most areas. Line of sight issues are a constant problem, as clear line of sight (or near line of sight) is required for fixed wireless Internet services. The increased use of wooden utility poles on private property is already common in some areas and provides a relatively simple solution to get customer equipment above tree cover.
+
+**Economic Development Implications:** Rural wireless connectivity supports emergency services, public safety, and economic development. As the DHCD notes, "Expanding cellular connectivity creates more resilient and connected communities across the Commonwealth, providing critical support for emergency services, supporting local governments and empowering the private sector with reliable connectivity to support business operations and innovation". For the Crooked Road corridor, improved wireless connectivity can support tourism, outdoor recreation, and the remote work economy.
+
+**lowL and AI Integration:** Wireless network optimization can be enhanced through lowL-powered monitoring systems that track signal strength, interference, and network performance. AI-powered analytics can optimize spectrum allocation, predict congestion, and identify coverage gaps. These systems enable more efficient network management and improved user experience.
+
+---
+
+### Cellular Infrastructure: 5G and Mobile Networks
+
+Cellular infrastructure, particularly 5G networks, represents the next frontier of connectivity. AT&T has invested nearly $1.1 billion in network infrastructure in Virginia from 2020 to 2024, with significant investments in the Roanoke area ($20 million), Richmond ($175 million), and the Virginia Beach-Norfolk-Newport News area ($150 million). These investments focus on all facets of the network, including 5G and FirstNet, the public safety network built with AT&T.
+
+The development of 5G in Virginia must be understood in context. As a 2019 study of rural broadband noted, "The much touted 5G wireless technology, as of 2019, is still largely marketing hype. The official standard for 5G radio technologies is planned for release later in 2019". While 5G has since become commercially available, its rural deployment faces significant challenges. "There is no free lunch in the physics of radio frequencies. The higher bandwidth of 5G means that cell sites need to be closer together because the 5G frequencies do not travel as far as existing 4G/LTE frequencies". In Franklin County, as an example, if 25% of the county (172 square miles) is underserved, "a thousand or more cell sites would be needed to provide ubiquitous coverage".
+
+Despite these challenges, cellular infrastructure continues to expand. AT&T's 5G network using low-band spectrum reaches more than 310 million people in more than 26,100 cities and towns across the U.S., and the company is working with businesses across sectors to create new innovations and increase efficiencies with 5G. For less densely populated areas, AT&T is expanding its 5G network so people there can have access to reliable connectivity. The company also launched AT&T Internet Air, a fixed wireless home internet service delivered over its 5G network, providing an all-in-one device that powers strong Wi-Fi coverage in homes.
+
+The DHCD's BEAD Non-Deployment Initiatives include a Cellular Infrastructure Program designed to "fund the expansion of cellular infrastructure and further develop the network of cellular towers to extend critical cellular connectivity in hard-to-reach places". The program targets "gray areas" (lacking 4G connectivity) and areas that "lack modern 5G connectivity from any carrier".
+
+**Economic Development Implications:** 5G and cellular infrastructure support the data economy, enabling technologies from autonomous vehicles to smart agriculture. The Southwest Virginia Energy Research and Development Authority's Energy DELTA Lab project envisions using former mine lands for data centers that would require robust connectivity. As the DHCD notes, expanding cellular connectivity "empowers the private sector with reliable connectivity to support business operations and innovation".
+
+**lowL and AI Integration:** Cellular base stations can be enhanced with lowL-powered controllers that manage power consumption, cooling, and network optimization. AI-powered systems can predict traffic patterns, optimize handoffs, and detect anomalies. These technologies improve network efficiency and user experience.
+
+---
+
+## Economic Strategies for Broadband Infrastructure
+
+### Federal and State Funding Programs
+
+The BEAD program is the largest source of federal funding for broadband expansion, with Virginia receiving $1.48 billion in BEAD funds. The Virginia Department of Housing and Community Development (DHCD) is administering the program, with over $545 million in BEAD awards to 23 internet service providers to extend broadband infrastructure to more than 133,000 remaining unserved homes. The DHCD's Office of Broadband anticipates BEAD funding will be awarded in Summer 2025, with projects beginning in 2026.
+
+The Virginia Telecommunications Initiative (VATI) provides grants to localities partnered with internet service providers to finance broadband deployment to unserved locations. The state budget for FY2025 includes $30 million for VATI, with $19.7 million allocated for FY2026. Language added to the budget allows VATI funding to be used for "make ready" costs, including pole replacements in defined circumstances, addressing a key barrier to deployment.
+
+The Appalachian Regional Commission supports broadband expansion in the Virginia Appalachian region through its community infrastructure investments. In FY 2025, ARC is investing $6.7 million in Virginia for community infrastructure, including broadband, water, and wastewater systems.
+
+### Public-Private Partnerships
+
+The VATI model is built on the power of partnerships between counties and internet service providers, creating a collaborative environment to bridge the digital divide. The Shenandoah County project demonstrates how these partnerships work: the county provided local support, Shentel contributed its capital investment, and the state provided VATI funding, resulting in a $50 million project that served more than 7,000 previously unserved homes.
+
+As Shenandoah County Chairman of the Board of Supervisors Josh Stephens reflected: "Even before grants were available, the Board of Supervisors understood that there were underserved areas in the county without high-speed broadband availability. When VATI funding became available, we had options on who to work with in making this expansion come to fruition. We chose Shentel and that turned out to be the best decision. Shentel's commitment to our community to provide this service was evident from the beginning".
+
+### Overcoming Deployment Barriers
+
+Several barriers to broadband deployment have been identified, including the "make-ready" effort (preparing existing electric poles for aerial broadband network construction), supply chain disruptions, labor shortages, railroad crossings, permitting processes for state-owned rights of way, and permitting to cross federally owned lands. The Virginia Department of Housing and Community Development has identified 29 out of 61 projects as "at risk for incompletion or underperformance," with the make-ready effort being a primary justification for delays.
+
+The FY2025 budget amendment addresses this challenge by allowing VATI funding to be used for make-ready costs, including pole replacements, in areas served by not-for-profit public utilities. This funding is available to units of government that previously received VATI funding with a private sector internet provider as co-awardee, and may be used to supplement previously awarded projects.
+
+---
+
+## Conclusion
+
+Broadband infrastructure is the foundation upon which the technology and innovation economy of the Crooked Road and U.S. Route 23 corridor will be built. Fiber networks provide the high-speed, high-capacity connections that enable remote work, online education, telehealth, and business development. Rural wireless technologies extend connectivity to the most remote areas, ensuring that no community is left behind. Cellular infrastructure, including 5G, supports the mobile economy and enables new technologies from autonomous vehicles to smart agriculture. The integration of lowL, AI, and robotics can further enhance these networks, enabling real-time monitoring, predictive maintenance, and optimized performance.
+
+The investment in broadband infrastructure across the region is substantial. The BEAD program is providing $1.48 billion for universal connectivity, with over $545 million awarded to 23 providers. The VATI program has funded 334,873 passings with $828.4 million in state and federal funding. The Appalachian Regional Commission is investing $6.7 million in Virginia for community infrastructure, including broadband. These investments are creating a foundation for economic growth that will benefit the region for generations.
+
+As Governor Glenn Youngkin stated: "Connecting every Virginia home and business to reliable, high-speed internet has been a top priority... This approval clears the way for us to keep this promise, with a funded broadband project for every unserved home and business in the Commonwealth. Virginia continues to be a national leader in broadband expansion and will be one of the first states in the nation to reach universal broadband access".
+
+For economic advisors, supporting broadband expansion means helping communities navigate funding opportunities, build public-private partnerships, and address deployment barriers. The stories of Floyd County, Shenandoah County, and communities across the Commonwealth demonstrate that with strategic investment and partnership, universal connectivity is achievable. This connectivity is not an end in itself—it is the foundation for economic growth, educational opportunity, healthcare access, and quality of life that will define the region's future.
+
+# CHAPTER NINE: TECHNOLOGY AND INNOVATION CENTERS (Continued)
+
+---
+
+## Technology Businesses
+
+The development of a robust technology business ecosystem is essential for the long-term economic vitality of the Crooked Road and U.S. Route 23 corridor. Technology businesses offer high-wage employment opportunities, support economic diversification, and enable other sectors—including manufacturing, agriculture, and healthcare—to modernize and compete. The region's investments in broadband infrastructure, the establishment of innovation centers, and the presence of educational institutions including the University of Virginia's College at Wise and Virginia Tech create a foundation for technology business development. The integration of lowL, AI, and robotics into technology businesses further enhances their capabilities and competitiveness.
+
+---
+
+### Software Development: Applications and Services
+
+Software development is the process of creating, designing, deploying, and supporting software applications and systems that enable businesses, governments, and individuals to accomplish specific tasks . Software development encompasses a broad range of activities, from custom application development for specific business needs to commercial off-the-shelf software products that serve broad markets . The software development lifecycle (SDLC) typically includes planning, analysis, design, implementation, testing, deployment, and maintenance .
+
+Modern enterprises increasingly use the DevOps model, which combines software development and IT operations to accelerate the delivery of higher-quality applications and services . DevOps teams focus on continuous integration and continuous delivery (CI/CD), using automation to deploy small, frequent updates that continually improve software performance . Artificial intelligence-powered tools and generative AI are increasingly used to assist software development teams in producing and testing code .
+
+For the Crooked Road corridor, software development offers significant opportunities. The region's investments in broadband infrastructure enable remote work and technology business development. The presence of educational institutions including the University of Virginia's College at Wise and Virginia Tech provides a pipeline of talent for software development roles. The integration of lowL into software development for embedded systems—including industrial control systems, robotics, and IoT devices—creates additional opportunities for specialized software development.
+
+**Economic Development Implications:** The development of a software development industry in the Crooked Road corridor can create high-wage employment, support entrepreneurship, and enable other sectors to modernize. Software development businesses can serve regional industries—including manufacturing, agriculture, healthcare, and energy—while also reaching national and international markets through export-oriented software services.
+
+**lowL and AI Integration:** Software development in the region can benefit from lowL for embedded systems programming, enabling efficient, deterministic software for industrial control systems, robotics, and IoT devices. AI-powered development tools can accelerate code generation, testing, and optimization, reducing development time and improving quality.
+
+---
+
+### Cybersecurity: Protection Services
+
+Cybersecurity is the discipline concerned with protecting computer systems, networks, data, and software from unauthorized access, damage, disruption, and theft . It encompasses the technical, procedural, and organizational measures used to ensure the confidentiality, integrity, and availability of digital information and the infrastructure that processes it . The scope extends from individual devices and enterprise networks to critical national infrastructure such as power grids, financial systems, and healthcare facilities .
+
+Cybersecurity practices are applied across virtually all sectors where digital systems operate: financial services, healthcare, government and defense, critical infrastructure operations in energy, water, and transportation, and consumer electronics and mobile platforms . Key domains include network security, endpoint security, data security, identity and access management, cloud security, application security, AI security, and insider risk management .
+
+For the Crooked Road corridor, cybersecurity offers significant opportunities. The growing prevalence of cyber threats creates demand for cybersecurity services across all sectors. The region's investments in broadband infrastructure and technology businesses require robust cybersecurity to protect sensitive data and maintain trust. Cybersecurity businesses can serve regional clients while also reaching national and international markets.
+
+**Economic Development Implications:** Cybersecurity businesses can provide high-wage employment, support entrepreneurship, and enable other sectors to operate securely. The region's status as an energy-producing region makes cybersecurity for critical infrastructure particularly relevant. The University of Virginia's College at Wise and Virginia Tech can support cybersecurity workforce development.
+
+**lowL and AI Integration:** LowL-powered embedded systems can implement security features including hardware root of trust, secure boot, and cryptographic operations. AI-powered security analytics can detect threats, identify anomalies, and automate response. The combination of lowL and AI enables security systems that are both efficient and intelligent.
+
+---
+
+### Artificial Intelligence: Applications and Solutions
+
+Artificial Intelligence (AI) is an interdisciplinary area of study that straddles the interfaces connecting computer science, neuroscience, linguistics, engineering, mathematics, physics, philosophy, psychology, and other fields . The field of AI aims to investigate the underpinnings of human intelligence and cognition, simulate human intelligence in machines, engineer systems that can learn from their experiences, and build systems that can perform as well as or better than humans on tasks considered to require intelligence .
+
+AI encompasses multiple approaches, including machine learning, which enables systems to learn from prior data; deep learning, which uses neural networks to identify patterns in complex data; natural language processing, which gives computers the ability to process and analyze human communication; and computer vision, which interprets the visual world . Generative AI tools can create text, images, code, and other content based on natural language prompts .
+
+For the Crooked Road corridor, AI offers significant opportunities across multiple sectors. In manufacturing, AI can optimize production scheduling, quality control, and predictive maintenance. In agriculture, AI can analyze crop health data, predict yields, and optimize resource use. In healthcare, AI can support diagnosis, treatment planning, and administrative efficiency. The presence of Virginia Tech and the University of Virginia's College at Wise provides research and workforce development support for AI applications.
+
+**Economic Development Implications:** AI businesses can provide high-wage employment, support entrepreneurship, and enable other sectors to modernize. The region's investments in broadband infrastructure and technology education create a foundation for AI business development. AI applications in manufacturing, agriculture, and healthcare can improve productivity and competitiveness.
+
+**lowL and AI Integration:** LowL's SIMD capabilities enable efficient execution of AI inference on edge devices, reducing latency and bandwidth requirements. AI models can be deployed on lowL-powered embedded systems for real-time applications including industrial automation, autonomous vehicles, and smart sensors. The combination of lowL and AI enables intelligent, real-time systems across multiple sectors.
+
+---
+
+### Geographic Information Systems: Planning and Resource Management
+
+A geographic information system (GIS) is a type of database containing geographic data—descriptions of phenomena for which location is relevant—combined with software tools for managing, analyzing, and visualizing those data . GIS provides the capability to relate previously unrelated information through the use of location as the key index variable . The scope of GIS extends beyond software to include human users, procedures, workflows, and institutional organizations .
+
+GIS is utilized in multiple technologies, processes, and applications related to engineering, planning, management, transport/logistics, insurance, telecommunications, and business . GIS and location intelligence applications are at the foundation of location-enabled services, which rely on geographic analysis and visualization . GIS software includes both commercial programs such as Esri ArcGIS and open source programs such as QGIS and GRASS GIS .
+
+For the Crooked Road corridor, GIS offers significant opportunities across multiple sectors. In regional planning, GIS can support site selection for industrial development, infrastructure planning, and land use management. In agriculture, GIS can support precision farming, resource management, and environmental monitoring. In natural resource management, GIS can support forestry, water resource management, and conservation planning.
+
+**Economic Development Implications:** GIS businesses can provide high-wage employment and support entrepreneurship. GIS expertise is increasingly in demand across multiple sectors, including government, utilities, telecommunications, and environmental consulting. The region's investments in broadband infrastructure and technology education create a foundation for GIS business development.
+
+**lowL and AI Integration:** LowL-powered sensors can collect real-time geographic data for GIS analysis. AI-powered analytics can extract insights from geographic data, supporting decision-making in planning, resource management, and environmental monitoring.
+
+---
+
+### Data Analytics: Decision-Making Support
+
+Data analytics is the process of extracting meaning from raw data using specialized computer systems that transform, organize, and model the data to draw conclusions and identify patterns . Data analytics is a general term for any type of processing that looks at historical data over time, although the term is increasingly associated with analyzing large volumes of data that present unique computational and data-handling challenges .
+
+At the University of Virginia School of Data Science, data science is understood as the broadest category within which data analytics and machine learning are situated . While data science is used to understand and extract knowledge from data, data analytics focuses more on insights from already-existing datasets to solve business problems . Data analysts interpret data to help inform data-driven decision-making, often looking at the past to extrapolate patterns .
+
+For the Crooked Road corridor, data analytics offers significant opportunities across multiple sectors. In manufacturing, data analytics can support quality control, supply chain optimization, and production planning. In agriculture, data analytics can support precision farming, yield prediction, and market analysis. In healthcare, data analytics can support patient outcomes analysis and operational efficiency. Data analytics businesses can serve regional clients while also reaching national and international markets.
+
+**Economic Development Implications:** Data analytics businesses can provide high-wage employment and support entrepreneurship. Data analytics expertise is increasingly in demand across multiple sectors. The presence of the University of Virginia's College at Wise and Virginia Tech provides workforce development support for data analytics careers.
+
+**lowL and AI Integration:** LowL-powered sensors can collect real-time data for analytics applications. AI-powered analytics can extract insights from data, supporting decision-making across multiple sectors. The combination of lowL and AI enables real-time, data-driven decision-making in industrial, agricultural, and environmental applications.
+
+---
+
+## Economic Strategies for Technology Business Development
+
+### Innovation Centers and Incubators
+
+Innovation centers and incubators provide workspace, shared services, and intensive support for technology businesses. These centers reduce barriers to technology business development and improve success rates. The region's community colleges and economic development organizations can support incubation and acceleration. The Virginia Innovation Partnership Corporation supports technology commercialization and business development.
+
+### Workforce Development and Training
+
+Technology businesses need workers with skills in software development, cybersecurity, artificial intelligence, and data analytics. Training programs must prepare workers for these careers. Community colleges and universities throughout the region offer technology training programs. The University of Virginia's College at Wise and Virginia Tech provide technology education that supports workforce development.
+
+### Broadband Infrastructure
+
+Broadband infrastructure is essential for technology business development. Access to reliable, high-speed internet is a prerequisite for most technology businesses. The expansion of broadband throughout the region—supported by state and federal programs—creates opportunities for technology businesses to locate and grow in the region.
+
+### University and Industry Partnerships
+
+University and industry partnerships support technology development and commercialization. The Virginia Innovation Partnership Corporation provides funding and support for technology commercialization. University partnerships—including Virginia Tech and the University of Virginia—provide research and development support. The Lab-to-Launch initiative creates standardized Fast-Track License agreements for commercializing university research.
+
+### Business Networks and Connections
+
+Technology businesses benefit from connections with peers, mentors, investors, and customers. Business networks and connections support learning, collaboration, and business development. Networking events, professional associations, and online communities can help technology businesses build the connections they need to succeed.
+
+---
+
+## Conclusion
+
+The development of technology businesses in the Crooked Road and U.S. Route 23 corridor represents a significant opportunity for economic diversification and growth. Software development, cybersecurity, artificial intelligence, geographic information systems, and data analytics each offer pathways for high-wage employment, entrepreneurship, and economic development. The region's investments in broadband infrastructure, the presence of educational institutions, and the establishment of innovation centers create a foundation for technology business development.
+
+The integration of lowL, AI, and robotics into technology businesses enhances their capabilities and competitiveness. LowL enables efficient, deterministic software for embedded systems, industrial control systems, and IoT devices. AI enables intelligent, data-driven decision-making across multiple sectors. Robotics enables physical automation and interaction. The combination of these technologies creates opportunities for technology businesses to develop innovative solutions for regional and national markets.
+
+For economic advisors, supporting technology business development means helping entrepreneurs and businesses access innovation centers, workforce training, broadband infrastructure, university partnerships, and business networks. The success of technology businesses in the region will depend on the availability of skilled workers, supportive infrastructure, and a business environment that encourages innovation and entrepreneurship.
+
+# CHAPTER NINE: TECHNOLOGY AND INNOVATION CENTERS (Continued)
+
+---
+
+## Innovation Centers
+
+Innovation centers serve as the connective tissue between research, technology development, and economic growth. These facilities provide the infrastructure, expertise, and collaborative environment that enable technologies to move from the laboratory to the marketplace. For the Crooked Road and U.S. Route 23 corridor, the development of innovation centers represents a critical strategy for capturing the economic benefits of the region's investments in broadband, education, and technology business development. The integration of lowL, AI, and robotics into innovation center operations can further enhance their capabilities and impact.
+
+---
+
+### Business Incubators: Workspace and Support for Startups
+
+Business incubators provide workspace, shared services, and intensive support for new businesses during their critical early stages. Incubators reduce the barriers to entrepreneurship by providing affordable space, business counseling, access to financing, and connections to mentors and customers. For the Crooked Road corridor, incubators can support technology, manufacturing, and agriculture startups, creating jobs and diversifying the regional economy.
+
+Successful incubators like Sears think[box] at Case Western Reserve University demonstrate the comprehensive support that effective incubation can provide. think[box] is a world-class innovation center, makerspace, and entrepreneurship ecosystem that welcomes thousands of visitors each year and is open to everyone at no cost. The facility brings together resources for venture creation and entrepreneurship under one roof, including prototyping and fabrication equipment, space to brainstorm, legal and business support to commercialize intellectual property, and guidance to create market-ready products.
+
+The success of incubators depends on creating an environment where entrepreneurs can learn, refine, and utilize skills to achieve their goals. As think[box] has demonstrated, this requires not only physical space and equipment but also the cultivation of a diverse community and a culture that encourages persistence and values resilience.
+
+**Economic Development Implications:** Business incubators in the Crooked Road corridor can support the development of technology businesses that create high-wage employment. By providing affordable workspace and business support, incubators reduce the risk of entrepreneurship and increase the success rates of new businesses. The region's community colleges and economic development organizations can support incubation through partnerships and funding.
+
+**lowL, AI, and Robotics Integration:** Incubators can support startups developing lowL-powered embedded systems, AI applications, and robotics solutions. Access to shared equipment, including 3D printers, CNC machines, and electronics labs, enables rapid prototyping and iteration.
+
+---
+
+### Startup Accelerators: Intensive Support and Funding
+
+Startup accelerators provide intensive, time-limited support for growing businesses, typically including mentorship, education, and access to funding. Accelerators help businesses achieve rapid growth, refine their business models, and connect with investors. For the Crooked Road corridor, accelerators can support technology and innovation businesses that have the potential for rapid growth and job creation.
+
+Accelerators typically operate on a cohort model, with groups of businesses receiving structured programming over a period of weeks or months. Programming includes workshops on business development, marketing, finance, and fundraising; mentorship from experienced entrepreneurs and investors; and connections to potential customers and partners. Many accelerators provide seed funding in exchange for equity, aligning their incentives with the success of the businesses they support.
+
+For the Crooked Road corridor, accelerators focused on technology, advanced manufacturing, and agtech could support the growth of businesses that leverage the region's assets. The University of Virginia's College at Wise and Virginia Tech can support accelerator programs through faculty expertise and research partnerships.
+
+**Economic Development Implications:** Startup accelerators can accelerate the growth of technology businesses, creating jobs and attracting investment. By providing intensive support and funding, accelerators help businesses achieve growth trajectories that would be difficult to achieve independently. The region's economic development organizations can support accelerator development through funding and partnerships.
+
+**lowL, AI, and Robotics Integration:** Accelerators can support startups developing lowL-powered products, AI applications, and robotics solutions. Mentorship from experienced technologists and entrepreneurs can help startups refine their products and business models.
+
+---
+
+### Shared Manufacturing Laboratories: Access to Advanced Equipment
+
+Shared manufacturing laboratories provide access to advanced equipment that would be too expensive for individual businesses or entrepreneurs to acquire independently. These facilities support prototyping, testing, and small-scale production, enabling businesses to develop and refine products without large capital investments. For the Crooked Road corridor, shared manufacturing labs can support manufacturing, technology, and agricultural innovation.
+
+Sears think[box] provides a model for shared manufacturing facilities. The Fabrication Floor is a high-tech workshop with metalworking and woodworking equipment including a waterjet cutter, welding equipment, CNC mills and lathes, designed to minimize machining time and maximize the time spent testing and iterating designs. The Prototyping Floor features top-of-the-line prototyping tools—3D printers and scanners, laser cutters, electronics, sewing, design tools, and more—open and accessible to makers of all kinds.
+
+The MITRE Innovation Centers demonstrate how shared expertise complements shared equipment. MITRE's 15 Innovation Centers confront some of today's biggest challenges by bringing together people, technology, and innovation. The Centers apply the objectivity and expertise of 4,000+ technical staff across a wide range of disciplines, focusing on helping the nation accomplish its national science and technology strategic vision.
+
+**Economic Development Implications:** Shared manufacturing laboratories can lower the barriers to manufacturing innovation, enabling businesses to develop and test products without large capital investments. The region's community colleges and economic development organizations can support shared manufacturing labs through partnerships and funding. The AM2 initiative, supported by GO Virginia, demonstrates the potential for shared manufacturing facilities to support additive manufacturing and advanced materials development.
+
+**lowL, AI, and Robotics Integration:** Shared manufacturing labs can provide access to lowL development tools and robotics equipment, enabling startups and businesses to develop and test embedded systems and automation solutions. The combination of shared equipment and lowL-powered prototyping enables rapid iteration and innovation.
+
+---
+
+### Research Partnerships: University and Institutional Connections
+
+Research partnerships between universities, research institutions, and businesses support technology development and commercialization. These partnerships provide businesses with access to research expertise, facilities, and funding, while providing researchers with real-world problems to solve and pathways to commercialization. For the Crooked Road corridor, research partnerships can support technology, manufacturing, agriculture, and energy innovation.
+
+The Whitehead Institute's Innovation Centers provide a model for how research partnerships can work. The Centers provide specialized expertise and technology in areas such as genomics, metabolomics, bioinformatics, and imaging, offering researchers valuable research services. Staff at the Innovation Centers are not just service providers but potent collaborators and thought-partners with deep expertise and enthusiasm for research. As one researcher observed: "The Innovation Centers are filled with great scientists who have decades of experience and expertise, and who are eager to collaborate to push your research forward."
+
+The Lab-to-Launch initiative in Virginia creates a standardized Fast-Track License agreement to commercialize university research. Startups that spin off from universities using the Fast-Track License are eligible for grant awards of up to $50,000 toward upfront out-of-pocket university commercialization costs. The initiative also includes an Entrepreneur-in-Residence program to connect industry experience with technical knowledge and a digital database for university IP to make it easier for industry partners to access university innovation pipelines.
+
+**Economic Development Implications:** Research partnerships can support the development of new technologies and products that create jobs and attract investment. The region's universities, including the University of Virginia's College at Wise and Virginia Tech, can support research partnerships through faculty expertise, facilities, and technology transfer offices. Economic advisors should help businesses connect with research institutions and access commercialization support.
+
+**lowL, AI, and Robotics Integration:** Research partnerships can support the development of lowL applications, AI algorithms, and robotics solutions. The combination of university research expertise and business commercialization capabilities can accelerate the development and deployment of these technologies.
+
+---
+
+### Technology Parks: Campus Environments for Technology Businesses
+
+Technology parks provide campus environments where technology businesses can locate, collaborate, and grow. These parks typically offer high-quality facilities, access to broadband infrastructure, proximity to research institutions, and connections to other technology businesses. For the Crooked Road corridor, technology parks can attract and support technology businesses, creating high-wage employment and economic diversification.
+
+The Russell Regional Business Technology Park in Lebanon demonstrates the potential for technology parks in the region. The park has attracted telecommunications giant CGI, which found the county's investment in broadband infrastructure attractive. The park's location, infrastructure, and support services make it competitive for businesses seeking locations for data redundancy and data storage.
+
+The Project Intersection initiative in Norton is another example of how industrial and technology parks can be developed on reclaimed mine lands. The 200-acre industrial megasite is operated by the Lonesome Pine Regional Industrial Facilities Authority, which includes Lee, Wise, Scott, and Dickenson counties and the city of Norton. The site has attracted EarthLink, which invested $5.4 million to build a 28,000-square-foot call center expected to create 285 jobs.
+
+**Economic Development Implications:** Technology parks can attract technology businesses that create high-wage employment and support economic diversification. The region's investments in broadband infrastructure and site development are creating the foundation for technology park development. The Energy DELTA Lab project aims to transform 65,000 acres of mine lands into a hub for energy innovation, creating a technology park focused on clean energy.
+
+**lowL, AI, and Robotics Integration:** Technology parks can support businesses developing lowL-powered systems, AI applications, and robotics solutions. The proximity of businesses, researchers, and entrepreneurs creates opportunities for collaboration and innovation.
+
+---
+
+## Education and Training
+
+Education and training are the foundation of workforce development for technology and innovation. While education develops general competence and understanding, training provides specific skills for particular jobs and tasks . Both are essential for preparing workers for technology careers and supporting economic growth . For the Crooked Road corridor, investments in education and training are creating the workforce that will drive technology business development and economic diversification.
+
+---
+
+### STEM Education: Science, Technology, Engineering, Mathematics
+
+STEM education provides students with the foundational knowledge and skills needed for technology careers. Science education develops understanding of the natural world and scientific methods. Technology education builds skills in using and creating technology. Engineering education applies scientific and mathematical principles to solve problems. Mathematics education develops quantitative reasoning and analytical skills.
+
+For the Crooked Road corridor, STEM education is essential for preparing the next generation of workers for technology careers. The region's K-12 schools, community colleges, and universities offer STEM programs that develop the skills needed for software development, cybersecurity, artificial intelligence, data analytics, and other technology fields. The Agriculture STEM Academy at the Virginia Tech Southwest Center introduces middle school students to technologies including GPS, sensors, and smart equipment, helping them see how science and technology are shaping the future of agriculture.
+
+The GO TEC program, which introduces middle school students to emerging, STEM-focused career fields through hands-on learning, represents the potential for early STEM exposure. Beginning in the 2025-26 academic year, more than 11,000 students from 73 Virginia middle schools will interact with the GO TEC curriculum annually. Students work through modules in Electrical Engineering, Mechanical Engineering, Manufacturing Engineering, Automation & Robotics, Welding, Precision Machining, Healthcare Technologies, IT Coding & Networking, Metrology, Precision Agriculture, and Energy.
+
+**Economic Development Implications:** STEM education creates a pipeline of workers for technology careers. The region's investments in STEM education are creating the workforce that will drive technology business development and economic diversification. Economic advisors should help school divisions and employers connect with STEM education resources and programs.
+
+**lowL, AI, and Robotics Integration:** STEM education can include lowL programming, AI applications, and robotics, preparing students for careers in embedded systems development, artificial intelligence, and automation.
+
+---
+
+### Vocational Training: Technical Skills
+
+Vocational training provides students with technical skills for specific occupations. Vocational training is typically hands-on and practice-based, focusing on the skills needed to perform particular jobs. For the Crooked Road corridor, vocational training is essential for preparing workers for manufacturing, construction, healthcare, and technology careers.
+
+Vocational training programs are offered through community colleges, technical schools, and apprenticeship programs. The Marshall Advanced Manufacturing Center provides Machinist Technology/CNC, Welding Technology, and SMART (Systems Maintenance, Automation and Robotics Technology) programs. The Virginia Talent Accelerator Program provides customized training for new and expanding companies.
+
+**Economic Development Implications:** Vocational training prepares workers for high-demand occupations, supporting business development and economic growth. The region's community colleges and technical schools offer vocational training programs that address the needs of regional employers. Economic advisors should help businesses connect with vocational training resources and develop apprenticeship programs.
+
+**lowL, AI, and Robotics Integration:** Vocational training can include lowL programming, AI applications, and robotics, preparing students for careers in embedded systems development, industrial automation, and robotics. The GO TEC program's modules in Automation & Robotics, Precision Machining, and Electrical Engineering provide hands-on experience with these technologies.
+
+---
+
+### Workforce Development: Employment Connection
+
+Workforce development programs connect training with employment, ensuring that trained workers find jobs and that employers find workers with appropriate skills. Workforce development includes job placement services, career counseling, and employer engagement. For the Crooked Road corridor, workforce development is essential for ensuring that investments in education and training translate into employment and economic growth.
+
+The Virginia Talent Accelerator Program helps position each client as an employer of choice, using a combination of recruitment tactics optimized for each client and region. The program's customized recruitment campaigns help attract high-quality candidates by highlighting each employer's unique appeal. The program provides organizational development services, including designing and documenting career paths and facilitating focus groups.
+
+The ExTRA (Expanding Talent through Registered Apprenticeship) program at the Institute for Advanced Learning and Research supports employers in launching customized apprenticeship programs. Since 2022, ExTRA has supported 27 employers in creating 30 new registered apprenticeship programs, resulting in 94 registered apprentices.
+
+**Economic Development Implications:** Workforce development programs connect trained workers with employment, supporting business development and economic growth. The region's workforce development organizations can support employers in recruiting, training, and retaining workers. Economic advisors should help employers connect with workforce development resources and develop talent pipelines.
+
+**lowL, AI, and Robotics Integration:** Workforce development programs can prepare workers for careers in lowL programming, AI applications, and robotics. The combination of technical training and job placement services can help workers build careers in these fields.
+
+---
+
+### Career Awareness: Promoting Technology Careers
+
+Career awareness programs help students and workers understand the opportunities available in technology careers and the pathways to pursue them. Career awareness is essential for addressing the "awareness gap" that prevents many people from pursuing technology careers. For the Crooked Road corridor, career awareness programs can help build the workforce needed for technology business development.
+
+The GO TEC program provides career awareness through hands-on learning experiences. Students work through modules that introduce them to manufacturing, engineering, and technology careers. The program helps students see the application of what they are learning in other classes and understand the pathways to technology careers.
+
+EO Companies in Abingdon provides career awareness building for high school students through its Career Commons program. Students explore potential future careers through interactive experiences, helping them discover career options they may not have considered. Teachers are also included in career awareness programming, recognizing that many teachers are unaware of jobs and occupations.
+
+**Economic Development Implications:** Career awareness programs help build the workforce needed for technology business development. By helping students and workers understand technology career opportunities and pathways, career awareness programs increase the supply of qualified workers for technology businesses. Economic advisors should help school divisions and employers connect with career awareness resources and programs.
+
+**lowL, AI, and Robotics Integration:** Career awareness programs can expose students to careers in lowL programming, AI development, and robotics engineering. By providing hands-on experience with these technologies, career awareness programs can help students understand the skills and pathways needed for these careers.
+
+---
+
+### Continuing Education: Ongoing Skills Development
+
+Continuing education provides ongoing skills development for workers throughout their careers. As technology evolves, workers must continuously update their skills to remain competitive. Continuing education includes professional development courses, certification programs, and advanced degrees. For the Crooked Road corridor, continuing education is essential for ensuring that the workforce can adapt to changing technology and economic conditions.
+
+Continuing education can take many forms, including in-person courses, online courses, workshops, and conferences. The University of Virginia's College at Wise and Virginia Tech offer continuing education programs for technology professionals. Professional associations, industry organizations, and employers also provide continuing education opportunities.
+
+**Economic Development Implications:** Continuing education ensures that the workforce can adapt to changing technology and economic conditions. By supporting continuing education, the region can maintain a competitive workforce and attract technology businesses that require skilled workers. Economic advisors should help employers and workers connect with continuing education resources.
+
+**lowL, AI, and Robotics Integration:** Continuing education programs can provide training in lowL programming, AI applications, and robotics, enabling workers to update their skills as technology evolves.
+
+---
+
+## Conclusion
+
+Innovation centers and education/training programs are the foundation for technology and innovation development in the Crooked Road and U.S. Route 23 corridor. Business incubators, startup accelerators, shared manufacturing laboratories, research partnerships, and technology parks provide the infrastructure and support that technology businesses need to start, grow, and succeed. STEM education, vocational training, workforce development, career awareness, and continuing education create the workforce that technology businesses need.
+
+The success of these innovation centers and education programs depends on coordination across sectors and levels. Economic advisors can help by:
+
+1. **Connecting businesses with innovation center resources** such as incubators, accelerators, and shared labs
+2. **Linking employers with education and training providers** to ensure that programs meet workforce needs
+3. **Supporting career awareness programs** that help students and workers understand technology opportunities
+4. **Promoting continuing education** to enable workforce adaptation
+5. **Fostering university-industry partnerships** that support research and commercialization
+
+The integration of lowL, AI, and robotics into innovation centers and education programs can further enhance their impact. By embracing these technologies, the Crooked Road corridor can build a technology and innovation economy that creates high-wage employment, supports economic diversification, and ensures long-term prosperity.
+
+---
+
+## CHAPTER TEN: MUSIC, ARTS, AND STUDIO TECHNOLOGY
+
+## CHAPTER TEN: MUSIC, ARTS, AND STUDIO TECHNOLOGY
+
+The Crooked Road and U.S. Route 23 corridor are defined by their rich musical and cultural heritage. Across the hills and towns of Southwest Virginia, the sounds of bluegrass, old-time, and gospel music have echoed for generations, shaping community identity and attracting visitors from around the world. Today, this heritage is being preserved and reimagined through modern technology and studio production, creating new economic opportunities while honoring the traditions that make the region unique. The fusion of technology, art, and culture represents a thriving hub of creative possibilities where digital advances spawn new genres as creative exploration informs cutting-edge engineering.
+
+---
+
+### Preserving Appalachian Musical Heritage
+
+The preservation of Appalachian musical heritage is essential for maintaining the region's cultural identity and supporting economic development through tourism and creative industries. The Crooked Road was created to preserve traditional music while supporting local economies. By documenting, teaching, and celebrating the region's musical traditions, preservation efforts ensure that future generations can connect with their heritage and that visitors can experience the authentic culture that makes Southwest Virginia unique.
+
+#### Bluegrass: Deep Regional Roots
+
+Bluegrass music has deep roots in the Crooked Road corridor. The region is home to the Carter Family Fold in Hiltons, the Ralph Stanley Museum in Clintwood, and numerous other venues and festivals that celebrate bluegrass and old-time music. The authentic, uncommercialized nature of these attractions draws visitors from as far away as the United Kingdom, Brazil, Australia, and Japan. The Crooked Road is not an over-commercialized, over-commodified viewpoint of music in Southwest Virginia. It has allowed communities to latch onto something they can be proud of and put on display in an authentic way.
+
+The economic impact of bluegrass preservation is substantial. The Crooked Road generates approximately $6.4 million in annual spending and nearly $9.2 million in total economic impact when related business and employee spending is included. The Tobacco Region Revitalization Commission has provided over $4 million in grants over the years for community signage, economic impact studies, and venue revitalization. These investments support local businesses, create jobs, and attract visitors to the region.
+
+#### Old-Time Music: Traditional Mountain Music
+
+Old-time music represents the traditional mountain music that has been passed down through generations. Unlike bluegrass, which evolved later, old-time music reflects the fiddle and banjo traditions that settlers brought to the Appalachian region. The preservation of old-time music requires oral history, teaching, and performance opportunities that connect older musicians with younger generations. The Crooked Road venues, including the Floyd Country Store and its Friday Night Jamboree concerts, provide platforms for old-time music performance and preservation.
+
+#### Gospel: Sacred Music and Community Tradition
+
+Gospel music has been central to community life throughout the region. Sacred music has provided spiritual sustenance, community connection, and musical training for generations of Appalachian musicians. The preservation of gospel music requires documentation of songs, performances, and traditions, as well as support for gospel music events and venues. The Country Cabin II in Norton, the longest continuously running venue along The Crooked Road, has operated since 1938 and includes gospel music in its programming.
+
+#### Traditional Instruments: Guitar, Banjo, Fiddle, Mandolin, Dulcimer
+
+Traditional Appalachian instruments—guitar, banjo, fiddle, mandolin, and dulcimer—are central to the region's musical heritage. The preservation of instrument-making traditions is essential for maintaining the authenticity of Appalachian music. The region's instrument makers, ranging from luthiers to craftspeople, produce instruments that are valued by musicians worldwide. The combination of traditional craftsmanship with modern technology, including CNC-assisted production and digital design tools, can support instrument manufacturing while preserving traditional skills.
+
+The Appalachian Forest National Heritage Area in neighboring West Virginia demonstrates how cultural preservation can support economic development. The area helps rural communities grow by sharing and protecting their forest history and culture, establishing natural, historical, educational, and conservation-based tourism sites to promote economic and community development. The central Appalachian culture, including folklife, music, dance, crafts, and traditions, is inextricably tied to the forest.
+
+#### Oral History: Recording Stories and Music
+
+Oral history preservation is essential for documenting Appalachian musical heritage. The stories of musicians, the history of songs, and the context of performances provide essential context for understanding Appalachian music. Digital recording and archiving technologies make it possible to preserve oral histories for future generations. The Ralph Stanley Museum in Clintwood showcases memorabilia from the legendary singer and banjo player's 60-year career, preserving his legacy and the stories behind his music.
+
+---
+
+### Modern Music Technology
+
+Modern music technology creates new opportunities for the Crooked Road corridor while expanding the reach of Appalachian music. Digital recording studios, sound engineering education, instrument design, acoustic research, and AI-assisted music production all represent opportunities for economic development that builds on the region's musical heritage. The integration of modern technology can democratize access to music production, allowing artists from diverse communities to be heard and their stories to be told. The democratization of artistic contributions and access is eroding old boundaries and unlocking emerging forms of expression.
+
+#### Digital Recording Studios: Professional Facilities
+
+Digital recording studios enable professional-quality music production in the region. These facilities attract musicians, producers, and engineers who can record, mix, and master music for commercial release. The development of professional recording studios creates jobs, supports the creative economy, and enables musicians to produce high-quality recordings without traveling to urban centers. The recording studio is a place where technologies are connected in complex media networks, forming the apparatus structure of a sound-aesthetic dispositif, and the architecture of the studio has a significant effect on the sound of a recording and on the medial practice itself.
+
+The Crooked Road's Artist-in-Residence program provides a stipend and support to local musicians, helping them develop their careers while contributing to the region's cultural vitality. The heritage music fund offers grants to musicians of up to $500 for professional projects such as recording work, website development, and headshots. These small but strategic investments build the infrastructure for a vibrant creative economy.
+
+#### Sound Engineering Education: Recording, Mixing, Production
+
+Sound engineering education provides training in recording, mixing, and production. These skills are essential for the music industry and can be applied to film, gaming, and other media. Community colleges and universities in the region can develop sound engineering programs that prepare students for careers in music production. The integration of sound engineering education with the region's musical heritage creates opportunities for students to learn from established musicians and contribute to the preservation and evolution of Appalachian music.
+
+#### Instrument Design: Applying Modern Technology
+
+Instrument design applies modern technology to the creation of musical instruments. Design improvements create better instruments that can achieve new sounds and performance capabilities. The combination of traditional craftsmanship with modern technology can support instrument manufacturing while preserving traditional skills. The Appalachian instrument makers, ranging from luthiers to craftspeople, produce instruments that are valued by musicians worldwide.
+
+#### Acoustic Research: Sound Science
+
+Acoustic research studies the science of sound and instrument design. Acoustic research supports instrument development and studio design, enabling better understanding of how instruments produce sound and how acoustic spaces affect recordings. The Crooked Road's connection to music research institutions, including Virginia Tech, can support acoustic research that benefits the region's musical community.
+
+#### AI-Assisted Music Production: Composition, Production, Mixing
+
+AI-assisted music production uses artificial intelligence to support composition, production, and mixing. AI tools can assist with tasks including generating musical ideas, optimizing mixes, and creating samples. The integration of AI into music production can reduce costs, increase creative possibilities, and enable musicians to produce high-quality recordings with limited resources. As technology becomes integral to art and culture, it functions not just as a tool but as a creative collaborator. Software unlocks emerging forms of expression, and interactive mediums open new styles of engagement that redefine art itself.
+
+#### Sample Libraries: Digital Preservation of Appalachian Instruments
+
+Sample libraries record and preserve Appalachian instruments for digital use, making regional instruments available to global producers. The creation of sample libraries allows producers worldwide to incorporate authentic Appalachian sounds into their productions, expanding the reach of the region's musical heritage. Sample libraries also provide income to musicians and recording engineers through licensing fees.
+
+#### Vocal Preservation Projects: Digital Archiving
+
+Vocal preservation projects digitally archive performances and recordings of Appalachian singers. These projects ensure that the region's vocal traditions are preserved for future generations and made accessible to researchers and musicians. Digital archiving extends beyond preservation to democratize access to cultural materials, allowing diverse audiences to connect with cultural heritage sites and legendary performances. The digitization of artifacts transcends physical and geographical barriers.
+
+---
+
+## Economic Strategies for Music and Studio Technology Development
+
+### Infrastructure Investment
+
+Investment in music infrastructure—including recording studios, performance venues, and instrument manufacturing facilities—supports the creative economy. The Crooked Road's venues, the Floyd Country Store, and the Ralph Stanley Museum provide infrastructure for music performance and preservation. Investment in studio technology, including digital recording equipment and AI tools, enables musicians to produce high-quality recordings and reach global audiences.
+
+### Workforce Development
+
+Workforce development programs prepare musicians, engineers, and technicians for careers in the creative economy. Sound engineering education, instrument making training, and music business programs support workforce development. The GO TEC program, which introduces middle school students to STEM-focused career fields, can include modules in audio engineering and music production. The University of Virginia's College at Wise can develop music technology programs that support the creative economy.
+
+### Market Development and Promotion
+
+Market development connects musicians and creative businesses with customers and audiences. The Crooked Road provides branding and marketing for the region's musical heritage. Tourism promotion attracts visitors to music venues and festivals. Export assistance helps musicians and instrument makers reach national and international markets.
+
+### Access to Capital and Financing
+
+Access to capital supports music business development. The Crooked Road's Artist-in-Residence program and heritage music fund provide small grants to musicians. The Virginia Coalfield Economic Development Authority's loan programs can support music venue development, recording studio investment, and instrument manufacturing. The Creative Economy Grants, available through various state and federal programs, support arts and cultural development.
+
+### Private-Public Partnerships
+
+The Tobacco Region Revitalization Commission's support for The Crooked Road demonstrates the power of public-private partnerships for cultural development. The Commission has provided over $4 million in grants for community signage, economic impact studies, and venue revitalization. The Crooked Road's governance by a nonprofit organization provides another model for public-private partnership in cultural development.
+
+---
+
+## Conclusion
+
+The music and studio technology sector of the Crooked Road and U.S. Route 23 corridor represents a significant opportunity for economic development that honors the region's heritage while embracing modern technologies and markets. The preservation of Appalachian musical heritage—bluegrass, old-time, gospel, traditional instruments, and oral history—supports tourism, community identity, and creative industries. Modern music technology—digital recording studios, sound engineering education, instrument design, acoustic research, AI-assisted production, sample libraries, and vocal preservation—creates new opportunities for employment, entrepreneurship, and export.
+
+For economic advisors, supporting the music and studio technology sector means helping communities, businesses, and artists access infrastructure investment, workforce development, market promotion, capital, and public-private partnerships. The integration of lowL, AI, and robotics into music technology can further enhance the sector's capabilities and competitiveness. The region's musical heritage is its unique asset—and by preserving and reimagining it, the Crooked Road corridor can build a creative economy that attracts visitors, creates jobs, and inspires the next generation.
+
+# CHAPTER TEN: MUSIC, ARTS, AND STUDIO TECHNOLOGY (Continued)
+
+---
+
+## Studio Technology and DAW Programs
+
+The digital audio workstation (DAW) is the central tool of modern music production. These software platforms enable recording, editing, mixing, and production, making professional-quality music creation accessible to artists throughout the Crooked Road corridor. The choice of DAW shapes the creative process, with different platforms offering distinct workflows and capabilities that suit different types of music production.
+
+### Digital Audio Workstations (DAWs): Bitwig, Ableton, Pro Tools
+
+Digital audio workstations can be categorized by their design philosophy. Mix-Centric workstations such as Pro Tools, Logic Pro, and Cubase are designed to facilitate audio recording, editing, and mixing tasks, with a focus on creating polished, professional-sounding mixes. Their primary function is to be an endpoint in the creative process, prioritizing audio quality and editing/mixing capabilities over creative experimentation. Artist-Centric workstations like FL Studio and Ableton are based on the creativity of the artist or producer, often disregarding traditional recording and mixing in favor of production and performance processes.
+
+**Bitwig Studio** has emerged as a powerful and innovative DAW with distinct advantages for the Crooked Road corridor. Its feature set represents a convergence of the best ideas from other platforms, including Ableton's audio editing and MIDI generation capabilities, an innovative modulation system, a flexible container device concept, and hybrid tracks that combine audio and MIDI workflows. Bitwig's interface design prioritizes ease of use, making it accessible while offering deep capabilities for advanced users.
+
+In March 2026, Bitwig released version 6.0 with significant enhancements that make it particularly relevant for the region's creative economy. The introduction of **Alias Clips** allows users to share content across a single track, with note, audio, and automation clips each referencing a pattern on that track. When editing a pattern in any clip, it updates in all clips where it is used—a powerful feature for efficiently managing repetitive musical sections and creating cohesive productions. **Automation Clips** enable users to record, edit, and create automation in meaningful, musical blocks, using familiar clip workflows for automation including content scaling and stretching. Automation clips can be saved to the library, loaded into devices as modulators, and used as arrangement units or performance gestures.
+
+**Ableton Live** is characterized by a simplified, clean aesthetic and a process-oriented design with two main views: Session and Arrangement. Session view is designed for live use, displaying tracks vertically with clip spots that can be used in different scenes. Arrangement view displays tracks and audio in a timeline for editing using the standard XY-layout. Ableton presents creators with endless opportunities to structure their projects, oriented toward a combination of studio and live work. The DAW is not mainly designed for multitrack recording and mixing but to bring a mix out of a studio environment to a stage, enlightening creativity by not limiting the user.
+
+**Pro Tools** is considered the industry standard for post-production and mixing, making it the go-to choice for professional audio editors and mixing engineers in studios. The layout has remained relatively consistent since its introduction, with users having two main views—Mix and Edit—with transport and editing controls at the top. The design uses retro imitation to simulate physical knobs and buttons, giving it a classic look. In terms of functionality, Pro Tools offers 64 simultaneous record inputs, 512 audio tracks, 1024 MIDI tracks, and multichannel mixing in surround with Dolby Atmos and Ambisonics. It is widely recognized for its stability and familiarity.
+
+**FL Studio** has gained popularity among DJ producers and electronic dance music (EDM) artists since its initial release. It is built around a playlist (arrangement), piano roll (MIDI editor), and channel rack (drum machine for each clip), offering multiple arrangement views simultaneously. The platform is primarily built for editing samples and MIDI, with audio editing happening in Edison, a destructive editor. FL Studio markets itself as an extension of what you can do with a DJ kit, offering lifetime updates and "endless creativity."
+
+**Economic Development Implications:** Access to professional DAW software enables musicians in the Crooked Road corridor to produce high-quality recordings, supporting the creative economy and tourism. The region's community colleges, universities, and music venues can provide training in DAW operation, creating a skilled workforce for recording studios and music production businesses. The integration of DAWs with online collaboration platforms enables remote work with artists and engineers around the world, expanding economic opportunities beyond the region.
+
+**lowL, AI, and Robotics Integration:** DAW software can be controlled by lowL-powered hardware interfaces that provide tactile control over mixing, editing, and production workflows. AI-powered mixing and mastering tools are increasingly integrated into DAWs, providing automated assistance with production tasks. Robotic systems can be used in recording studios for automated microphone positioning and instrument manipulation.
+
+---
+
+### Electronic Music Production: Modern Creative Expression
+
+Electronic music production has become a significant creative and economic force in the Crooked Road corridor, building on the region's musical heritage while embracing modern technologies. The development of electronic music production offers opportunities for employment, entrepreneurship, and cultural expression that can strengthen the region's creative economy.
+
+Platforms like FL Studio and Ableton have become central to electronic music production. FL Studio has evolved from its original drum machine origins into a full-fledged DAW that is "primarily built for editing samples and MIDI." It offers 125 recordable and mixable tracks and provides "endless creativity" as its main selling point. Ableton, with its Session view designed for live performance, "closes the gap between produced material and performances on stage."
+
+Electronic music production is characterized by the use of virtual instruments, samplers, and sequencers that enable the creation of complex, layered compositions. The availability of extensive virtual instrument libraries and effects plugins makes it possible to produce professional-quality music with minimal physical equipment. For the Crooked Road corridor, this means that musicians can participate in the global music economy with relatively low barriers to entry.
+
+**Economic Development Implications:** Electronic music production creates opportunities for employment in recording studios, music production businesses, and creative services. The region's music venues and festivals can support electronic music performance and production. Educational programs can prepare students for careers in electronic music production, supporting the region's creative economy.
+
+**lowL, AI, and Robotics Integration:** lowL can support the development of custom hardware controllers for electronic music production, enabling tactile control over software instruments and effects. AI-powered music generation tools can assist with composition and arrangement. Robotic systems can be used in live performances for automated instrument control and visual effects.
+
+---
+
+### Audio Equipment: Recording Gear, Instruments, Software
+
+Audio equipment—including recording gear, instruments, and software—is the foundation of music production. The availability of high-quality, affordable equipment has democratized music production, enabling artists in the Crooked Road corridor to produce professional-quality recordings with limited investment. For the region's creative economy, access to audio equipment supports recording studio development, instrument manufacturing, and music production businesses.
+
+Recording gear includes audio interfaces, microphones, monitor speakers, headphones, and signal processing equipment. Modern interfaces provide high-quality analog-to-digital and digital-to-analog conversion, enabling studio-quality recording with relatively affordable equipment. Microphone selection, placement, and technique are essential for capturing high-quality audio.
+
+Instruments include both traditional Appalachian instruments—guitar, banjo, fiddle, mandolin, dulcimer—and electronic instruments, including synthesizers, MIDI controllers, and drum machines. The combination of traditional and electronic instruments creates opportunities for innovative music production that honors the region's heritage while embracing contemporary sounds.
+
+Software includes DAWs, virtual instruments, effects plugins, and sample libraries. The availability of software instruments and effects has expanded the creative possibilities for musicians, enabling them to create complex productions with limited physical equipment.
+
+**Economic Development Implications:** Investment in audio equipment supports the development of recording studios and music production businesses. Instrument manufacturing supports employment and cultural preservation. The availability of equipment and software enables musicians to produce professional-quality recordings, supporting the creative economy and tourism. Economic advisors should help musicians and studios access equipment financing and training.
+
+**lowL, AI, and Robotics Integration:** lowL can be used to develop custom audio processing hardware and controllers. AI-powered audio analysis and processing tools can assist with recording and mixing. Robotic systems can be used in instrument manufacturing for precision machining and assembly.
+
+---
+
+### Studio Spaces: Professional Production Facilities
+
+Professional studio spaces are essential for the development of the region's creative economy. Recording studios, rehearsal spaces, and performance venues provide the infrastructure for music production, performance, and education. For the Crooked Road corridor, investment in studio spaces supports the creative economy, tourism, and workforce development.
+
+Recording studios should be designed with acoustics, sound isolation, and equipment in mind. The architecture of the studio has a significant effect on the sound of a recording and on the medial practice itself. Proper acoustic treatment, including diffusion and absorption, is essential for accurate monitoring and recording. Sound isolation prevents external noise from contaminating recordings and prevents recordings from disturbing neighbors.
+
+The Crooked Road's venues, including the Floyd Country Store, the Ralph Stanley Museum, and the Country Cabin II, provide performance spaces that support the region's musical heritage. The development of dedicated recording studios enables musicians to produce professional-quality recordings without traveling to urban centers. The availability of rehearsal spaces supports music education and ensemble performance.
+
+**Economic Development Implications:** Investment in studio spaces supports employment for engineers, producers, and technicians. The development of recording studios can attract musicians and producers from outside the region, supporting tourism and the creative economy. Rehearsal and performance spaces support music education and community engagement. Economic advisors should help communities access funding for studio development and equipment.
+
+**lowL, AI, and Robotics Integration:** lowL-powered environmental monitoring can support studio operations, tracking temperature, humidity, and acoustic conditions. AI-powered acoustic analysis can optimize room design and treatment. Robotic systems can support studio maintenance and equipment calibration.
+
+---
+
+### Remote Collaboration: Online Connection to Global Markets
+
+Remote collaboration has become central to modern music production, enabling artists and producers in the Crooked Road corridor to connect with collaborators worldwide. The shift has opened the door to creative partnerships that would have been nearly impossible just a decade ago, as geography is no longer a barrier to collaboration. The right combination of tools, setup, and workflow discipline enables musicians to work together as if everyone were in the same studio.
+
+For remote collaboration, selecting the right platform is essential. Cloud-based DAWs like Soundtrap, BandLab, and StudioVerse enable real-time editing and file sharing across locations. For those working in DAWs like Pro Tools, Logic Pro, or Ableton Live, file-sharing platforms such as Dropbox, Google Drive, or Boombox are great for exchanging stems and session files. If an entire team uses Pro Tools, Avid Cloud Collaboration allows work within the same session file remotely.
+
+Real-time collaboration tools provide low-latency audio streaming that enables live collaboration. **LANDR Sessions** streams high-quality audio directly from your DAW, making it ideal for co-writing, production sessions, mix reviews, and client feedback without bouncing files back and forth. **ListenTo by Audiomovers** specializes in professional mix and session playback, supporting low-latency monitoring and high bitrates for detailed mix reviews, recording feedback, and live production sessions. **Muse** supports streaming high-quality audio and recording audio and MIDI directly into connected DAWs. **Source-Connect** is widely used in professional studios for remote vocal tracking, ADR, and overdubs.
+
+Asynchronous collaboration tools are also valuable for remote workflows. **BandLab** is a free, cloud-based DAW that enables asynchronous editing without file transfers, with features including virtual instruments, a large royalty-free loop library, and AI-powered tools such as automated mastering. While not ideal for live jamming, BandLab excels for song demos, beat sharing, and band projects where collaborators edit in turns.
+
+**Economic Development Implications:** Remote collaboration enables musicians in the Crooked Road corridor to participate in the global music economy, working with artists, producers, and engineers anywhere in the world. The availability of remote collaboration tools reduces the need for travel, lowering costs and expanding creative possibilities. Economic advisors should help musicians and studios access remote collaboration tools and develop the skills needed for effective remote workflows.
+
+**lowL, AI, and Robotics Integration:** lowL-powered audio interfaces can support high-quality remote collaboration with low-latency audio streaming. AI-powered audio processing can optimize remote recording and mixing workflows. The integration of lowL, AI, and robotics can enable innovative remote collaboration tools.
+
+---
+
+### Film and Game Music: Composition and Production
+
+Film and game music composition has become a significant economic opportunity for musicians in the Crooked Road corridor. The growing demand for original music in visual media—including film, television, video games, and streaming content—creates employment and entrepreneurship opportunities for composers and producers. The development of film and game music education can support workforce development and creative entrepreneurship.
+
+Educational programs in film and game music composition are growing at universities worldwide. The Australian National University's course "Composing for Film and Video Games" gives students the knowledge and skills required to compose, mix, and produce music for film and video games. Students analyze a wide range of musical styles and approaches to scoring, learn compositional techniques, and compose original pieces to a variety of dramatic visual media. Learning outcomes include demonstrating the ability to compose original music to visual media, producing complete professional quality mixes using industry standard software, and critically analyzing music in its relationship to the visual image.
+
+The University of Edinburgh's postgraduate course "Composing for Screen" introduces techniques, concepts, and approaches to composing music for screen-based narrative media including film, television, and video games. The course provides professional training and helps students "conceptualise and realise a dramatic musical score" while developing "an original compositional voice in a screen-based context." Students learn how to "spot" and conceptualize a musical score, employ music technologies used to produce music on screen, and realize musical ideas with peers. The course includes composing a title sequence, end credits sequence, and musical material for three related sequences.
+
+The game music sector is particularly significant, with major game composers like Jesper Kyd (Assassin's Creed, Borderlands) demonstrating the career potential. Kyd's work includes composing music for the Borderlands franchise and Star Wars Outlaws, among others. The integration of AI into game music composition is also advancing, with composers exploring AI's potential for generating interactive and adaptive music.
+
+**Economic Development Implications:** Film and game music composition creates employment for composers, producers, and engineers. The development of educational programs in film and game music can create a skilled workforce and attract students to the region. The growing demand for original music in visual media creates opportunities for entrepreneurs to establish music production businesses. Economic advisors should support film and game music education and business development.
+
+**lowL, AI, and Robotics Integration:** lowL-powered sound design tools can support interactive audio in games. AI-assisted composition tools can generate musical content for media. The integration of lowL and AI can support adaptive and procedural music generation for games and interactive media.
+
+---
+
+### Educational Media: Music Education Content
+
+Educational media is a growing sector that creates opportunities for the Crooked Road corridor. Music education content—including online courses, interactive lessons, and digital resources—can generate income for musicians and educators while supporting music education. The development of educational media can leverage the region's musical heritage and recording infrastructure to create content that reaches students worldwide.
+
+Interactive music education platforms are expanding possibilities for teaching and learning music. Flat for Education is a cloud-based music notation software that "empowers teachers to create playful and engaging music activities, creations, assessments on any device at any time." The platform integrates with learning management systems including Google Classroom, Microsoft 365, and Canvas, and offers an advanced system of assignments for creating music activities with students. Teachers can create templates and simplify toolbars for different skill levels, generate worksheets and quizzes for music theory practice, and have students record performances from home for review.
+
+Curipod offers a platform for creating interactive music lessons using AI. The tool helps educators create engaging, standards-aligned music lessons "generated in seconds," covering topics from music fundamentals to music appreciation and creative performance. Teachers can create lessons on rhythm, notation, music history, composition, and listening analysis. The platform is built to make student thinking visible through polls, open-ended questions, visual prompts, and drawing activities.
+
+**Economic Development Implications:** Educational media creates employment for musicians, educators, and content creators. The development of music education content can leverage the region's recording infrastructure and musical expertise. Economic advisors should help musicians and educators access educational media platforms and develop content for online distribution.
+
+**lowL, AI, and Robotics Integration:** lowL-powered interactive music education tools can support hands-on learning. AI-powered lesson generation can create personalized learning experiences. The integration of lowL, AI, and robotics can support innovative music education tools.
+
+---
+
+## Economic Strategies for Studio Technology Development
+
+### Infrastructure Investment
+
+Investment in studio technology supports the creative economy. Recording studios, rehearsal spaces, and performance venues require equipment, acoustics, and sound isolation. The development of studio infrastructure creates employment for engineers, technicians, and support staff. Investment in studio technology, including DAW software and audio equipment, enables musicians to produce professional-quality recordings.
+
+### Workforce Development
+
+Workforce development prepares musicians, engineers, and technicians for careers in the creative economy. DAW training, sound engineering education, and music business programs support workforce development. The University of Virginia's College at Wise can develop music technology programs. The GO TEC program can include modules in audio engineering and music production.
+
+### Market Development and Promotion
+
+Market development connects musicians and creative businesses with customers and audiences. The Crooked Road provides branding and marketing for the region's musical heritage. Tourism promotion attracts visitors to music venues and festivals. Export assistance helps musicians and instrument makers reach national and international markets.
+
+### Access to Capital and Financing
+
+Access to capital supports studio technology development. The Virginia Coalfield Economic Development Authority's loan programs can support recording studio investment and equipment purchases. The Creative Economy Grants, available through various state and federal programs, support arts and cultural development. Economic advisors should help musicians and studios access financing resources.
+
+---
+
+## Conclusion
+
+Studio technology and DAW programs are transforming music production in the Crooked Road corridor, creating new economic opportunities while honoring the region's musical heritage. Digital audio workstations like Bitwig, Ableton, and Pro Tools enable musicians to produce professional-quality recordings, creating employment and entrepreneurship opportunities. Electronic music production offers modern creative expression that builds on the region's heritage while embracing contemporary sounds. Audio equipment, studio spaces, and remote collaboration tools provide the infrastructure for the creative economy. Film and game music composition and educational media create new employment opportunities.
+
+For economic advisors, supporting studio technology development means helping musicians, studios, and educational institutions access DAW software, audio equipment, and studio spaces. The integration of lowL, AI, and robotics into studio technology can further enhance the sector's capabilities and competitiveness. The region's musical heritage is its unique asset—and by preserving and reimagining it, the Crooked Road corridor can build a creative economy that attracts visitors, creates jobs, and inspires the next generation.
+
+# CHAPTER TEN: MUSIC, ARTS, AND STUDIO TECHNOLOGY (Continued)
+
+---
+
+## Instrument Manufacturing
+
+The Appalachian region's tradition of instrument making represents a unique convergence of skilled craftsmanship, natural resources, and cultural heritage. From the porches of Southwest Virginia to concert halls worldwide, handmade instruments carry the soul of the mountains. The integration of modern manufacturing technologies, sustainable practices, and global market access can expand this tradition into a significant economic sector, creating jobs while preserving the region's musical identity.
+
+### Handmade Instruments: Skilled Craftsmanship
+
+Handmade instruments represent the pinnacity of Appalachian craftsmanship. Luthiers and instrument makers throughout the Crooked Road corridor produce guitars, banjos, fiddles, mandolins, and dulcimers that are valued by musicians worldwide. These instruments embody centuries of tradition, with techniques passed down through generations.
+
+The preservation and growth of instrument making requires supporting apprenticeship programs where experienced makers pass their skills to the next generation. Custom instrumentation design and fabrication requires specialized knowledge at the intersection of art and engineering. As seen at academic facilities, instrument fabrication demands expertise in design, machining, electronics, microcontrollers, and advanced materials . Communities can support instrument making through workshop spaces, tool access, and business development services that help craftspeople reach broader markets.
+
+The development of instrument manufacturing curricula through community colleges can ensure skill transfer. By combining traditional apprenticeship with technical education, the region can maintain its instrument-making heritage while preparing the next generation of craftspeople.
+
+**lowL, AI, and Robotics Integration:** Robot-assisted precision woodworking can handle repetitive shaping tasks, reducing physical strain and improving consistency. AI-powered wood grading can assess material quality and predict resonant properties, optimizing wood selection and instrument design. CNC milling systems, when combined with traditional hand-finishing, preserve the artistry of instrument making while increasing efficiency.
+
+### CNC-Assisted Production: Quality and Consistency
+
+Computer Numerical Control (CNC) machining enables instrument makers to achieve consistent quality while increasing production capacity. As seen in facilities serving technology firms, computerized milling machines with CAD interfaces enable parts designed on computer to be produced automatically . This technology allows for precision that complements traditional handcrafting.
+
+For instrument manufacturing, CNC technology can be applied to rough shaping and repetitive tasks, leaving final fitting and finishing to skilled craftspeople. This hybrid approach increases production capacity while preserving the artistry that distinguishes handmade instruments. The integration of CAD and CAM software enables rapid prototyping and design iteration, allowing makers to experiment with new designs and improve existing ones .
+
+The $2.5 million Abingdon Music Experience project, scheduled for a groundbreaking in spring 2026, exemplifies this integration. The project will include a CNC-equipped workshop where instrument makers can use advanced tools for rough shaping and cutting, while still engaging in traditional assembly and finishing work. This approach allows the region to produce instruments at scale without sacrificing the quality of traditional craftsmanship.
+
+**lowL, AI, and Robotics Integration:** lowL-powered precision control can manage CNC machining parameters, optimizing tool paths and reducing material waste. AI-assisted design can analyze instrument acoustics and generate optimized shapes. Robotics can handle work-piece loading and material handling between processes, reducing operator fatigue.
+
+### Sustainable Hardwood Sourcing: Local, Managed Forests
+
+The Appalachian forests provide the raw materials for instrument making—tonewoods that have been valued by instrument makers for generations. The region's hardwoods, including maple, walnut, cherry, and spruce, are prized for their acoustic properties. The Virginia Department of Forestry's sustainable forest management programs and the Sustainable Forestry Initiative provide certification that ensures responsible harvesting.
+
+The development of a local supply chain for instrument-grade tonewoods can support both forestry and instrument manufacturing. The Virginia Department of Forestry's marketing assistance helps forest landowners identify and develop specialty wood markets, including tonewood markets for instrument makers. By connecting forest landowners with instrument makers, the region can create a sustainable source of high-quality materials.
+
+**lowL, AI, and Robotics Integration:** AI-powered inventory management can optimize wood selection and reduce waste. Smart sensors can track moisture content and drying conditions in real time during the seasoning process. Blockchain-based traceability can verify sustainable sourcing, creating a value-added selling point for regional instruments.
+
+### Export Markets: International Sales
+
+Appalachian instruments have a global reputation. The Crooked Road attracts visitors from as far as the United Kingdom, Brazil, Australia, and Japan. Export markets for Appalachian instruments are substantial, with opportunities for growth through international distribution and online sales.
+
+The Virginia Economic Development Partnership's international trade division provides export assistance for instrument makers. Services include market research, trade missions, and export training. The Virginia Museum of Fine Arts' global reach demonstrates that Virginia's cultural products can find international audiences.
+
+Appalachian instrument makers can leverage e-commerce platforms to reach international customers. The region's musical heritage is a key selling point, and export strategies that emphasize the authenticity and craftsmanship of Appalachian instruments can command premium prices.
+
+### Repair and Restoration: Instrument Maintenance
+
+Instrument repair and restoration is a specialized craft essential for maintaining the region's musical instrument inventory. Instruments from the Carter Family Fold and other historic collections require expert maintenance. The specialized knowledge required aligns with the broader trend of instrument manufacturing expertise demanded by the medical device and electronics industries .
+
+Training programs in instrument repair can create employment opportunities. The region's community colleges can develop curricula that combine traditional repair techniques with modern instrument manufacturing technology. The development of a regional instrument repair center can serve both local musicians and the tourism market.
+
+**lowL, AI, and Robotics Integration:** 3D scanning and printing can produce replacement parts for vintage instruments where originals are no longer available. AI-powered acoustic analysis can identify structural issues in instruments and recommend repair strategies. Robotics can assist with precise gluing and clamping operations in restoration work.
+
+### Customization: Creating Instruments for Specific Musicians
+
+Custom instrument making represents the highest level of craftsmanship. Musicians seeking instruments that match their playing style and tonal preferences commission custom instruments. The development of a regional custom instrument industry can attract musicians and create high-value products.
+
+Successful custom instrument making requires close collaboration between maker and musician. This personal interaction creates value that distinguishes custom instruments from mass-produced ones. The region's musical heritage and skilled craftspeople provide the foundation for a custom instrument industry.
+
+**lowL, AI, and Robotics Integration:** lowL-powered measurement systems can capture a musician's playing style and preferences to inform instrument design. AI can analyze a musician's existing instruments and playing technique to recommend custom specifications. Robotics can assist in producing custom components with precision.
+
+---
+
+## Music Business Development
+
+The business of music is as important as the music itself. Across the Crooked Road corridor, music festivals generate tourism and economic activity. Digital distribution connects regional artists with global audiences. Film, television, and video game music create new opportunities for composers and producers. The development of music business education, including courses in the inner workings of the music industry, can create a skilled workforce and support entrepreneurship .
+
+### Festivals: Annual Events and Tourism
+
+Music festivals are major economic drivers for the Crooked Road corridor. The Bristol Rhythm and Roots festival, the Galax Old Fiddlers' Convention, and numerous other events attract visitors from throughout the region and beyond. These festivals generate significant economic activity—the Galax Old Fiddlers' Convention has drawn 30,000 attendees annually since 1935.
+
+The development of new festivals and the expansion of existing ones can increase tourism revenue. The Virginia Tourism Corporation provides marketing support for festivals and cultural events. The Crooked Road organization provides branding and promotion for music-based tourism.
+
+Successful festival development requires a strategic approach to branding. As music business education emphasizes, defining a performer's image and brand—and understanding the audience it attracts—is critical to success . For festivals, this means understanding the target audience and creating an experience that builds loyalty.
+
+### Music Licensing: Film, Television, Advertising
+
+Music licensing for film, television, and advertising is a significant revenue stream for musicians. Licensing fees can provide ongoing income for artists. The development of a regional licensing infrastructure can help musicians access these opportunities.
+
+Music licensing involves complex negotiations with rights owners and performing rights organizations. As seen in music business development roles at technology platforms, driving licensing strategy and economic models for new partnerships is essential . The region can develop a licensing hub that connects regional musicians with licensing opportunities.
+
+### Streaming: Digital Distribution
+
+Digital streaming platforms have transformed music distribution. Spotify, Apple Music, and other services connect artists with global audiences. For the Crooked Road corridor, streaming offers the opportunity to reach listeners worldwide while preserving the region's musical heritage.
+
+Streaming royalties require understanding of digital distribution platforms, aggregators, and rights management. Music business education programs that cover these topics can prepare regional artists for success in the digital music economy . The Virginia Department of Housing and Community Development's support for broadband expansion enables artists to participate in the digital music economy.
+
+### Film Scoring: Composing for Visual Media
+
+Film scoring is a growing opportunity for composers in the Crooked Road corridor. The region's musical heritage provides a foundation for composing music that is distinctive and authentic. The development of film scoring education can create a skilled workforce.
+
+The integration of Appalachian instruments and musical styles into film scores creates distinctive, memorable soundtracks. The addition of human control in the instrument lifecycle supports the creativity needed for effective film scoring . As composers incorporate traditional Appalachian instruments into contemporary arrangements, they create work that honors the region's heritage while reaching global audiences.
+
+### Video Game Soundtracks: Gaming Industry Music
+
+Video game music is a rapidly growing sector. The global gaming industry creates significant demand for original music and sound design. For the Crooked Road corridor, game music offers opportunities for composers who can combine traditional Appalachian sounds with contemporary production techniques.
+
+Game music composition requires understanding of interactive audio and adaptive music systems. The region's community colleges can develop curricula that combine traditional composition with interactive audio technology.
+
+### Educational Media: Learning Content
+
+Educational media represents a growing market for music content. Interactive platforms allow students worldwide to learn Appalachian music from regional experts. The region's musical heritage is a unique asset that can be monetized through educational media.
+
+The development of educational media requires production expertise, marketing, and distribution. As seen in music business courses, creating a packaged product and coordinating image, branding, and social media is essential for success . The region can support educational media development through incubators and business development services.
+
+**lowL, AI, and Robotics Integration:** AI-powered interactive learning platforms can teach music theory and instrument technique. Adaptive learning algorithms can personalize instruction based on student progress. lowL-powered hardware interfaces can provide haptic feedback for instrument instruction.
+
+---
+
+## Economic Strategies for Instrument Manufacturing and Music Business Development
+
+### Infrastructure Investment
+
+Investment in instrument manufacturing infrastructure—including workshops, CNC equipment, and finishing facilities—supports the craft economy. The Abingdon Music Experience project demonstrates the potential of such investment. The Virginia Coalfield Economic Development Authority's loan programs can support instrument manufacturing equipment purchases.
+
+Investment in music business infrastructure—including recording studios, performance venues, and festival infrastructure—supports the creative economy. The Crooked Road's venues and festivals provide the foundation for music business development. Support for music licensing and digital distribution infrastructure connects musicians with global markets.
+
+### Workforce Development
+
+Workforce development for instrument manufacturing must encompass both traditional craftsmanship and modern manufacturing technologies. Apprenticeship programs, community college curricula, and vocational training can prepare the next generation of instrument makers. As the careers of music business development leaders demonstrate, a combination of technical skills and relationship management is essential for success .
+
+Workforce development for music business requires training in business, marketing, and technology. Community college curricula that introduce students to record label management, marketing, product development, and budget development can support the music business sector . Music business skills are not just the purview of urban centers; they can be applied successfully in rural communities with strong music traditions.
+
+### Market Access and Export Support
+
+Market access connects instrument makers and musicians with customers and audiences. The Virginia Economic Development Partnership's international trade division provides export assistance. The Crooked Road provides branding and marketing for the region's music products. E-commerce platforms and digital distribution connect regional products with global markets.
+
+### Access to Capital
+
+Access to capital supports instrument manufacturing and music business development. The Virginia Coalfield Economic Development Authority's loan programs can support instrument manufacturing equipment purchases and music venue development. The Creative Economy Grants, available through various state and federal programs, support arts and cultural development. The Virginia Small Business Administration provides loan guarantees for small businesses, including those in the creative economy.
+
+---
+
+## Conclusion
+
+Instrument manufacturing and music business development are essential components of the Crooked Road corridor's creative economy. The region's musical heritage is its unique asset—and by preserving and reimagining it, the corridor can build an economy that attracts visitors, creates jobs, and inspires the next generation.
+
+For economic advisors, supporting instrument manufacturing and music business development means helping instrument makers access training, equipment, and markets. The integration of lowL, AI, and robotics can enhance instrument manufacturing efficiency and quality while preserving traditional craftsmanship. As the global music industry continues to evolve, the Crooked Road corridor's authentic musical heritage and skilled craftspeople position it to compete in the creative economy.
+
+---
+
+
+## CHAPTER ELEVEN: ECONOMIC DEVELOPMENT PLANS FOR EACH CITY
+
+---
+
+## Scott County
+
+### Overview and Context
+
+Scott County, formed in 1839 and named for one of the pioneer families that settled the area, occupies a strategic position at the eastern edge of the Crooked Road corridor, bordering Tennessee and Kentucky along the southern and western boundaries of Virginia's Appalachian region . The county's geography encompasses the Clinch River Valley, fertile agricultural bottomlands, and the forested ridges of the Appalachian Plateau. This varied terrain has supported a diversified economy of farming, timber, and small-scale manufacturing for generations, creating a rural character that persists despite the challenges of economic transition. The county's location along U.S. Route 23 provides transportation access to regional markets, while the railroad infrastructure offers freight options for agricultural and timber products.
+
+The economic development strategy for Scott County must recognize its position at the intersection of three distinct economic forces: its proximity to the Tri-Cities metropolitan area of Tennessee, which provides access to employment and services; its agricultural heritage that continues to sustain many families; and its role as the eastern gateway to the Crooked Road's musical heritage. The county's communities—from Gate City to Hiltons—each contribute unique assets that, when developed strategically, can support a diversified and resilient economy.
+
+### Demographic Profile
+
+Scott County's population has experienced gradual but steady decline over the past several decades, reflecting broader regional trends of outmigration and aging. The county's population decreased from 23,177 in 2010 to 21,576 in 2020, with an estimated 21,388 residents as of 2024. This decline reflects broader regional trends of outmigration and aging, though the pace has moderated in recent years. The county's population remains predominantly rural, with only 365 residents classified as living in urban areas out of more than 21,000 total.
+
+The demographic profile reveals an aging population structure. Age distribution data shows approximately 3,920 residents under age 18, 12,359 between 18 and 64, and 5,297 aged 65 and older. The significant population of older residents creates challenges for workforce availability and healthcare services while also representing an opportunity for senior-oriented services and housing. Racial composition remains overwhelmingly White, with 20,617 residents identifying as White, 134 as Black or African American, and 699 reporting two or more races. Hispanic or Latino residents number only 255, reflecting the region's limited diversity.
+
+| **Demographic Indicator** | **Scott County** | **Virginia** | **United States** |
+|---------------------------|------------------|--------------|-------------------|
+| Population (2024 est.) | 21,388 | 8.7 million | 335 million |
+| Median Age | 47.7 | 40.2 | 40.3 |
+| Population 65+ (%) | 26.1 | 18.0 | 18.0 |
+| Bachelor's Degree+ (%) | 15.6 | 38.0 | 35.7 |
+| Median Household Income | $46,349 | $87,249 | $80,734 |
+| Poverty Rate (%) | 20.1 | 9.6 | 10.6 |
+| Labor Force Participation (%) | 44.7 | 63.5 | 63.0 |
+
+*Source: U.S. Census Bureau American Community Survey 5-Year Estimates*
+
+### Economic Assets and Challenges
+
+Scott County's economy reflects its rural and agricultural heritage. Median household income levels lag significantly behind state averages, with many families dependent on farming, timber, manufacturing, and service sector employment. The county has 260 employer establishments with 4,193 employees and total annual payroll of $180.1 million. Total retail sales are $229.5 million, or $10,686 per capita.
+
+The county's location along U.S. Route 23 provides transportation access to markets, while the railroad infrastructure offers freight options for agricultural and timber products. The Virginia Quality Assured Marketing Program, operated by the Abingdon Feeder Cattle Association, has marketed over 1,300 tractor trailer loads of feeder calves since 2005, resulting in over $10.4 million in added value.
+
+Key challenges include:
+- **Population Decline**: Continued outmigration of young adults seeking employment opportunities
+- **Low Educational Attainment**: Only 15.6% of adults hold a bachelor's degree
+- **Limited Economic Diversification**: Heavy dependence on agriculture and service sector
+- **Aging Infrastructure**: Water, sewer, and broadband systems require modernization
+- **Healthcare Access**: Limited access to medical services and healthcare professionals
+
+Key assets include:
+- **Strategic Location**: Access to the Tri-Cities metropolitan area and Interstate 81
+- **Agricultural Heritage**: Productive farmland, cattle operations, and value-added processing
+- **Musical Heritage**: Home to the Carter Family Fold, attracting regional and international visitors
+- **Available Industrial Sites**: Buildings and land suitable for manufacturing and logistics
+- **Workforce Skills**: Mechanical aptitude, work ethic, and experience in manufacturing and agriculture
+
+### Business Inventory
+
+| **Sector** | **Number of Establishments** | **Employment** | **Key Businesses** |
+|------------|------------------------------|----------------|-------------------|
+| Manufacturing | 15 | 450 | VFP, Inc. (telecom shelters); various small manufacturers |
+| Agriculture | 300+ | 500+ | Cattle operations, hay production, specialty crops |
+| Retail Trade | 85 | 650 | Grocery, hardware, automotive, general merchandise |
+| Healthcare | 20 | 350 | Clinics, nursing homes, home health agencies |
+| Construction | 40 | 300 | Residential and commercial contractors |
+| Accommodation/Food | 35 | 250 | Restaurants, motels, tourism-related businesses |
+| Professional Services | 25 | 150 | Legal, accounting, real estate, insurance |
+| Education | 12 | 400 | Schools, community college programs |
+
+### Strategic Economic Development Plan
+
+#### 1. Music and Heritage Tourism
+
+The Carter Family Fold in Hiltons represents Scott County's most significant cultural asset. The Fold presents weekly concerts dedicated to the preservation and performance of old-time country and bluegrass music . Named in honor of A.P., Sara, and Maybelle Carter, who were among the earliest recording artists in country music, the Fold was founded by Janette Carter in 1979 . To stay true to musical preservation, no electric instruments are allowed, and smoking and drinking are prohibited, creating an authentic experience that attracts visitors from around the world .
+
+**Strategic Actions:**
+1. **Venue Expansion**: Expand seating capacity and improve visitor amenities at the Carter Family Fold
+2. **Museum Enhancement**: Develop a comprehensive interpretive center at the Carter Family Memorial Music Center
+3. **Cabin Restoration**: Create a living history experience around the 1880s cabin where A.P. Carter was born 
+4. **Festival Development**: Create a signature annual festival celebrating Carter Family music
+5. **Heritage Trail Connections**: Connect Scott County sites to the broader Crooked Road trail
+
+**Economic Impact Projections:**
+- **2027 Target**: 5,000 annual visitors, $500,000 in tourism spending
+- **2030 Target**: 10,000 annual visitors, $1.2 million in tourism spending
+- **Jobs Created**: 25-40 direct tourism-related jobs
+- **Investment Required**: $2-4 million in facilities and programming
+
+#### 2. Agricultural Development
+
+**Strategic Actions:**
+1. **Cattle Industry Support**: Expand the Virginia Quality Assured Marketing Program to reach more producers
+2. **Value-Added Processing**: Support development of meat processing, dairy processing, and specialty food production
+3. **Agritourism**: Develop farm-based tourism experiences including farm stays, tours, and educational programs
+4. **Specialty Crops**: Support production of medicinal herbs, mushrooms, and other high-value crops
+5. **Cooperatives**: Facilitate formation of purchasing and marketing cooperatives
+
+**Economic Impact Projections:**
+- **2027 Target**: 10 new value-added agricultural businesses, 25 new jobs
+- **2030 Target**: 25 new agricultural businesses, 60 new jobs
+- **Investment Required**: $2-3 million in processing facilities and equipment
+
+#### 3. Manufacturing Modernization
+
+**Strategic Actions:**
+1. **VFP, Inc. Support**: Assist with expansion and workforce development at this existing employer
+2. **Industrial Site Development**: Prepare sites for new manufacturing investment
+3. **Robotics and Automation**: Support adoption of advanced manufacturing technologies
+4. **Workforce Training**: Develop training programs in mechatronics, welding, and precision machining
+5. **Supply Chain Development**: Connect local manufacturers with regional supply chains
+
+**Economic Impact Projections:**
+- **2027 Target**: 50 new manufacturing jobs
+- **2030 Target**: 150 new manufacturing jobs
+- **Investment Required**: $5-10 million in site development and equipment
+
+#### 4. Broadband and Technology
+
+**Strategic Actions:**
+1. **Fiber Network Expansion**: Complete fiber-to-the-premise deployment countywide
+2. **Remote Work Infrastructure**: Develop co-working spaces and remote work support
+3. **Digital Literacy Training**: Provide training for residents in computer skills
+4. **Tech Business Attraction**: Market the county to remote workers and technology entrepreneurs
+
+**Economic Impact Projections:**
+- **2027 Target**: 100 new remote workers, 10 new tech businesses
+- **2030 Target**: 250 new remote workers, 25 new tech businesses
+- **Investment Required**: $5-8 million in broadband infrastructure
+
+#### 5. Infrastructure and Housing
+
+**Strategic Actions:**
+1. **Water and Sewer Upgrades**: Modernize aging water and wastewater systems
+2. **Housing Development**: Build workforce housing to attract and retain residents
+3. **Downtown Revitalization**: Support Main Street development in Gate City and other towns
+4. **Road Improvements**: Enhance U.S. Route 23 safety and capacity
+5. **Rail Infrastructure**: Preserve and develop rail freight opportunities
+
+**Economic Impact Projections:**
+- **2027 Target**: 50 new housing units, infrastructure upgrades for 500 new jobs
+- **2030 Target**: 200 new housing units, all downtowns revitalized
+- **Investment Required**: $10-15 million in infrastructure and housing
+
+#### 6. Healthcare and Senior Services
+
+**Strategic Actions:**
+1. **Healthcare Facility Expansion**: Increase capacity and services at regional clinics
+2. **Senior Housing**: Develop independent and assisted living facilities
+3. **Telehealth**: Expand telehealth services for remote monitoring and specialist consultations
+4. **Healthcare Workforce**: Train and recruit healthcare professionals
+
+**Economic Impact Projections:**
+- **2027 Target**: 25 new healthcare jobs
+- **2030 Target**: 75 new healthcare jobs
+- **Investment Required**: $3-5 million in facilities and equipment
+
+### Implementation Timeline and Metrics
+
+| **Phase** | **Timeline** | **Key Activities** | **Success Metrics** |
+|-----------|--------------|-------------------|---------------------|
+| Phase I | Years 1-3 | Broadband planning, site development, tourism planning | 5 new businesses, 50 new jobs, $1M investment |
+| Phase II | Years 4-7 | Infrastructure improvements, business attraction, housing development | 20 new businesses, 200 new jobs, $5M investment |
+| Phase III | Years 8-10 | Full implementation, scaling, regional integration | 50 new businesses, 500 new jobs, $15M investment |
+
+---
+
+*This completes the economic development plan for Scott County and its communities. Please indicate that you would like to continue with the next city (Weber City) for the detailed plan to proceed.*
+---
+
+## Scott County Continued
+
+### Weber City
+
+**Overview and Context**
+
+Weber City represents a community at the crossroads of opportunity and challenge. Located adjacent to the Tennessee state line along U.S. Route 23, this small city of approximately 1,500 residents benefits from its position at the southern gateway to the Crooked Road corridor and its proximity to the Kingsport-Bristol metropolitan area . The community's strategic location along the Orby Cantrell Highway, part of the Appalachian Development Highway System's Corridor B, provides excellent connectivity to regional markets and positions Weber City as a potential hub for commercial and residential development . The John M. Johnson Memorial Bridge at Moccasin Gap, carrying U.S. Route 23 over the North Fork Holston River, is a landmark of the community's transportation heritage .
+
+The city's recent economic development has centered on the Riverside Development, a nearly 100-acre mixed-use project that represents the most significant economic development initiative in Scott County's recent history . This project, which is transforming a former industrial site into a comprehensive community, reflects the region's strategic approach to economic revitalization.
+
+**Demographic Profile**
+
+| **Demographic Indicator** | **Weber City** | **Scott County** | **Virginia** |
+|---------------------------|----------------|------------------|--------------|
+| Population (2024) | 1,504 | 21,388 | 8.7 million |
+| Median Age | 45.5 | 47.7 | 40.2 |
+| Bachelor's Degree+ (%) | 9.3 | 15.6 | 38.0 |
+| Median Household Income | $47,778 | $46,349 | $87,249 |
+| Poverty Rate (%) | 20.3 | 20.1 | 9.6 |
+| Labor Force Participation (%) | 40.0 | 44.7 | 63.5 |
+
+*Source: Data USA; U.S. Census Bureau ACS 2023 5-Year Estimates* 
+
+The demographic profile reveals a community with a relatively stable population, though educational attainment and income levels lag significantly behind state averages. The median household income of $47,778 reflects the economic challenges facing the community, while the bachelor's degree attainment rate of only 9.3 percent indicates significant opportunities for workforce development.
+
+**Business and Employment Characteristics**
+
+Weber City's economy reflects its small-town character combined with its strategic location. The largest employment sector is retail trade (212 employees), followed by healthcare and social assistance (79 employees), and manufacturing (74 employees) . The average commute time is 22.3 minutes, with most residents driving alone to work, and average car ownership is three vehicles per household .
+
+| **Industry Sector** | **Employment** | **Top Employers** |
+|---------------------|----------------|-------------------|
+| Retail Trade | 212 | Local shops, grocery, general merchandise |
+| Healthcare & Social Assistance | 79 | Clinics, home health, senior services |
+| Manufacturing | 74 | Small manufacturers, light industrial |
+| Educational Services | 45 | Schools, early childhood education |
+| Professional Services | 35 | Legal, accounting, real estate |
+
+*Source: Data USA* 
+
+The highest-paying industries in Weber City are manufacturing ($72,813 average annual salary), public administration ($58,409), and educational services ($44,688) . These wage levels indicate that manufacturing and public sector employment provide the most stable economic opportunities for residents.
+
+**Economic Assets**
+
+1. **Riverside Development Site**: The nearly 100-acre mixed-use development site represents the region's most significant economic development opportunity . The site includes the former TeleTech call center building and has been master-planned as a mixed-use town center.
+
+2. **Location**: Adjacent to the Tennessee state line and U.S. Route 23, providing access to the Kingsport-Bristol metropolitan area and the broader Appalachian region .
+
+3. **Housing Development Potential**: The Riverside Development plan includes at least 50 workforce housing units, plus single-family homes, condominiums, apartments, and waterfront homes .
+
+4. **Community Infrastructure**: Plans for senior living, memory care, daycare, church, grocery store, and other commercial amenities .
+
+5. **Workforce**: Skilled workers with manufacturing, logistics, and service industry experience.
+
+**Economic Challenges**
+
+1. **Low Educational Attainment**: Only 9.3% of adults hold bachelor's degrees .
+2. **Limited Employment Base**: Heavy concentration in retail and service sectors .
+3. **Housing Affordability**: While median home values ($155,900) are affordable, workforce housing is needed .
+4. **Infrastructure**: Water, sewer, and broadband systems require modernization.
+5. **Health Disparities**: Higher poverty rate (20.3%) compared to state and national averages .
+
+**Strategic Economic Development Plan**
+
+#### 1. Riverside Development - Mixed-Use Town Center
+
+The Riverside Development represents the cornerstone of Weber City's economic future. The project's conversion from a single industrial site to a comprehensive mixed-use community reflects a strategic approach to economic development.
+
+**Key Components:**
+
+**Workforce Housing**: The development will include at least 50 workforce housing units designed to provide attainable living options for teachers, healthcare workers, public employees, and service-sector professionals . Additional residential offerings will include single-family homes, condominiums, apartments, and waterfront homes .
+
+**Senior Living**: Senior living and memory care facilities are planned to serve the aging population .
+
+**Community Amenities**: The plan includes a day care center, church, grocery store, retail, medical office, and hospitality facilities .
+
+**Infrastructure**: The development requires comprehensive site development including utility installation, road access, and environmental remediation .
+
+**Strategic Actions:**
+- Complete site development and utility infrastructure
+- Engage workforce housing developers
+- Market the commercial components to regional businesses
+- Develop public-private partnerships for amenity facilities
+
+**Economic Impact Projections:**
+- **2027 Target**: 50 housing units complete, 10 new businesses, 100 new jobs
+- **2030 Target**: 100 housing units, 25 businesses, 250 jobs
+- **Investment Required**: $10-15 million total project investment
+
+#### 2. Downtown Revitalization
+
+Weber City's downtown requires strategic investment to create a vibrant commercial center. The community's location along U.S. Route 23 provides retail opportunities, but downtown revitalization is needed to attract visitors and support local businesses.
+
+**Strategic Actions:**
+- Implement Main Street Virginia program
+- Support facade improvements and building renovations
+- Develop streetscape improvements (lighting, sidewalks, signage)
+- Create a downtown events program (concerts, festivals, markets)
+- Attract restaurants, specialty retail, and professional services
+
+#### 3. Manufacturing and Logistics Development
+
+Weber City's location along U.S. Route 23 and its access to regional transportation networks position it for manufacturing and logistics development.
+
+**Strategic Actions:**
+- Market available industrial sites to manufacturers and logistics companies
+- Develop workforce training in advanced manufacturing
+- Support existing manufacturers with modernization assistance
+- Develop supply chain connections with regional businesses
+
+#### 4. Broadband and Technology
+
+Access to high-speed internet is essential for economic development and quality of life.
+
+**Strategic Actions:**
+- Complete fiber-to-the-premise deployment
+- Develop co-working spaces and remote work support
+- Support digital literacy training
+- Market the community to remote workers
+
+#### 5. Small Business Development
+
+Supporting entrepreneurship and small business growth is essential for local economic vitality.
+
+**Strategic Actions:**
+- Utilize VCEDA Seed Capital Matching Grants for startups 
+- Provide SBDC counseling and support
+- Develop a business incubator or co-working space
+- Support local retail and food businesses
+
+### Gate City
+
+**Overview and Context**
+
+Gate City, the Scott County seat, serves as the administrative, commercial, and cultural center of Scott County. With a population of just over 2,000 residents, Gate City is the largest community in the county and functions as a hub for government services, retail, education, and healthcare . The town's economy is primarily supported by agriculture, manufacturing, and retail industries, and its strategic location near the Tennessee-Virginia border provides access to the broader regional economy .
+
+Gate City's downtown has seen significant revitalization activity in recent years. The restoration of the historic Wynne Building (circa 1906) into a multi-use space with Antique Alley, a hobby shop, Franco's Gate City Bistro, and a bookstore demonstrates the potential for historic preservation to support economic development . The Edison, a curated event venue in another historic building, provides space for corporate meetings, workshops, and private events . These projects, supported by VCEDA Seed Capital Grants, reflect the community's commitment to downtown revitalization.
+
+**Demographic Profile**
+
+Gate City's demographic profile reflects its role as the county seat and regional center. The town's population has remained relatively stable compared to other communities in the region, and its commercial base provides employment opportunities for residents throughout Scott County.
+
+| **Demographic Indicator** | **Gate City** | **Scott County** | **Virginia** |
+|---------------------------|---------------|------------------|--------------|
+| Population | ~2,000+ | 21,388 | 8.7 million |
+| Median Age | ~45 | 47.7 | 40.2 |
+| Median Household Income | ~$48,000 | $46,349 | $87,249 |
+| Poverty Rate | ~18% | 20.1 | 9.6 |
+
+*Note: Specific demographic data for Gate City is not available in the search results. Approximations are based on county-level data and general community characteristics.*
+
+**Business and Economic Characteristics**
+
+Gate City's economy is characterized by a mix of traditional and emerging industries. The town serves as a commercial hub for Scott County, with retail businesses, professional services, and government offices concentrated in the downtown area. Agricultural activities, including cattle operations and hay production, support the local economy, and manufacturing provides employment opportunities.
+
+Recent business developments include:
+
+**Franco's Gate City Bistro**: A new restaurant offering authentic Italian cuisine and international dishes, located in the restored Wynne Building. The restaurant is projected to create three full-time and ten part-time jobs .
+
+**The Edison Event Venue**: A curated venue in a historic building capable of seating up to 100 guests. The venue hosts events, corporate meetings, workshops, and artisan markets. The project received a $10,000 VCEDA Seed Capital Grant .
+
+**Antique Alley and Hobby Shop**: Located in the Wynne Building, these businesses provide retail options and attract visitors .
+
+The Wynne Building renovation is a testament to the power of private investment in downtown revitalization. Owner Frank Wynne observed: "That's how you restore a town. Somebody has to take the first step and I'm proud to have done that" .
+
+**Economic Assets**
+
+1. **Historic Downtown**: Historic buildings dating from the early twentieth century, including the Wynne Building (1906) and the Sloan's Department Store building (111 years old) .
+
+2. **Strategic Location**: U.S. Route 23 and U.S. Route 58 provide access to regional markets .
+
+3. **Government Center**: Scott County offices provide stable employment and economic activity.
+
+4. **Cultural Institutions**: The Carter Family Fold in nearby Hiltons attracts visitors from throughout the region and internationally .
+
+5. **Recreation**: Natural Tunnel State Park and other recreational assets attract visitors.
+
+6. **Main Street Program**: Gate City is an affiliate member of the Virginia Main Street Program .
+
+7. **Community Organizations**: The Economic Redevelopment and Revitalization Committee (EDARC) supports business development, grants, and marketing .
+
+**Economic Challenges**
+
+1. **Limited Economic Diversification**: Heavy dependence on retail and government services.
+2. **Aging Infrastructure**: Historic buildings require renovation and maintenance.
+3. **Workforce Retention**: Attracting and retaining skilled workers.
+4. **Digital Divide**: Limited broadband access in some areas.
+5. **Housing**: Limited workforce housing options.
+
+**Strategic Economic Development Plan**
+
+#### 1. Downtown Revitalization
+
+Gate City's downtown is the heart of the community. Strategic investment in historic preservation, business development, and placemaking is essential for long-term vitality.
+
+**Historic Building Renovation**:
+The restoration of the Wynne Building and the Sloan's Department Store building demonstrates the potential for historic preservation to catalyze economic development . These projects have created event spaces, restaurants, and retail businesses that attract visitors and support the downtown economy.
+
+**Business Development**:
+The VCEDA Seed Capital Matching Grant program has been instrumental in supporting new businesses in Gate City. Franco's Gate City Bistro and The Edison both received grants that helped them open and grow . The program provides matching grants up to $10,000 for businesses with less than ten employees .
+
+**Events and Programming**:
+The Economic Redevelopment and Revitalization Committee (EDARC) produces four signature events annually: Clinch Mountain Music Festival, Grillin at the Gate, King Alleyween, and Christmas Open House . The committee also produces "Kickin Back @ King Alley," a free weekly concert series between June and September .
+
+**Cultural Corridor Connections**:
+Gate City is an affiliate member of the Virginia Main Street Program and has partnered with the Crooked Road, Southwest Virginia Heritage Foundation, the Carter Fold, the Fire Escape, Scott County Chamber of Commerce, and the Scott County Economic Development Authority . These partnerships help strengthen Gate City's position in the emerging outdoor tourism market in Southwest Virginia .
+
+**Strategic Actions:**
+- Support historic building renovation
+- Expand downtown events and programming
+- Provide small business development support (VCEDA grants, SBDC counseling)
+- Enhance streetscape improvements (lighting, sidewalks, signage)
+- Market downtown to retailers and service businesses
+
+**Economic Impact Projections:**
+- **2027 Target**: 5 new downtown businesses, 25 new jobs, $1M investment
+- **2030 Target**: 15 new downtown businesses, 75 new jobs, $3M investment
+
+#### 2. Agriculture and Agritourism
+
+Scott County's agricultural heritage provides a foundation for economic development. The Virginia Quality Assured Marketing Program, operated by the Abingdon Feeder Cattle Association, has marketed over 1,300 tractor trailer loads of feeder calves since 2005, resulting in over $10.4 million in added value.
+
+**Strategic Actions:**
+- Expand the Virginia Quality Assured Marketing Program
+- Develop agritourism experiences (farm stays, tours, workshops)
+- Support value-added agricultural processing
+- Connect farmers with institutional markets
+
+#### 3. Manufacturing Expansion
+
+Gate City's manufacturing sector provides stable employment and economic activity. VFP, Inc., a manufacturer of communication equipment shelters, is a significant employer in Scott County . The company's $35 million expansion in Duffield, adding 200 new jobs, demonstrates the potential for manufacturing growth in the region .
+
+**Strategic Actions:**
+- Support existing manufacturers with expansion assistance
+- Prepare industrial sites for new investment
+- Develop workforce training in advanced manufacturing
+- Connect local manufacturers with regional supply chains
+
+#### 4. Broadband and Technology
+
+Broadband access is essential for economic development and quality of life.
+
+**Strategic Actions:**
+- Complete fiber-to-the-premise deployment in the town
+- Develop co-working spaces and remote work support
+- Support digital literacy training
+- Market Gate City to remote workers
+
+#### 5. Housing Development
+
+Workforce housing is essential for attracting and retaining residents.
+
+**Strategic Actions:**
+- Partner with developers to build workforce housing
+- Support downtown residential conversions
+- Explore infill development opportunities
+- Utilize VCEDA grant programs for housing infrastructure
+
+### Moccasin
+
+**Overview and Context**
+
+Moccasin is an unincorporated community located along the North Fork Holston River in Scott County. The community's name reflects its location near Moccasin Gap, a natural passage through the Appalachian ridges that has served as a transportation corridor for centuries . The John M. Johnson Memorial Bridge, which carries U.S. Route 23 over the river, is a landmark of the community's transportation heritage . Moccasin's primary significance lies in its location along the U.S. Route 23 corridor and its accessibility to the region's transportation network.
+
+### Nickelsville
+
+**Overview and Context**
+
+Nickelsville is a small community in Scott County with a population of approximately 376 residents . The community maintains strong agricultural traditions and community connections.
+
+**Economic Assets**
+- Agricultural land and farm operations
+- Available land for residential and business development
+- Community connections and local leadership
+
+**Economic Development Strategies**
+1. **Agricultural Support**: Support local farm operations through technical assistance and market connections
+2. **Small Business Development**: Support entrepreneurship through VCEDA programs and SBDC counseling
+3. **Housing Development**: Support workforce and senior housing projects
+4. **Broadband**: Expand internet access for businesses and residents
+
+### Duffield
+
+**Overview and Context**
+
+Duffield is located at a strategic junction where U.S. Route 23 splits from its concurrency with U.S. Routes 58 and 421 . This small community serves as a gateway to both the northern and western portions of the Crooked Road corridor. The community benefits from its proximity to Natural Tunnel State Park, a major recreational attraction that draws visitors from throughout the region . The Papa Joe Smiddy Mountain Music Festival and Pickin' in the Park are held at the park, attracting musicians and music enthusiasts to the area .
+
+**Demographic Profile**
+
+Duffield's population is approximately 69 residents, though the surrounding area supports a larger population. The community's role as a gateway to Natural Tunnel State Park makes it strategically important for tourism development.
+
+**Economic Assets**
+- **Natural Tunnel State Park**: The park provides hiking, camping, and the unique natural tunnel attraction 
+- **Music Festivals**: The Papa Joe Smiddy Mountain Music Festival and Pickin' in the Park attract visitors 
+- **Location**: Junction of U.S. Route 23, 58, and 421 
+- **U.S. Route 23 Gateway**: Position as a gateway to the Crooked Road corridor
+
+**Economic Development Strategies**
+1. **Tourism Development**: Develop visitor services for Natural Tunnel State Park visitors
+2. **Music Heritage**: Expand music programming and events
+3. **Outdoor Recreation**: Develop trails, parks, and recreational facilities
+4. **Small Business Development**: Support visitor-serving businesses (lodging, dining, retail)
+5. **Infrastructure**: Improve roads, utilities, and public facilities
+
+### Fort Blackmore
+
+**Overview and Context**
+
+Fort Blackmore is an unincorporated community located along the Clinch River in Scott County. The community's name reflects its frontier history, with Fort Blackmore having been a frontier fort in the early history of the region. The community maintains agricultural traditions and community connections, and its location along the Clinch River provides access to recreational opportunities.
+
+### Dungannon
+
+**Overview and Context**
+
+Dungannon is a small community in Scott County with a population of approximately 251 residents. The town is located along the Clinch River, providing access to water-based recreation and wildlife viewing. The community maintains strong agricultural traditions and community connections. The Clinch River is nationally significant for its freshwater mussel populations, and the Eastern Region Initiative on the Clinch (ERIC) collaborates on conservation and monitoring efforts in the area.
+
+### Hiltons
+
+**Overview and Context**
+
+Hiltons is home to the Carter Family Fold, the most significant cultural attraction in Scott County and one of the most important musical heritage sites in America. The Carter Family—A.P., Sara, and Maybelle—are considered country music's first family, and their recordings have inspired generations of musicians . The Fold, located at 3449 A P Carter Hwy, Hiltons, presents weekly concerts dedicated to the preservation and performance of old-time country and bluegrass music .
+
+**Carter Family Fold**
+
+The Carter Family Fold and Museum offers families a retreat to bluegrass music. The "Fold," as it is affectionately called, is operated to honor the famous Carter Family and their contributions to country music . Saturday concerts highlight the musical style made popular by the Carter Family, featuring traditional instruments including guitar, banjo, fiddle, mandolin, and dulcimer. No electric instruments are allowed, and smoking and drinking are prohibited, creating an authentic experience . Johnny Cash, who married June Carter, performed his last two shows at the Fold .
+
+**Economic Assets**
+- **Carter Family Fold**: The most significant musical heritage site in Scott County
+- **Music Heritage**: Authentic, uncommercialized Appalachian music
+- **Visitor Attraction**: Visitors from throughout the United States and internationally
+- **Location**: Along U.S. Route 23, accessible to the Crooked Road corridor
+
+**Economic Development Strategies**
+1. **Venue Expansion**: Expand seating capacity and improve visitor amenities
+2. **Museum Enhancement**: Develop a comprehensive interpretive center
+3. **Cabin Restoration**: Create a living history experience around the 1880s cabin
+4. **Festival Development**: Create a signature annual festival celebrating Carter Family music
+5. **Visitor Services**: Develop lodging, dining, and retail businesses to serve visitors
+
+**Economic Impact Projections**
+- **2027 Target**: 5,000 annual visitors, $500,000 tourism spending
+- **2030 Target**: 10,000 annual visitors, $1.2 million tourism spending
+- **Jobs Created**: 25-40 direct tourism-related jobs
+
+---
+
+## Lee County
+
+### Overview and Context
+
+Lee County occupies the southwestern corner of Virginia, bordered by Tennessee to the south and Kentucky to the west. Its geography encompasses the Cumberland Mountains, the Powell River Valley, and the Clinch River watershed. The county was historically significant for coal mining and timber production, industries that shaped community development but have since declined substantially. Today, the county faces significant economic challenges, with a per capita market income of just $21,818 (38.2 percent of the U.S. average) and a poverty rate of 27.6 percent. The county has experienced a 2.4 percent population decline since 2020 and a staggering loss of more than 3,900 residents since 2010.
+
+Despite these challenges, Lee County possesses significant assets. The county's location along U.S. Route 23 provides access to regional markets. Its forests and agricultural land support timber and agricultural production. Its musical heritage and scenic beauty support tourism development. And its communities maintain the social capital and determination needed for economic renewal.
+
+### Jonesville
+
+**Overview and Context**
+
+Jonesville serves as the Lee County seat, functioning as the center for government services and local commerce. The town has maintained its historic character while seeking new economic opportunities following the decline of coal. Its location along U.S. Route 23 provides transportation access, and its historic downtown offers potential for revitalization.
+
+**Demographic Profile**
+
+Lee County's demographic profile reflects the challenges facing the county. The population has declined from 25,587 in 2010 to 22,173 in 2020, with 21,642 residents estimated in 2025. The median age is 47.7 years, with 20.3 percent of residents aged 65 and older. Per capita income is $21,818, and 27.6 percent of residents live below the poverty line.
+
+**Economic Assets**
+- **Government Center**: County offices provide stable employment
+- **U.S. Route 23 Access**: Highway connectivity to regional markets
+- **Historic Downtown**: Historic buildings for renovation and redevelopment
+- **Location**: Gateway to the Crooked Road corridor
+
+**Economic Development Strategies**
+1. **Downtown Revitalization**: Preserve historic buildings while attracting new businesses
+2. **Government Services**: Expand county government and public services
+3. **Tourism Development**: Develop heritage and recreation tourism
+4. **Small Business Development**: Support entrepreneurs through VCEDA programs
+5. **Healthcare**: Expand healthcare services and employment
+
+### Pennington Gap
+
+**Overview and Context**
+
+Pennington Gap has been a center for coal mining and now faces economic transition. The community has worked to attract new industries and develop tourism related to its mining heritage. The presence of natural resources, including forests and agricultural land, provides opportunities for economic diversification. However, median household income remains significantly below state averages.
+
+**Demographic Profile**
+
+The Pennington Gap area has a population of approximately 6,342 in the surrounding ZIP code area. Median household income is $35,749 within a five-mile radius, significantly below state and national averages. Only 7.85 percent of adults hold bachelor's degrees, and 41.1 percent of households earn less than $25,000 annually.
+
+**Economic Assets**
+- **Coal Heritage**: Potential for heritage tourism
+- **Natural Resources**: Forests and agricultural land
+- **Transportation Access**: U.S. Route 23 location
+- **Available Buildings**: Commercial and industrial buildings from the coal boom era
+
+**Economic Development Strategies**
+1. **Heritage Tourism**: Develop tourism centered on coal history and mining heritage
+2. **Outdoor Recreation**: Develop trails, parks, and recreational facilities
+3. **Manufacturing**: Attract modern manufacturing facilities
+4. **Small Business Development**: Support entrepreneurs
+5. **Workforce Development**: Training programs for new industries
+
+### Rose Hill
+
+**Overview and Context**
+
+Rose Hill is a small community in Lee County that has been affected by the decline of coal mining. The community possesses available land, natural resources, and transportation access that could support new economic activities. Its location along U.S. Route 23 provides connectivity to regional markets.
+
+### Ewing
+
+**Overview and Context**
+
+Ewing is a small community in Lee County located near the Kentucky border. The community has been affected by the decline of coal mining, with reduced employment and population. Its location along U.S. Route 23 provides transportation access and opportunities for tourism and commerce.
+
+### Keokee
+
+**Overview and Context**
+
+Keokee is a small community in Lee County located near the Kentucky border. The community has been affected by the decline of coal mining, with reduced employment and population. Natural resources, including forests and agricultural land, provide opportunities for economic diversification.
+
+### Ben Hur
+
+**Overview and Context**
+
+Ben Hur is a small community in Lee County located near the Kentucky border. The community has been affected by the decline of coal mining. Its location along U.S. Route 23 provides transportation access and opportunities for tourism and commerce.
+
+### St. Charles
+
+**Overview and Context**
+
+St. Charles is a small community in Lee County that has been affected by the decline of coal mining. The community possesses available land and transportation access that could support new economic activities.
+
+---
+
+## Conclusion
+
+Scott and Lee counties represent communities at the crossroads of economic transformation. The region's coal and manufacturing heritage provides a foundation for modernization, while its musical heritage, natural resources, and strategic location along U.S. Route 23 create opportunities for tourism, agriculture, and technology development.
+
+The Riverside Development in Weber City, the downtown revitalization in Gate City, and the Carter Family Fold in Hiltons demonstrate that strategic investment can create economic opportunities while honoring the region's heritage. The VCEDA Seed Capital Matching Grant program supports entrepreneurship and small business development, while the Crooked Road provides branding and marketing for the region's musical heritage.
+
+For economic advisors, supporting economic development in these communities means helping them access grant programs, develop viable projects, build public-private partnerships, and create the workforce development programs needed for success. The communities of Scott and Lee counties have the assets, leadership, and determination to build a prosperous future—and with strategic support, they can achieve it.
+
+---
+
+*Please indicate that you would like to continue with the next city (Wise County and City of Norton) for the detailed plan to proceed.*
+
+
+
+## CHAPTER TWELVE: INCENTIVES FOR CORPORATE RELOCATION
+
+### Strategic Location Advantages
+- Transportation Access: Highways, Rail, Proximity to Markets
+- Natural Resources: Forests, Agricultural Land, Minerals
+- Available Land: Industrial Sites, Commercial Property
+- Utility Access: Electricity, Water, Natural Gas
+- Quality of Life: Affordable Housing, Natural Beauty, Recreation
+
+### Financial Incentives
+- Tax Abatement: Property, Sales, Income Tax Reduction
+- Grants: Investment, Training, Infrastructure Funding
+- Low-Interest Loans: Favorable Financing
+- Infrastructure Support: Utilities, Roads, Broadband
+- Workforce Training: Employee Preparation Programs
+- Permit Streamlining: Accelerated Approvals
+- Site Preparation: Industrial Site Development
+
+### Workforce Incentives
+- Training Programs: Industry-Specific Preparation
+- Apprenticeships: Combined Training and Employment
+- Education Partnerships: Business-School Connections
+- Recruitment Assistance: Employee Finding Support
+- Housing Support: Workforce Housing Development
+- Childcare Services: Working Parent Support
+
+### Quality of Life Incentives
+- Housing: Workforce and Community Housing Development
+- Recreation: Parks, Trails, Facilities
+- Arts and Culture: Music, Arts, Cultural Activities
+- Healthcare: Service Access and Quality
+- Schools: Education Quality Support
+- Public Safety: Community Safety Maintenance
+- Community Development: Organizations and Activities
+
+### Sector-Specific Incentives
+- Technology: Broadband, Innovation Centers, Training
+- Manufacturing: Facilities, Utilities, Workforce
+- Agriculture: Processing, Market Access, Technical Assistance
+- Tourism: Attractions, Events, Hospitality Infrastructure
+- Music and Arts: Studios, Venues, Training
+
+---
+
+## CHAPTER THIRTEEN: POPULATION AND EDUCATION STRATEGIES
+
+### Population Strategies
+- Retaining Young People: Employment, Education, Quality of Life
+- Attracting New Residents: Affordable Housing, Opportunities, Quality of Life
+- Remote Workers: Broadband, Coworking Spaces, Quality of Life
+- Retirees: Healthcare, Housing, Recreation
+- Welcoming Immigrants: Diversity Support
+- Supporting Families: Schools, Healthcare, Family Activities
+- Housing Development: All Income Levels
+- Quality of Life: Safe Communities, Natural Beauty, Recreation
+
+### Education Strategies
+- Early Childhood Education: Preschool Programs
+- K-12 Education: Funding, Quality Teachers, Modern Facilities
+- Career and Technical Education: Trades, Technology, Healthcare
+- STEM Education: Science, Technology, Engineering, Mathematics
+- Music and Arts Education: Creative and Cultural Development
+- Higher Education: Community Colleges, Universities
+- Adult Education: Continuing Education and Workforce Training
+
+### Connecting Education and Employment
+- Workforce Development: Training-Employment Connection
+- Internships and Apprenticeships: Work Experience and Learning
+- Industry Partnerships: Employer-Educator Connections
+- Career Counseling: Career Path Guidance
+- Job Placement: Employment Assistance
+
+---
+
+## CHAPTER FOURTEEN: INFRASTRUCTURE AND TOOLS FOR MODERNIZATION
+
+### Transportation Infrastructure
+- Highways: U.S. Route 23 and Connecting Roads
+- Railroads: Freight Transportation Service
+- Airports: General Aviation Facilities
+- Public Transit: Resident and Visitor Mobility
+- Trails: Hiking, Biking, Equestrian
+
+### Utility Infrastructure
+- Electricity: Modernization and Reliability
+- Water: System Maintenance and Improvement
+- Wastewater: Treatment and Infrastructure
+- Natural Gas: Distribution Expansion
+- Broadband: Fiber and Wireless Access
+
+### Tools for Modernization
+- Digital Technology: Productivity and Connectivity
+- Automation: Manufacturing and Agriculture
+- Data Systems: Planning and Management
+- Geographic Information Systems: Resource Management
+- Monitoring and Evaluation: Results Tracking
+
+---
+
+## CHAPTER FIFTEEN: IMPLEMENTATION STRATEGY
+
+### Phase I: Foundation (Years 1-3)
+- Assessment: Community Assets, Needs, Opportunities
+- Planning: Comprehensive Community and Regional Plans
+- Infrastructure: Priority Investments in Roads, Utilities, Broadband
+- Workforce Development: Training Programs
+- Business Development: Entrepreneur and Existing Business Support
+- Pilot Projects: Strategy Testing and Demonstration
+- Partnerships: Public-Private Collaboration
+
+### Phase II: Growth (Years 4-10)
+- Manufacturing Modernization: Expansion and Technology Adoption
+- Agriculture Development: Value-Added Processing, Technology, Markets
+- Technology Development: Businesses, Innovation Centers, Workforce
+- Tourism Development: Heritage, Recreation, Cultural Events
+- Music and Arts Development: Studios, Manufacturing, Performances
+- Housing Development: Workforce, Senior, Market-Rate Housing
+
+### Phase III: Transformation (Years 10-20)
+- Regional Innovation Districts: Integrated Business-Education-Research Areas
+- Export Industries: Businesses Serving External Markets
+- International Tourism: Global Visitor Attraction
+- Research Partnerships: University and Institution Connections
+- Advanced Industries: Manufacturing, Technology, Research
+- Sustainability: Economic Growth with Resource Protection
+
+---
+
+## CONCLUSION: A RENEWED REGION
+
+- The Region's Assets and Opportunities
+- The Path Forward: Investment, Cooperation, Commitment
+- The Role of People: Families, Workers, Musicians, Entrepreneurs
+- Creating Opportunities for All
+- A Commitment to the Future
+- The Crooked Road as a Symbol of Renewal
+- The Future Being Written Today
+- Hope and Determination
+- Building an Economy That Honors the Past While Creating Future Opportunity
+
+---
+
+## APPENDICES
+
+### Appendix A: County-by-County Investment Recommendations
+- Scott County
+- Lee County
+- Wise County
+- Norton City
+- Russell County
+- Dickenson County
+- Washington County
+
+### Appendix B: Grant and Financing Program Directory
+- Federal Programs
+- State Programs
+- Private Foundation Opportunities
+- Regional Program Guide
+
+### Appendix C: Workforce Development Resource Guide
+- Community Colleges
+- Career and Technical Education Centers
+- Apprenticeship Programs
+- Industry Certification Programs
+
+### Appendix D: Regional Economic Indicators
+- Current Population Statistics
+- Educational Attainment Data
+- Employment and Industry Data
+- Median Household Income
+
+### Appendix E: Timeline and Milestones
+- Phase I Milestones (Years 1-3)
+- Phase II Milestones (Years 4-10)
+- Phase III Milestones (Years 10-20)
+
+### Appendix F: Key Contacts and Organizations
+- Regional Economic Development Authorities
+- Chambers of Commerce
+- Educational Institutions
+- Industry Associations
+
+---
+
+## BIBLIOGRAPHY
+
+- Virginia Economic Development Resources
+- Appalachian Regional Commission Publications
+- USDA Rural Development Resources
+- Regional Planning Documents
+- Industry Research and Reports
+
+---
+
+# END OF BOOK OUTLINE
