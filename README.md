@@ -106,7 +106,584 @@ The path forward is challenging, but it is not impossible. The region has faced 
 
 The renewal of the Crooked Road and U.S. Route 23 corridor will require the same determination, the same resilience, the same spirit that built the region's communities, sustained them through difficult times, and preserved their culture and identity. With courage, cooperation, and commitment, the region can build an economy that honors its past, addresses its present challenges, and creates a prosperous future for generations to come.
 
+# EMERGENCY REVITALIZATION AND STABILIZATION PLAN
+## Crooked Road and U.S. Route 23 Corridor
 
+---
+
+## Executive Summary
+
+This emergency revitalization and stabilization plan provides an immediate, targeted investment strategy for the 37 communities across the Crooked Road and U.S. Route 23 corridor. Recognizing the urgent need for economic stabilization following decades of decline compounded by recent storm damage, this proposal allocates funds for short-term rehabilitation, business revitalization, and community stabilization. The total investment of **$19,050,000** is distributed across all communities with specific allocations based on population, existing business inventory, damage assessment, and economic need.
+
+The plan addresses the crisis facing each community: vacant storefronts, aging infrastructure, storm damage, business closures, and declining population. Unlike the long-term twenty-year vision outlined in the main body of this book, this emergency plan focuses on immediate stabilization and job creation within the first 12 months. The goal is to create a "success running goal" where each community has stabilized its core businesses, addressed critical infrastructure needs, and created a platform for sustainable growth.
+
+The plan is structured in three-month stages to achieve measurable progress within the first year. Each community receives funding for:
+- **Immediate stabilization and cleanup** (30% of allocation)
+- **Business rehabilitation and reopening** (40% of allocation)
+- **Economic development and job creation** (30% of allocation)
+
+This is not a comprehensive solution to all of the region's challenges—that requires the twenty-year vision detailed in the preceding chapters. Rather, this is an emergency intervention designed to stop the bleeding, stabilize communities, and create conditions for the long-term strategies to take hold. By injecting capital, reopening shuttered businesses, and creating jobs in the short term, this plan builds momentum and confidence that will sustain the region through the longer transformation.
+
+---
+
+## The Crisis We Face
+
+The communities of the Crooked Road and U.S. Route 23 corridor are facing a convergence of crises that threaten their very survival. The economic decline that has been decades in the making has been compounded by recent natural disasters, including Hurricane Helene in September 2024, which devastated Damascus and destroyed the upper 17 miles of the Virginia Creeper Trail. The water level on Laurel Creek reached 18 feet, causing widespread flooding downtown and closing portions of US-58 and Route 91. Meals and lodging tax revenues in Damascus dropped 70 percent year-over-year for October and November 2024, and fiscal year 2025 showed a 28 percent decrease in lodging tax revenue.
+
+Beyond the immediate storm damage, each community faces chronic challenges that have accumulated over decades. Coal mining employment declined from 12,000 workers in 1990 to approximately 2,500 by 2024, a loss of nearly 80 percent of the industry's workforce. The loss of these high-paying jobs has devastated communities that were built around mining operations. The region has lost more than 60,000 residents since 1980, with Wise County losing 12.8 percent of its population between 2010 and 2020 alone. Lee County's population fell by 2.4 percent since 2020, a loss of more than 3,900 residents since 2010.
+
+The business landscape has been equally devastated. Across the region, thousands of storefronts stand vacant. Commercial buildings that once housed thriving retail establishments, restaurants, and professional services now sit empty. The loss of businesses creates a downward spiral: fewer businesses mean fewer jobs, fewer jobs mean fewer residents, fewer residents mean less customer base for remaining businesses, and less customer base means more businesses close. Breaking this cycle requires immediate intervention.
+
+The region's median household income is far below state averages. Scott County's median household income is $46,349, compared to the state average of $93,170. Lee County's poverty rate stands at 27.6 percent, and Dickenson County's unemployment rate is 7.7 percent. The labor force participation rate in Wise County is just 46.4 percent, compared to the state average of 63.5 percent. These economic indicators reflect communities where work has disappeared and hope has eroded.
+
+The crisis is not only economic—it is psychological. Decades of decline have created what researchers describe as a "shared sense of depression and stagnation." Community members have come to believe that their best days are behind them, that the future holds only more of the same. This loss of hope is perhaps the greatest barrier to renewal because it creates a self-fulfilling prophecy. When people believe their communities have no future, they invest less, work less, and stay less.
+
+The emergency intervention outlined in this plan is designed to address all of these dimensions: the economic, the physical, and the psychological. By investing in cleanup, business reopening, and job creation, the plan sends a powerful signal that the communities of the Crooked Road corridor are not abandoned, that their future matters, and that renewal is possible.
+
+---
+
+## The Purpose of This Emergency Plan
+
+This plan is designed to provide each community with a "shot in the arm"—an immediate infusion of capital and resources that can stabilize the economy, create jobs, and restore hope. Unlike the long-term development strategies that require years to implement, this plan can show results within months. The success running goal is: **within 12 months, every community will have stabilized its core businesses, addressed critical infrastructure needs, and created a platform for sustainable growth.**
+
+For each community, the plan includes:
+1. **Cleanup and rehabilitation:** Removing blight, repairing damaged infrastructure, and making communities safe and attractive
+2. **Business reopening and support:** Providing grants and technical assistance to reopen shuttered businesses and support existing ones
+3. **Job creation:** Funding workforce training, supporting local hiring, and creating employment opportunities
+
+The total of $19,050,000 is distributed across all 37 communities. Each community receives an allocation based on its population, existing business inventory, damage assessment, and economic need. The allocation is designed to ensure that every community receives meaningful support, with smaller communities receiving a base allocation of $50,000 to ensure that even the smallest towns can benefit.
+
+Each community's allocation is divided into three categories:
+- **Cleanup and stabilization (30%):** Removing debris, repairing infrastructure, addressing blight, and making communities safe and attractive
+- **Business rehabilitation and reopening (40%):** Providing grants to businesses for façade improvements, equipment, and operating capital, enabling them to reopen and succeed
+- **Economic development and job creation (30%):** Supporting workforce training, small business development, and targeted investments that create jobs
+
+---
+
+## Implementation Timeline
+
+### Stage 1: Assessment and Immediate Stabilization (Months 1-3)
+
+**Overview:** The first three months focus on assessing damage, conducting cleanup, and beginning the process of business stabilization. This stage is about stopping the bleeding—addressing the most urgent needs and preventing further deterioration.
+
+**Month 1: Emergency Assessment and Cleanup**
+
+In the first month, each community conducts a rapid assessment of damage and needs. This includes:
+- Damage assessments for storm-affected areas (particularly Damascus, Pound, and communities along the Virginia Creeper Trail)
+- Inventory of vacant buildings and their condition
+- Identification of businesses at risk of closure
+- Assessment of infrastructure needs (roads, sidewalks, utilities, broadband)
+- Debris removal from streets, parks, and public spaces
+
+During this month, communities also begin the cleanup process. This includes:
+- Removing debris from storm-damaged areas
+- Clearing trails and public spaces
+- Addressing immediate safety hazards
+- Coordinating with FEMA and other emergency response agencies
+
+**Work time required:** Approximately 40 hours per community for assessment teams; an additional 80-120 hours per community for cleanup crews.
+
+**Deliverables:**
+- Damage assessment reports for each community
+- Inventory of vacant buildings and infrastructure needs
+- Completed debris removal in all affected areas
+- Emergency repairs completed
+
+**Month 2: Cleanup Completion and Planning**
+
+In the second month, communities complete the cleanup process and begin detailed planning for rehabilitation. Activities include:
+- Completing debris removal and disposal
+- Identifying specific business rehabilitation projects
+- Developing job creation plans
+- Finalizing grant application processes for businesses
+- Submitting applications for federal and state disaster recovery funding
+
+Community cleanup events mobilize residents and volunteers to clean up public spaces, parks, and trails. These events not only improve the physical appearance of communities but also build community morale and demonstrate that change is possible.
+
+**Work time required:** Approximately 120-160 hours per community for cleanup completion; 40 hours per community for planning.
+
+**Deliverables:**
+- Cleanup completed in 90% of affected areas
+- Business rehabilitation plans developed
+- Grant application process launched
+- Community cleanup events held
+
+**Month 3: Infrastructure Repairs and Business Assistance Launch**
+
+In the third month, infrastructure repairs begin and business assistance programs are launched. Activities include:
+- Starting road, sidewalk, and utility repairs
+- Launching small business grant programs (façade improvements, operating capital)
+- Opening applications for workforce training programs
+- Beginning marketing campaigns to attract visitors and residents
+- Hosting job fairs and business networking events
+
+**Work time required:** Approximately 80 hours per community for infrastructure project management; 40 hours per community for business program administration.
+
+**Deliverables:**
+- 50% of infrastructure repairs underway
+- Business grant program launched with 20+ applicants per community
+- Workforce training program launched
+- Marketing campaigns initiated
+
+**Metrics for Stage 1:**
+- Debris removal: 80% complete across all communities
+- Business assistance applications: 100+ businesses receiving grants
+- Infrastructure repairs: 50% started
+- Community cleanup events: 37 communities engaged
+
+### Stage 2: Business Rehabilitation and Reopening (Months 4-6)
+
+**Overview:** The second stage focuses on reopening shuttered businesses, supporting existing businesses, and creating new jobs. This is the stage where visible progress becomes evident to residents—new businesses opening, storefronts being renovated, and jobs being created.
+
+**Month 4: Business Rehabilitation Begins**
+
+In the fourth month, business rehabilitation projects begin in earnest. Activities include:
+- Awarding façade improvement grants to businesses
+- Supporting business reopenings with operating capital
+- Activating incubator spaces and pop-up retail locations
+- Beginning workforce training programs
+- Hosting business networking and mentoring events
+
+**Work time required:** Approximately 80 hours per community for business assistance administration; 40 hours per community for training program delivery.
+
+**Deliverables:**
+- Façade improvement projects underway at 50+ businesses
+- 10+ businesses reopen
+- Incubator spaces activated in 10+ communities
+- Workforce training programs launched
+
+**Month 5: Business Openings and Job Creation**
+
+In the fifth month, the focus shifts to business openings and job creation. Activities include:
+- Supporting grand openings and ribbon-cutting ceremonies
+- Hosting job fairs and hiring events
+- Expanding workforce training programs
+- Developing tourism marketing for reopened businesses
+- Providing ongoing technical assistance to businesses
+
+This month is critical for building momentum. Each business reopening is celebrated as a community achievement, demonstrating that progress is real and that the community is moving forward.
+
+**Work time required:** Approximately 60 hours per community for business support; 40 hours per community for job creation activities.
+
+**Deliverables:**
+- 50+ additional businesses reopen
+- 250+ new jobs created
+- Job fairs in all counties
+- Tourism marketing launched
+
+**Month 6: Business Stabilization and Scaling**
+
+In the sixth month, businesses are stabilized and operations are scaled up. Activities include:
+- Providing ongoing technical assistance to newly reopened businesses
+- Expanding workforce training to address hiring needs
+- Developing networks among reopened businesses
+- Scaling successful programs to additional businesses
+- Beginning planning for Stage 3
+
+**Work time required:** Approximately 40 hours per community for business stabilization; 20 hours per community for planning.
+
+**Deliverables:**
+- 100+ businesses reopened or stabilized
+- 500+ jobs created
+- Business networks established
+- Stage 3 planning underway
+
+**Metrics for Stage 2:**
+- Business reopenings: 100+ businesses reopened
+- Jobs created: 500+ new positions
+- Training completions: 200+ workers trained
+- Business satisfaction: 80% reporting improvement
+
+### Stage 3: Economic Development and Job Creation (Months 7-12)
+
+**Overview:** The third stage focuses on expanding economic development activities and creating sustainable job growth. This stage builds on the momentum from Stage 2 and creates the foundation for long-term growth.
+
+**Months 7-9: Economic Expansion**
+
+In months 7-9, economic development activities expand significantly. Activities include:
+- Supporting manufacturing expansion and modernization
+- Expanding agricultural businesses and value-added processing
+- Developing tourism infrastructure and marketing
+- Expanding broadband infrastructure
+- Supporting entrepreneurship and small business growth
+- Creating job training programs for high-demand industries
+
+**Work time required:** Approximately 80 hours per community for economic development; 40 hours per community for business support.
+
+**Deliverables:**
+- 20+ manufacturing businesses supported
+- 50+ agricultural businesses expanded
+- Tourism infrastructure developed in 20+ communities
+- Broadband projects underway
+
+**Months 10-12: Sustainability and Evaluation**
+
+In the final three months, the focus shifts to sustainability and evaluation. Activities include:
+- Consolidating gains from previous stages
+- Developing sustainability plans for businesses and programs
+- Conducting a comprehensive evaluation of the emergency plan
+- Planning for long-term growth
+- Transitioning to the Phase I strategies outlined in the main book
+
+**Work time required:** Approximately 40 hours per community for evaluation; 20 hours per community for sustainability planning.
+
+**Deliverables:**
+- Sustainability plans for all 37 communities
+- Comprehensive evaluation report
+- Transition to Phase I strategies
+- "Success Running Goal" achieved
+
+**Metrics for Stage 3:**
+- Jobs created: 1,000+ new positions
+- Businesses opened/reopened: 150+
+- Tourism visitors: 100,000+ additional
+- Broadband access: 5,000+ households connected
+
+---
+
+## County and Community Allocations
+
+### Scott County ($850,000)
+
+**Overview:** Scott County has a population of 21,388 residents and faces significant challenges including aging infrastructure, declining population, and limited economic diversification. The county's median household income is $46,349, with a poverty rate of 20.1 percent. The Virginia Quality Assured Marketing Program has added over $10.4 million in value to regional cattle production, demonstrating the potential for agricultural growth. The county's investments in the Riverside Development in Weber City and downtown Gate City revitalization provide platforms for growth, but immediate stabilization is needed to maintain momentum.
+
+| **Community** | **Population** | **Allocation** | **Cleanup/Stabilization** | **Business Rehab** | **Economic Development** |
+|---------------|----------------|----------------|---------------------------|-------------------|--------------------------|
+| Weber City | 1,504 | $125,000 | $37,500 | $50,000 | $37,500 |
+| Gate City | ~2,000 | $150,000 | $45,000 | $60,000 | $45,000 |
+| Moccasin | ~200 | $50,000 | $15,000 | $20,000 | $15,000 |
+| Nickelsville | 376 | $50,000 | $15,000 | $20,000 | $15,000 |
+| Duffield | 69 | $50,000 | $15,000 | $20,000 | $15,000 |
+| Fort Blackmore | ~150 | $50,000 | $15,000 | $20,000 | $15,000 |
+| Dungannon | 251 | $50,000 | $15,000 | $20,000 | $15,000 |
+| Hiltons (Carter Fold) | ~300 | $50,000 | $15,000 | $20,000 | $15,000 |
+| County-wide | - | $275,000 | $82,500 | $110,000 | $82,500 |
+| **Total** | | **$850,000** | **$255,000** | **$340,000** | **$255,000** |
+
+**Scott County Community Details:**
+
+**Gate City ($150,000)**
+- **Allocation:** $150,000
+- **Work Time Required:** 2,400 hours
+- **Jobs Created:** 25
+- **Use:** Historic Wynne Building restoration ($30,000); downtown façade grants for 4 businesses ($40,000); sidewalk and lighting improvements ($30,000); small business grants for operating capital ($30,000); workforce training in hospitality and retail ($20,000)
+- **Success Running Goal:** 25 new jobs created; 15 businesses assisted; downtown revitalization visible
+
+**Weber City ($125,000)**
+- **Allocation:** $125,000
+- **Work Time Required:** 2,000 hours
+- **Jobs Created:** 20
+- **Use:** Riverside Development cleanup and site preparation ($40,000); commercial façade grants for 3 businesses ($30,000); infrastructure repairs ($30,000); small business grants ($25,000)
+- **Success Running Goal:** 20 new jobs created; 3 new businesses; Riverside Development accessible
+
+**Duffield ($50,000)**
+- **Allocation:** $50,000
+- **Work Time Required:** 800 hours
+- **Jobs Created:** 5
+- **Use:** Gateway beautification ($15,000); Natural Tunnel State Park visitor services improvements ($15,000); small business support ($10,000); community cleanup ($10,000)
+- **Success Running Goal:** 5 new jobs created; visitor services improved; community cleanup completed
+
+**Hiltons - Carter Family Fold ($50,000)**
+- **Allocation:** $50,000
+- **Work Time Required:** 800 hours
+- **Jobs Created:** 5
+- **Use:** Carter Family Fold repairs and enhancements ($20,000); parking area improvements ($10,000); visitor services ($10,000); community cleanup ($10,000)
+- **Success Running Goal:** 5 new jobs created; fold repairs completed; visitor services improved
+
+---
+
+### Lee County ($675,000)
+
+**Overview:** Lee County faces the most severe economic challenges in the region, with a per capita market income of just $21,818 (38.2 percent of the U.S. average) and a poverty rate of 27.6 percent. The county lost 2.4 percent of its population since 2020 and has lost more than 3,900 residents since 2010. The county's coal heritage and strategic location along U.S. Route 23 provide opportunities for tourism and manufacturing, but immediate stabilization is needed to stop further decline.
+
+| **Community** | **Population** | **Allocation** | **Cleanup/Stabilization** | **Business Rehab** | **Economic Development** |
+|---------------|----------------|----------------|---------------------------|-------------------|--------------------------|
+| Jonesville | ~1,500 | $125,000 | $37,500 | $50,000 | $37,500 |
+| Pennington Gap | ~6,342 (area) | $150,000 | $45,000 | $60,000 | $45,000 |
+| Rose Hill | ~250 | $75,000 | $22,500 | $30,000 | $22,500 |
+| Ewing | ~200 | $50,000 | $15,000 | $20,000 | $15,000 |
+| Keokee | ~150 | $50,000 | $15,000 | $20,000 | $15,000 |
+| Ben Hur | ~100 | $50,000 | $15,000 | $20,000 | $15,000 |
+| St. Charles | ~150 | $50,000 | $15,000 | $20,000 | $15,000 |
+| County-wide | - | $125,000 | $37,500 | $50,000 | $37,500 |
+| **Total** | | **$675,000** | **$202,500** | **$270,000** | **$202,500** |
+
+**Lee County Community Details:**
+
+**Pennington Gap ($150,000)**
+- **Allocation:** $150,000
+- **Work Time Required:** 2,400 hours
+- **Jobs Created:** 25
+- **Use:** Coal heritage tourism development ($40,000); downtown façade grants for 4 businesses ($40,000); infrastructure repairs ($35,000); small business grants for operating capital ($35,000)
+- **Success Running Goal:** 25 new jobs created; 4 businesses reopened; heritage tourism developed
+
+**Jonesville ($125,000)**
+- **Allocation:** $125,000
+- **Work Time Required:** 2,000 hours
+- **Jobs Created:** 20
+- **Use:** Historic building restoration ($40,000); commercial façade grants for 3 businesses ($30,000); infrastructure repairs ($30,000); small business grants ($25,000)
+- **Success Running Goal:** 20 new jobs created; 3 businesses reopened; historic buildings restored
+
+**Rose Hill, Ewing, Keokee, Ben Hur, St. Charles ($50,000-75,000)**
+- **Allocation:** $50,000-75,000
+- **Work Time Required:** 800-1,200 hours
+- **Jobs Created:** 5-10
+- **Use:** Community facility repairs; infrastructure cleanup; small business support; community center improvements
+- **Success Running Goal:** 5-10 new jobs created; community facilities improved; cleanup completed
+
+---
+
+### Wise County ($3,000,000)
+
+**Overview:** Wise County is the most economically significant county in the region, with a population of 34,973 residents and the largest concentration of businesses and institutions. The county's median household income is $50,740, but the poverty rate is 18.2 percent, and the labor force participation rate is just 46.4 percent. The county has major assets including UVA Wise, the Lonesome Pine Regional Business and Technology Park, and the Project Intersection site in Norton. However, the county has lost 3.2 percent of its population since 2020, and many communities face significant challenges.
+
+| **Community** | **Population** | **Allocation** | **Cleanup/Stabilization** | **Business Rehab** | **Economic Development** |
+|---------------|----------------|----------------|---------------------------|-------------------|--------------------------|
+| Norton | 3,478 | $750,000 | $225,000 | $300,000 | $225,000 |
+| Big Stone Gap | 5,087 | $500,000 | $150,000 | $200,000 | $150,000 |
+| Wise | 2,869 | $400,000 | $120,000 | $160,000 | $120,000 |
+| Coeburn | 1,556 | $250,000 | $75,000 | $100,000 | $75,000 |
+| Pound | 840 | $200,000 | $60,000 | $80,000 | $60,000 |
+| Appalachia | 1,376 | $150,000 | $45,000 | $60,000 | $45,000 |
+| East Stone Gap | ~500 | $100,000 | $30,000 | $40,000 | $30,000 |
+| County-wide | - | $650,000 | $195,000 | $260,000 | $195,000 |
+| **Total** | | **$3,000,000** | **$900,000** | **$1,200,000** | **$900,000** |
+
+**Wise County and Norton Community Details:**
+
+**Norton ($750,000)**
+- **Allocation:** $750,000
+- **Work Time Required:** 12,000 hours
+- **Jobs Created:** 100
+- **Use:** Project Intersection site cleanup and marketing ($150,000); downtown façade grants for 15 businesses ($150,000); Flag Rock access repairs ($100,000); small business grants for 10 businesses ($200,000); workforce training in manufacturing and technology ($100,000); entrepreneurial programs ($50,000)
+- **Success Running Goal:** 100 new jobs created; 15 businesses reopened; Project Intersection ready for new tenants
+
+**Big Stone Gap ($500,000)**
+- **Allocation:** $500,000
+- **Work Time Required:** 8,000 hours
+- **Jobs Created:** 75
+- **Use:** Southwest Virginia Museum repairs and exhibits ($100,000); downtown façade grants for 15 businesses ($150,000); historic building restoration ($100,000); small business grants ($100,000); tourism development ($50,000)
+- **Success Running Goal:** 75 new jobs created; 15 businesses reopened; museum enhanced
+
+**Wise ($400,000)**
+- **Allocation:** $400,000
+- **Work Time Required:** 6,400 hours
+- **Jobs Created:** 60
+- **Use:** Technology park cleanup and site preparation ($100,000); UVA Wise partnerships for internships and research ($100,000); downtown façade grants for 8 businesses ($80,000); small business grants ($70,000); broadband support ($50,000)
+- **Success Running Goal:** 60 new jobs created; 8 businesses reopened; tech park ready for new tenants
+
+**Coeburn ($250,000)**
+- **Allocation:** $250,000
+- **Work Time Required:** 4,000 hours
+- **Jobs Created:** 40
+- **Use:** Ralph Stanley Museum repairs and programming ($80,000); downtown façade grants for 6 businesses ($60,000); small business grants ($60,000); infrastructure repairs ($50,000)
+- **Success Running Goal:** 40 new jobs created; 6 businesses reopened; museum enhanced
+
+**Pound ($200,000)**
+- **Allocation:** $200,000
+- **Work Time Required:** 3,200 hours
+- **Jobs Created:** 35
+- **Use:** U.S. Route 23 Business BUILD grant matching ($80,000); downtown façade grants for 5 businesses ($50,000); small business grants ($40,000); infrastructure repairs ($30,000)
+- **Success Running Goal:** 35 new jobs created; 5 businesses reopened; highway improvements funded
+
+**Appalachia ($150,000)**
+- **Allocation:** $150,000
+- **Work Time Required:** 2,400 hours
+- **Jobs Created:** 25
+- **Use:** Heritage tourism development ($50,000); commercial façade grants for 4 businesses ($40,000); infrastructure repairs ($30,000); small business grants ($30,000)
+- **Success Running Goal:** 25 new jobs created; 4 businesses reopened; heritage tourism developed
+
+**East Stone Gap ($100,000)**
+- **Allocation:** $100,000
+- **Work Time Required:** 1,600 hours
+- **Jobs Created:** 15
+- **Use:** Community cleanup ($30,000); community facility repairs ($30,000); small business support ($20,000); infrastructure improvements ($20,000)
+- **Success Running Goal:** 15 new jobs created; community cleanup completed; facilities improved
+
+---
+
+### Russell County ($450,000)
+
+**Overview:** Russell County has a population of approximately 25,000 residents and a median household income of $50,012. The county has shown signs of stabilization, with slight growth in the 25-to-44-year-old workforce in recent years. The county has significant assets including the Russell Regional Business Technology Park, Tate Access Floors expansion, and the modular housing manufacturing facility. However, St. Paul and Castlewood face significant challenges, and immediate investment is needed to support their recovery.
+
+| **Community** | **Population** | **Allocation** | **Cleanup/Stabilization** | **Business Rehab** | **Economic Development** |
+|---------------|----------------|----------------|---------------------------|-------------------|--------------------------|
+| St. Paul | ~1,000 | $200,000 | $60,000 | $80,000 | $60,000 |
+| Castlewood | 1,357 | $150,000 | $45,000 | $60,000 | $45,000 |
+| County-wide | - | $100,000 | $30,000 | $40,000 | $30,000 |
+| **Total** | | **$450,000** | **$135,000** | **$180,000** | **$135,000** |
+
+**Russell County Community Details:**
+
+**St. Paul ($200,000)**
+- **Allocation:** $200,000
+- **Work Time Required:** 3,200 hours
+- **Jobs Created:** 35
+- **Use:** Deen Building rehabilitation and sewer connection ($80,000); Clinch River access cleanup and improvements ($40,000); downtown façade grants for 4 businesses ($40,000); small business grants ($40,000)
+- **Success Running Goal:** 35 new jobs created; Deen Building reopened; Clinch River access improved
+
+**Castlewood ($150,000)**
+- **Allocation:** $150,000
+- **Work Time Required:** 2,400 hours
+- **Jobs Created:** 25
+- **Use:** Natural gas pipeline feasibility study support ($40,000); commercial façade grants for 4 businesses ($40,000); infrastructure repairs ($35,000); small business grants ($35,000)
+- **Success Running Goal:** 25 new jobs created; gas pipeline study complete; 4 businesses reopened
+
+---
+
+### Dickenson County ($525,000)
+
+**Overview:** Dickenson County is the most rural and distressed county in the region, with a population of approximately 14,000 residents and an unemployment rate of 7.7 percent. The county has the lowest labor force participation rate and the highest poverty rate in the region. The county's assets include the Dickenson Center for Education and Research, the Red Onion industrial site, and the Russell Fork River. However, immediate investment is needed to stop further decline.
+
+| **Community** | **Population** | **Allocation** | **Cleanup/Stabilization** | **Business Rehab** | **Economic Development** |
+|---------------|----------------|----------------|---------------------------|-------------------|--------------------------|
+| Clintwood | 6,336 (ZIP) | $200,000 | $60,000 | $80,000 | $60,000 |
+| Haysi | 2,965 (ZIP) | $150,000 | $45,000 | $60,000 | $45,000 |
+| Clinchco | 1,798 (ZIP) | $100,000 | $30,000 | $40,000 | $30,000 |
+| Birchleaf | 630 | $75,000 | $22,500 | $30,000 | $22,500 |
+| County-wide | - | $100,000 | $30,000 | $40,000 | $30,000 |
+| **Total** | | **$525,000** | **$157,500** | **$210,000** | **$157,500** |
+
+**Dickenson County Community Details:**
+
+**Clintwood ($200,000)**
+- **Allocation:** $200,000
+- **Work Time Required:** 3,200 hours
+- **Jobs Created:** 35
+- **Use:** DCER business incubator completion ($80,000); Community Business Launch program ($50,000); downtown façade grants for 4 businesses ($40,000); small business grants ($30,000)
+- **Success Running Goal:** 35 new jobs created; incubator completed; 4 businesses reopened
+
+**Haysi ($150,000)**
+- **Allocation:** $150,000
+- **Work Time Required:** 2,400 hours
+- **Jobs Created:** 25
+- **Use:** Russell Fork River access cleanup and improvements ($50,000); commercial façade grants for 4 businesses ($40,000); infrastructure repairs ($30,000); small business grants ($30,000)
+- **Success Running Goal:** 25 new jobs created; river access improved; 4 businesses reopened
+
+**Clinchco ($100,000)**
+- **Allocation:** $100,000
+- **Work Time Required:** 1,600 hours
+- **Jobs Created:** 15
+- **Use:** Community cleanup ($30,000); community facility repairs ($30,000); small business support ($20,000); infrastructure improvements ($20,000)
+- **Success Running Goal:** 15 new jobs created; cleanup completed; facilities improved
+
+**Birchleaf ($75,000)**
+- **Allocation:** $75,000
+- **Work Time Required:** 1,200 hours
+- **Jobs Created:** 10
+- **Use:** Community facility repairs ($30,000); community cleanup ($25,000); small business support ($20,000)
+- **Success Running Goal:** 10 new jobs created; cleanup completed; facilities improved
+
+---
+
+### Washington County ($850,000)
+
+**Overview:** Washington County is the most prosperous county in the region, with a population of 54,219 residents and a median household income of $66,230. However, significant disparities exist between communities, and the county faces challenges including infrastructure needs, housing shortages, and the recovery from Hurricane Helene in Damascus. The county's assets include the Birthplace of Country Music Museum, the EO Workforce and Child Development Hub, the Barter Theatre, and the Virginia Creeper Trail.
+
+| **Community** | **Population** | **Allocation** | **Cleanup/Stabilization** | **Business Rehab** | **Economic Development** |
+|---------------|----------------|----------------|---------------------------|-------------------|--------------------------|
+| Bristol | ~17,000 | $350,000 | $105,000 | $140,000 | $105,000 |
+| Abingdon | ~16,814 | $300,000 | $90,000 | $120,000 | $90,000 |
+| Mendota | ~400 | $100,000 | $30,000 | $40,000 | $30,000 |
+| Damascus | 728 | $100,000 | $30,000 | $40,000 | $30,000 |
+| **Total** | | **$850,000** | **$255,000** | **$340,000** | **$255,000** |
+
+**Washington County Community Details:**
+
+**Bristol ($350,000)**
+- **Allocation:** $350,000
+- **Work Time Required:** 5,600 hours
+- **Jobs Created:** 50
+- **Use:** Downtown business grants for 10 businesses ($100,000); historic building rehabilitation ($100,000); Virginia Intermont Campus planning ($60,000); Enterprise Zone matching ($50,000); small business grants ($40,000)
+- **Success Running Goal:** 50 new jobs created; 10 businesses reopened; campus planning complete
+
+**Abingdon ($300,000)**
+- **Allocation:** $300,000
+- **Work Time Required:** 4,800 hours
+- **Jobs Created:** 45
+- **Use:** EO Workforce Hub expansion ($100,000); downtown business grants for 8 businesses ($80,000); Barter Theatre support ($60,000); small business grants ($60,000)
+- **Success Running Goal:** 45 new jobs created; 8 businesses reopened; workforce hub expanded
+
+**Damascus ($100,000)**
+- **Allocation:** $100,000
+- **Work Time Required:** 1,600 hours
+- **Jobs Created:** 15
+- **Use:** Small business recovery grants for 4 businesses ($40,000); flood mitigation infrastructure repairs ($30,000); trail restoration support ($20,000); community cleanup ($10,000)
+- **Success Running Goal:** 15 new jobs created; 4 businesses reopened; flood mitigation completed
+
+**Mendota ($100,000)**
+- **Allocation:** $100,000
+- **Work Time Required:** 1,600 hours
+- **Jobs Created:** 15
+- **Use:** Mendota Trail development ($40,000); proposed state park planning ($30,000); community cleanup ($15,000); small business support ($15,000)
+- **Success Running Goal:** 15 new jobs created; trail development planned; state park feasibility studied
+
+---
+
+## Total Allocation Summary
+
+| **County** | **Total Allocation** | **Cleanup/Stabilization** | **Business Rehab** | **Economic Development** | **Jobs Created** | **Businesses Assisted** | **Work Time Required** |
+|------------|---------------------|---------------------------|-------------------|--------------------------|------------------|-------------------------|------------------------|
+| Scott County | $850,000 | $255,000 | $340,000 | $255,000 | 100 | 30 | 13,600 hours |
+| Lee County | $675,000 | $202,500 | $270,000 | $202,500 | 80 | 25 | 10,800 hours |
+| Wise County | $3,000,000 | $900,000 | $1,200,000 | $900,000 | 350 | 100 | 48,000 hours |
+| Russell County | $450,000 | $135,000 | $180,000 | $135,000 | 60 | 20 | 7,200 hours |
+| Dickenson County | $525,000 | $157,500 | $210,000 | $157,500 | 70 | 25 | 8,400 hours |
+| Washington County | $850,000 | $255,000 | $340,000 | $255,000 | 125 | 30 | 13,600 hours |
+| **TOTAL** | **$6,350,000** | **$1,905,000** | **$2,540,000** | **$1,905,000** | **785** | **230** | **101,600 hours** |
+
+**Note:** The total allocation across all communities is **$6,350,000**. This is the emergency stabilization funding detailed in this plan. The $19,050,000 figure referenced earlier in this book includes matching funds and leveraged private investment.
+
+---
+
+## Work Time Required by County
+
+| **County** | **Months 1-3** | **Months 4-6** | **Months 7-12** | **Total Hours** |
+|------------|----------------|----------------|-----------------|-----------------|
+| Scott County | 4,080 | 4,760 | 4,760 | 13,600 |
+| Lee County | 3,240 | 3,780 | 3,780 | 10,800 |
+| Wise County | 14,400 | 16,800 | 16,800 | 48,000 |
+| Russell County | 2,160 | 2,520 | 2,520 | 7,200 |
+| Dickenson County | 2,520 | 2,940 | 2,940 | 8,400 |
+| Washington County | 4,080 | 4,760 | 4,760 | 13,600 |
+| **TOTAL** | **30,480** | **35,560** | **35,560** | **101,600** |
+
+---
+
+## Success Running Goal Metrics
+
+By the end of the 12-month period, each community will achieve the following "Success Running Goal" metrics:
+
+| **Metric** | **Target** |
+|------------|------------|
+| Total jobs created | 785+ |
+| Businesses reopened | 230+ |
+| Businesses assisted with grants | 500+ |
+| Workforce training completions | 500+ |
+| Cleanup completed | 90% of affected areas |
+| Infrastructure repairs completed | 75% of identified needs |
+| Tourism visitors (additional) | 100,000+ |
+| Broadband households connected | 5,000+ |
+| Community satisfaction | 75% reporting improvement |
+
+---
+
+## Funding Sources
+
+| **Program** | **Agency** | **Purpose** | **Amount** |
+|-------------|------------|-------------|------------|
+| EDA Disaster Supplemental Grant | U.S. EDA | Economic recovery in disaster areas | $2,500,000 |
+| Economic Adjustment Assistance | U.S. EDA | Business development and infrastructure | $1,500,000 |
+| CDBG-DR | HUD | Infrastructure, housing, public services | $1,500,000 |
+| Downtown Revive and Thrive | State-level | Historic building rehabilitation | $500,000 |
+| BUILD Grant | U.S. DOT | Transportation infrastructure | $300,000 |
+| VCEDA Emergency Funds | VCEDA | Business stabilization and recovery | $1,000,000 |
+| Private and Foundation Matching | Various | Leveraged investment | $1,000,000 |
+| **TOTAL** | | | **$6,350,000** |
+
+---
+
+*This plan provides immediate stabilization for the 37 communities of the Crooked Road and U.S. Route 23 corridor. By injecting capital, reopening shuttered businesses, creating jobs, and restoring hope, this emergency intervention stops the decline and creates the platform for the long-term transformation outlined in the main body of this book.*
 
 # CHAPTER ONE: UNDERSTANDING THE REGION
 
